@@ -1,0 +1,233 @@
+---
+import BaseHead from '../components/BaseHead.astro';
+import Header from '../components/Header.astro';
+import Footer from '../components/Footer.astro';
+
+interface Props {
+	title: string;
+	description: string;
+	icon?: string;
+}
+
+const { title, description, icon = '🐾' } = Astro.props;
+
+const relatedPages = [
+	{ href: '/', label: 'Home', icon: '🏠' },
+	{ href: '/about/', label: 'About Us', icon: '🐾' },
+	{ href: '/contact/', label: 'Contact', icon: '📬' },
+	{ href: '/privacy-policy/', label: 'Privacy Policy', icon: '🔒' },
+	{ href: '/disclosure/', label: 'Disclosure', icon: '💰' },
+	{ href: '/terms/', label: 'Terms', icon: '📜' },
+].filter((p) => p.label !== title);
+---
+
+<!doctype html>
+<html lang="en">
+	<head>
+		<BaseHead title={title} description={description} />
+		<style>
+			main {
+				width: min(720px, 90vw);
+				margin: 0 auto;
+				padding: 2.5rem 0 4rem;
+			}
+			.page-icon {
+				width: 56px;
+				height: 56px;
+				border-radius: 50%;
+				background: rgb(var(--gray-light));
+				display: flex;
+				align-items: center;
+				justify-content: center;
+				font-size: 1.7rem;
+				margin-bottom: 1rem;
+			}
+			.page-title {
+				font-size: clamp(1.8rem, 3.5vw, 2.4rem);
+				margin-bottom: 0.3em;
+			}
+			.updated {
+				color: rgb(var(--gray));
+				font-size: 0.9rem;
+				margin-bottom: 2.5rem;
+			}
+			.static-page :global(h2) {
+				font-size: 1.35rem;
+				margin-top: 2.2em;
+				margin-bottom: 0.6em;
+				padding-left: 0.7em;
+				border-left: 4px solid var(--accent);
+			}
+			.static-page :global(h3) {
+				font-size: 1.1rem;
+				margin-top: 1.6em;
+				margin-bottom: 0.5em;
+			}
+			.static-page :global(p) {
+				line-height: 1.7;
+				margin-bottom: 1.1em;
+			}
+			.static-page :global(ul),
+			.static-page :global(ol) {
+				line-height: 1.7;
+				margin-bottom: 1.1em;
+				padding-left: 1.3em;
+			}
+			.static-page :global(li) {
+				margin-bottom: 0.4em;
+			}
+			.static-page :global(a) {
+				color: var(--accent-dark);
+			}
+			.static-page :global(strong) {
+				color: rgb(var(--black));
+			}
+			:global(.note-box) {
+				background: rgb(var(--gray-light));
+				border-left: 4px solid var(--accent);
+				border-radius: 10px;
+				padding: 1rem 1.3rem;
+				margin: 1.5rem 0;
+				font-size: 0.92rem;
+				display: flex;
+				gap: 0.7rem;
+			}
+			:global(.note-box .note-icon) {
+				flex: none;
+				font-size: 1.2rem;
+				line-height: 1.5;
+			}
+			:global(.note-box.warm) {
+				border-left-color: #d97757;
+				background: #fdf3ec;
+			}
+			:root[data-theme='dark'] :global(.note-box.warm) {
+				background: rgb(var(--gray-light));
+			}
+
+			/* ---------- Icon feature grid (used on About) ---------- */
+			:global(.icon-grid) {
+				display: grid;
+				grid-template-columns: repeat(auto-fit, minmax(260px, 1fr));
+				gap: 1rem;
+				list-style: none;
+				padding: 0;
+				margin: 1.5rem 0;
+			}
+			:global(.icon-grid li) {
+				display: flex;
+				gap: 0.9rem;
+				align-items: flex-start;
+				background: rgb(var(--gray-light));
+				border-radius: 12px;
+				padding: 1rem 1.1rem;
+				margin: 0;
+			}
+			:global(.icon-grid .emoji) {
+				flex: none;
+				font-size: 1.4rem;
+			}
+
+			/* ---------- Author card (used on About) ---------- */
+			:global(.author-card) {
+				display: flex;
+				align-items: center;
+				gap: 1.2rem;
+				margin: 1.5rem 0 2rem;
+			}
+			:global(.author-photo) {
+				width: 96px;
+				height: 96px;
+				border-radius: 50%;
+				object-fit: cover;
+				flex: none;
+				border: 3px solid var(--accent);
+				box-shadow: var(--box-shadow);
+			}
+			:global(.author-name) {
+				margin: 0;
+				font-size: 1.15rem;
+				font-weight: 700;
+				color: rgb(var(--black));
+			}
+			:global(.author-role) {
+				margin: 0.15rem 0 0;
+				font-size: 0.9rem;
+				color: rgb(var(--gray));
+			}
+			@media (max-width: 480px) {
+				:global(.author-card) {
+					gap: 0.9rem;
+				}
+				:global(.author-photo) {
+					width: 72px;
+					height: 72px;
+				}
+			}
+
+			/* ---------- Interlinking footer nav ---------- */
+			.related-nav {
+				margin-top: 3.5rem;
+				padding-top: 2rem;
+				border-top: 1px solid rgb(var(--gray-light));
+			}
+			.related-nav h2 {
+				font-size: 1rem;
+				color: rgb(var(--gray));
+				font-weight: 600;
+				margin-bottom: 1rem;
+				border: none;
+				padding: 0;
+			}
+			.related-links {
+				display: flex;
+				flex-wrap: wrap;
+				gap: 0.7rem;
+				list-style: none;
+				padding: 0;
+				margin: 0;
+			}
+			.related-links a {
+				display: inline-flex;
+				align-items: center;
+				gap: 0.4rem;
+				background: rgb(var(--gray-light));
+				color: rgb(var(--black));
+				text-decoration: none;
+				padding: 0.5rem 1rem;
+				border-radius: 999px;
+				font-size: 0.9rem;
+				transition: 0.15s ease;
+			}
+			.related-links a:hover {
+				background: var(--accent);
+				color: white;
+			}
+		</style>
+	</head>
+	<body>
+		<Header />
+		<main>
+			<div class="page-icon">{icon}</div>
+			<h1 class="page-title">{title}</h1>
+			<div class="static-page">
+				<slot />
+			</div>
+			<nav class="related-nav" aria-label="More pages">
+				<h2>More on PawsomeFlock</h2>
+				<ul class="related-links">
+					{
+						relatedPages.map((p) => (
+							<li>
+								<a href={p.href}>
+									<span>{p.icon}</span> {p.label}
+								</a>
+							</li>
+						))
+					}
+				</ul>
+			</nav>
+		</main>
+		<Footer />
+	</body>
+</html>

@@ -1,0 +1,175 @@
+---
+import { getCollection } from 'astro:content';
+import BaseHead from '../../components/BaseHead.astro';
+import Footer from '../../components/Footer.astro';
+import Header from '../../components/Header.astro';
+import { SITE_DESCRIPTION, SITE_TITLE } from '../../consts';
+
+export async function getStaticPaths() {
+	const allPosts = await getCollection('blog');
+	const topics = [...new Set(allPosts.map((post) => post.data.topic).filter(Boolean))];
+	return topics.map((topic) => ({
+		params: { topic: topic.toLowerCase().replace(/\s+/g, '-') },
+		props: { topicName: topic },
+	}));
+}
+
+const { topicName } = Astro.props;
+const allPosts = await getCollection('blog');
+const postsInTopic = allPosts.filter((post) => post.data.topic === topicName);
+
+const categoryCounts = new Map();
+for (const post of postsInTopic) {
+	for (const category of post.data.categories ?? []) {
+		categoryCounts.set(category, (categoryCounts.get(category) ?? 0) + 1);
+	}
+}
+const categories = [...categoryCounts.entries()].sort((a, b) => a[0].localeCompare(b[0]));
+
+function thumbUrl(category: string) {
+	const q = encodeURIComponent(`${topicName} ${category}`);
+	return `https://tse1.mm.bing.net/th?q=${q}&w=474&h=274&c=7`;
+}
+---
+
+<!doctype html>
+<html lang="en">
+	<head>
+		<BaseHead title={`${topicName} - ${SITE_TITLE}`} description={SITE_DESCRIPTION} />
+		<style>
+			main {
+				width: min(1100px, 92vw);
+			}
+			.topic-header {
+				text-align: center;
+				margin-bottom: 2.5rem;
+			}
+			.topic-title {
+				margin-bottom: 0.3em;
+			}
+			.topic-meta {
+				margin: 0;
+				color: rgb(var(--gray));
+				font-size: 0.95em;
+			}
+			.category-grid {
+				display: grid;
+				grid-template-columns: repeat(auto-fill, minmax(230px, 1fr));
+				gap: 1.6rem;
+				list-style-type: none;
+				margin: 0;
+				padding: 0;
+			}
+			.category-card {
+				display: flex;
+				flex-direction: column;
+				height: 100%;
+				border-radius: 14px;
+				overflow: hidden;
+				background: rgb(var(--gray-light));
+				box-shadow: 0 1px 3px rgba(var(--gray), 20%);
+				text-decoration: none;
+				color: rgb(var(--black));
+				transition: transform 0.2s ease, box-shadow 0.2s ease;
+			}
+			.category-card:hover {
+				transform: translateY(-3px);
+				box-shadow: var(--box-shadow);
+			}
+			.thumb {
+				position: relative;
+				width: 100%;
+				aspect-ratio: 474 / 274;
+				background: rgb(var(--gray-light));
+				overflow: hidden;
+			}
+			.thumb img {
+				width: 100%;
+				height: 100%;
+				object-fit: cover;
+				display: block;
+			}
+			.card-body {
+				display: flex;
+				flex-direction: column;
+				flex-grow: 1;
+				padding: 0.9rem 1.1rem 1rem;
+			}
+			.cat-name {
+				margin: 0;
+				font-size: 1.05rem;
+				line-height: 1.35;
+				font-weight: 700;
+				min-height: calc(1.35em * 2);
+				display: -webkit-box;
+				-webkit-line-clamp: 2;
+				-webkit-box-orient: vertical;
+				overflow: hidden;
+			}
+			.count {
+				margin-top: auto;
+				padding-top: 0.6rem;
+				color: rgb(var(--gray));
+				font-size: 0.85em;
+			}
+			.category-card:hover .cat-name {
+				color: var(--accent);
+			}
+			.empty {
+				text-align: center;
+				color: rgb(var(--gray));
+			}
+			@media (max-width: 480px) {
+				.category-grid {
+					grid-template-columns: repeat(auto-fill, minmax(160px, 1fr));
+					gap: 1rem;
+				}
+			}
+		</style>
+	</head>
+	<body>
+		<Header />
+		<main>
+			<div class="topic-header">
+				<h1 class="topic-title">{topicName}</h1>
+				<p class="topic-meta">
+					{categories.length} categories · {postsInTopic.length} posts
+				</p>
+			</div>
+			<section>
+				{
+					categories.length === 0 ? (
+						<p class="empty">No categories found under this topic yet.</p>
+					) : (
+						<ul class="category-grid">
+							{categories.map(([category, count]) => (
+								<li>
+									<a
+										class="category-card"
+										href={`/categories/${category.toLowerCase().replace(/\s+/g, '-')}/`}
+									>
+										<div class="thumb">
+											<img
+												src={thumbUrl(category)}
+												alt=""
+												loading="lazy"
+												onerror="this.style.display='none'"
+											/>
+										</div>
+										<div class="card-body">
+											<h2 class="cat-name">{category}</h2>
+											<span class="count">
+												{count} {count === 1 ? 'post' : 'posts'}
+											</span>
+										</div>
+									</a>
+								</li>
+							))}
+						</ul>
+					)
+				}
+			</section>
+		</main>
+		<Footer />
+	</body>
+</html>
