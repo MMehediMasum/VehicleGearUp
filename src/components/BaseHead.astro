@@ -19,6 +19,7 @@ const { title, description, image = FallbackImage, noindex = false } = Astro.pro
 
 const isNoIndex = import.meta.env.PUBLIC_NOINDEX === "true" || noindex;
 const gaId = import.meta.env.PUBLIC_GA_ID;
+const cookieyesId = import.meta.env.PUBLIC_COOKIEYES_ID;
 
 const siteJsonLd = {
 	'@context': 'https://schema.org',
@@ -39,6 +40,15 @@ const siteJsonLd = {
 	],
 };
 ---
+
+<!-- Cookie consent banner (must load before any tracking script, e.g. Google Analytics) -->
+{cookieyesId && (
+	<script
+		id="cookieyes"
+		type="text/javascript"
+		src={`https://cdn-cookieyes.com/client_data/${cookieyesId}/script.js`}
+	></script>
+)}
 
 <!-- Global Metadata -->
 <meta charset="utf-8" />
