@@ -1,10 +1,14 @@
 ---
-title: "How to Put Dodge Durango in Neutral With Dead Battery: Quick Guide"
-description: "Have you ever found yourself stuck, wondering how to put your Dodge Durango in neutral when the battery is dead? It’s a frustrating situation that can leave you"
+title: 'How to Put Dodge Durango in Neutral With Dead Battery: Quick Guide'
+description: Have you ever found yourself stuck, wondering how to put your Dodge Durango
+  in neutral when the battery is dead? It’s a frustrating situation that can leave
+  you
 pubDate: 2026-04-04
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-put-dodge-durango-in-neutral-with-dead-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Neutral With Dead Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-put-dodge-durango-in-neutral-with-dead-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever found yourself stuck, wondering how to put your Dodge Durango in neutral when the battery is dead? It’s a frustrating situation that can leave you feeling helpless, especially if you need to move your vehicle quickly.**

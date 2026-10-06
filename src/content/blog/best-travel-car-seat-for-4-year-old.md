@@ -1,10 +1,14 @@
 ---
-title: "Best Travel Car Seat for 4 Year Old: Top Booster Seats Reviewed"
-description: "Finding the best travel car seat for a 4-year-old ensures safety and comfort on every trip. Choosing the right seat helps parents keep kids secure and happy in "
+title: 'Best Travel Car Seat for 4 Year Old: Top Booster Seats Reviewed'
+description: 'Finding the best travel car seat for a 4-year-old ensures safety and
+  comfort on every trip. Choosing the right seat helps parents keep kids secure and
+  happy in '
 pubDate: 2025-10-27
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-travel-car-seat-for-4-year-old&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Seat Accessories
+heroImage: https://tse1.mm.bing.net/th?q=best-travel-car-seat-for-4-year-old&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Finding the best travel car seat for a 4-year-old ensures safety and comfort on every trip. Choosing the right seat helps parents keep kids secure and happy in the car.**

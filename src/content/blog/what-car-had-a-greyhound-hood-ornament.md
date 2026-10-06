@@ -1,10 +1,14 @@
 ---
-title: "What Car Had a Greyhound Hood Ornament: Iconic Classic Revealed"
-description: "Have you ever noticed a sleek greyhound figure running along the hood of a car and wondered which brand made it famous? That graceful greyhound hood ornament is"
+title: 'What Car Had a Greyhound Hood Ornament: Iconic Classic Revealed'
+description: Have you ever noticed a sleek greyhound figure running along the hood
+  of a car and wondered which brand made it famous? That graceful greyhound hood ornament
+  is
 pubDate: 2026-01-15
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-car-had-a-greyhound-hood-ornament&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Everyday Car Questions
+heroImage: https://tse1.mm.bing.net/th?q=what-car-had-a-greyhound-hood-ornament&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Have you ever noticed a sleek greyhound figure running along the hood of a car and wondered which brand made it famous? That graceful greyhound hood ornament isn’t just a pretty decoration—it tells a story about style, speed, and luxury.**

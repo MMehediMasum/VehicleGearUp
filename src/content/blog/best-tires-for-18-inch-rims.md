@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for 18 Inch Rims: Top Picks for Performance and Durability"
-description: "Choosing the best tires for 18 inch rims affects your vehicle’s safety and performance. Quality tires improve grip, handling, and ride comfort on all road types"
+title: 'Best Tires for 18 Inch Rims: Top Picks for Performance and Durability'
+description: Choosing the best tires for 18 inch rims affects your vehicle’s safety
+  and performance. Quality tires improve grip, handling, and ride comfort on all road
+  types
 pubDate: 2025-12-22
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-18-inch-rims&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jeep Wheels and Rims
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-18-inch-rims&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for 18 inch rims affects your vehicle’s safety and performance. Quality tires improve grip, handling, and ride comfort on all road types.**

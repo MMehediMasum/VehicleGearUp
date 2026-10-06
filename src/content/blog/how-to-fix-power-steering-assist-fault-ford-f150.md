@@ -1,10 +1,14 @@
 ---
-title: "How to Fix Power Steering Assist Fault Ford F150: Quick Solutions"
-description: "If you’ve ever felt your Ford F150’s steering suddenly become heavy or unresponsive, you might be dealing with a power steering assist fault. This issue can mak"
+title: 'How to Fix Power Steering Assist Fault Ford F150: Quick Solutions'
+description: If you’ve ever felt your Ford F150’s steering suddenly become heavy or
+  unresponsive, you might be dealing with a power steering assist fault. This issue
+  can mak
 pubDate: 2026-04-25
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-power-steering-assist-fault-ford-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Power Steering Fluid and Additives
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-power-steering-assist-fault-ford-f150&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you’ve ever felt your Ford F150’s steering suddenly become heavy or unresponsive, you might be dealing with a power steering assist fault. This issue can make driving frustrating and even unsafe.**

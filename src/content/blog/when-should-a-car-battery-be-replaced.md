@@ -1,10 +1,14 @@
 ---
-title: "When Should a Car Battery Be Replaced: Key Signs to Know Now"
-description: "Have you ever been stuck with a car that just won’t start? A dead battery is often the silent culprit, catching you off guard at the worst possible moment. But "
+title: 'When Should a Car Battery Be Replaced: Key Signs to Know Now'
+description: 'Have you ever been stuck with a car that just won’t start? A dead battery
+  is often the silent culprit, catching you off guard at the worst possible moment.
+  But '
 pubDate: 2026-04-21
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=when-should-a-car-battery-be-replaced&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- When to Replace a Battery
+heroImage: https://tse1.mm.bing.net/th?q=when-should-a-car-battery-be-replaced&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever been stuck with a car that just won’t start? A dead battery is often the silent culprit, catching you off guard at the worst possible moment.**

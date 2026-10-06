@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Heat And Rain: Ultimate Shine and Performance Solutions"
-description: "Choosing the best tires for heat and rain ensures safety and performance in tough weather. Tires must handle wet roads and hot surfaces without losing grip or d"
+title: 'Best Tires for Heat And Rain: Ultimate Shine and Performance Solutions'
+description: Choosing the best tires for heat and rain ensures safety and performance
+  in tough weather. Tires must handle wet roads and hot surfaces without losing grip
+  or d
 pubDate: 2025-12-28
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-heat-and-rain&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Mud Street and RV Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-heat-and-rain&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for heat and rain ensures safety and performance in tough weather. Tires must handle wet roads and hot surfaces without losing grip or durability.**

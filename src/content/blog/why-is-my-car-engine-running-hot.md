@@ -1,10 +1,14 @@
 ---
-title: "Why is My Car Engine Running Hot: Common Causes & Quick Fixes"
-description: "Is your car engine running hot and you’re not sure why? This can be a frustrating and worrying problem. When your engine overheats, it can lead to serious damag"
+title: 'Why is My Car Engine Running Hot: Common Causes & Quick Fixes'
+description: Is your car engine running hot and you’re not sure why? This can be a
+  frustrating and worrying problem. When your engine overheats, it can lead to serious
+  damag
 pubDate: 2025-11-14
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-is-my-car-engine-running-hot&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Engine Noise and Heat
+heroImage: https://tse1.mm.bing.net/th?q=why-is-my-car-engine-running-hot&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Is your car engine running hot and you’re not sure why? This can be a frustrating and worrying problem.**

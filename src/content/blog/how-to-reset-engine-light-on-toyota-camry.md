@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Engine Light on Toyota Camry: Quick & Easy Guide"
-description: "Your Toyota Camry’s engine light just turned on, and you’re wondering what to do next. It can be frustrating and even a bit scary when that little warning light"
+title: 'How to Reset Engine Light on Toyota Camry: Quick & Easy Guide'
+description: Your Toyota Camry’s engine light just turned on, and you’re wondering
+  what to do next. It can be frustrating and even a bit scary when that little warning
+  light
 pubDate: 2026-04-29
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-engine-light-on-toyota-camry&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Resetting Check Engine Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-engine-light-on-toyota-camry&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Your Toyota Camry’s engine light just turned on, and you’re wondering what to do next. It can be frustrating and even a bit scary when that little warning light flashes on your dashboard.**

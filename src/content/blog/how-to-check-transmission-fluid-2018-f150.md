@@ -1,10 +1,14 @@
 ---
-title: "How to Check Transmission Fluid 2018 F150: Easy Step-by-Step Guide"
-description: "If you drive a 2018 F150, keeping your truck’s transmission fluid at the right level is key to smooth performance and avoiding costly repairs. But how do you ch"
+title: 'How to Check Transmission Fluid 2018 F150: Easy Step-by-Step Guide'
+description: If you drive a 2018 F150, keeping your truck’s transmission fluid at
+  the right level is key to smooth performance and avoiding costly repairs. But how
+  do you ch
 pubDate: 2026-05-05
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-check-transmission-fluid-2018-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Transmission Fluid Checks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-check-transmission-fluid-2018-f150&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you drive a 2018 F150, keeping your truck’s transmission fluid at the right level is key to smooth performance and avoiding costly repairs. But how do you check the transmission fluid correctly?**

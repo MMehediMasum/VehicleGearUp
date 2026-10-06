@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Steering Wheel And Pedals for Xbox: Top Racing Gear Reviewed"
 description: "Finding the best steering wheel and pedals for Xbox can improve your racing game experience. Choosing the right set helps you drive more realistically and enjoy"
 pubDate: 2026-01-01

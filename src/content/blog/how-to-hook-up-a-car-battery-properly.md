@@ -1,10 +1,14 @@
 ---
-title: "How to Hook Up a Car Battery Properly: Expert Tips for Safety"
-description: "If you’ve ever faced a dead car battery, you know how frustrating it can be. But hooking up a car battery properly doesn’t have to be confusing or risky. In fac"
+title: 'How to Hook Up a Car Battery Properly: Expert Tips for Safety'
+description: If you’ve ever faced a dead car battery, you know how frustrating it
+  can be. But hooking up a car battery properly doesn’t have to be confusing or risky.
+  In fac
 pubDate: 2026-04-08
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hook-up-a-car-battery-properly&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Selling Old Car Batteries
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hook-up-a-car-battery-properly&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **If you’ve ever faced a dead car battery, you know how frustrating it can be. But hooking up a car battery properly doesn’t have to be confusing or risky.**

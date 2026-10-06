@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Steering Wheel Knob for Boat: Top Durable and Universal Picks"
 description: "Choosing the best steering wheel knob for your boat improves control and steering ease. A quality knob lets you steer smoothly with one hand, especially in tigh"
 pubDate: 2025-12-27

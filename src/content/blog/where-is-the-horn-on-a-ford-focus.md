@@ -1,10 +1,14 @@
 ---
-title: "Where is the Horn on a Ford Focus: Easy Location Guide"
-description: "Have you ever wondered where the horn on your Ford Focus is located? Knowing exactly where to find it can save you precious seconds in an emergency or help you "
+title: 'Where is the Horn on a Ford Focus: Easy Location Guide'
+description: 'Have you ever wondered where the horn on your Ford Focus is located?
+  Knowing exactly where to find it can save you precious seconds in an emergency or
+  help you '
 pubDate: 2025-12-14
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-is-the-horn-on-a-ford-focus&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Horn Problems
+heroImage: https://tse1.mm.bing.net/th?q=where-is-the-horn-on-a-ford-focus&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Have you ever wondered where the horn on your Ford Focus is located? Knowing exactly where to find it can save you precious seconds in an emergency or help you quickly warn others on the road.**

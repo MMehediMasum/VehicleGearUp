@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Life 2018 Honda Civic: Quick & Easy Guide"
-description: "If you own a 2018 Honda Civic, keeping your car in top shape is probably a priority for you. One important task is resetting the oil life indicator after an oil"
+title: 'How to Reset Oil Life 2018 Honda Civic: Quick & Easy Guide'
+description: If you own a 2018 Honda Civic, keeping your car in top shape is probably
+  a priority for you. One important task is resetting the oil life indicator after
+  an oil
 pubDate: 2026-05-14
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-life-2018-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Oil Life Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-life-2018-honda-civic&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a 2018 Honda Civic, keeping your car in top shape is probably a priority for you. One important task is resetting the oil life indicator after an oil change.**

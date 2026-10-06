@@ -1,10 +1,13 @@
 ---
-title: "Best Jack Stands for Lifted Trucks: Top Heavy Duty Picks Reviewed"
-description: "Choosing the best jack stands for lifted trucks ensures safety and stability during repairs. Strong, tall, and reliable stands support heavier loads and higher "
+title: 'Best Jack Stands for Lifted Trucks: Top Heavy Duty Picks Reviewed'
+description: 'Choosing the best jack stands for lifted trucks ensures safety and stability
+  during repairs. Strong, tall, and reliable stands support heavier loads and higher '
 pubDate: 2026-06-03
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-jack-stands-for-lifted-trucks&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Jacks and Jack Stands
+heroImage: https://tse1.mm.bing.net/th?q=best-jack-stands-for-lifted-trucks&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best jack stands for lifted trucks ensures safety and stability during repairs. Strong, tall, and reliable stands support heavier loads and higher lifts.**

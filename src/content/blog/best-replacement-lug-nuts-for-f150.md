@@ -1,10 +1,14 @@
 ---
-title: "Best Replacement Lug Nuts for F150: Top Durable Chrome and Black Picks"
-description: "Choosing the best replacement lug nuts for your F150 ensures safety and proper wheel fit. Quality lug nuts protect your wheels and keep them secure on the road."
+title: 'Best Replacement Lug Nuts for F150: Top Durable Chrome and Black Picks'
+description: Choosing the best replacement lug nuts for your F150 ensures safety and
+  proper wheel fit. Quality lug nuts protect your wheels and keep them secure on the
+  road.
 pubDate: 2025-11-02
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-replacement-lug-nuts-for-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spare Tires and Tire Changing
+heroImage: https://tse1.mm.bing.net/th?q=best-replacement-lug-nuts-for-f150&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best replacement lug nuts for your F150 ensures safety and proper wheel fit. Quality lug nuts protect your wheels and keep them secure on the road.**

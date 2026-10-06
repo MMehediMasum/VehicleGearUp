@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for 5.3L: Boost Power and Performance Today"
-description: "Choosing the best cold air intake for your 5.3 engine can boost power and improve fuel efficiency. This guide covers top options designed for Chevy and GMC truc"
+title: 'Best Cold Air Intake for 5.3L: Boost Power and Performance Today'
+description: Choosing the best cold air intake for your 5.3 engine can boost power
+  and improve fuel efficiency. This guide covers top options designed for Chevy and
+  GMC truc
 pubDate: 2026-06-21
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-53&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Engine Specific Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-53&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best cold air intake for your 5.3 engine can boost power and improve fuel efficiency. This guide covers top options designed for Chevy and GMC trucks.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for a Toyota Highlander: Top All-Season Picks Reviewed"
-description: "Choosing the best tires for a Toyota Highlander improves safety, comfort, and performance. Quality tires fit your driving needs and weather conditions well. Tir"
+title: 'Best Tires for a Toyota Highlander: Top All-Season Picks Reviewed'
+description: Choosing the best tires for a Toyota Highlander improves safety, comfort,
+  and performance. Quality tires fit your driving needs and weather conditions well.
+  Tir
 pubDate: 2025-12-21
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-a-toyota-highlander&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-a-toyota-highlander&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for a Toyota Highlander improves safety, comfort, and performance. Quality tires fit your driving needs and weather conditions well.**

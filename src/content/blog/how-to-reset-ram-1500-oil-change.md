@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Ram 1500 Oil Change: Quick & Easy Step-by-Step Guide"
-description: "If you own a Ram 1500, you know how important regular oil changes are to keep your truck running smoothly. But after changing your oil, do you know how to reset"
+title: 'How to Reset Ram 1500 Oil Change: Quick & Easy Step-by-Step Guide'
+description: If you own a Ram 1500, you know how important regular oil changes are
+  to keep your truck running smoothly. But after changing your oil, do you know how
+  to reset
 pubDate: 2025-10-08
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-ram-1500-oil-change&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Oil Change Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-ram-1500-oil-change&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a Ram 1500, you know how important regular oil changes are to keep your truck running smoothly. But after changing your oil, do you know how to reset the oil change light?**

@@ -1,10 +1,14 @@
 ---
-title: "Best Child Seat for Electric Bike: Safe, Comfortable, and Durable Options"
-description: "Choosing the best child seat for an electric bike ensures safety and comfort for your little one. A good seat fits well, supports your child, and works with you"
+title: 'Best Child Seat for Electric Bike: Safe, Comfortable, and Durable Options'
+description: Choosing the best child seat for an electric bike ensures safety and
+  comfort for your little one. A good seat fits well, supports your child, and works
+  with you
 pubDate: 2026-07-16
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-child-seat-for-electric-bike&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Electric and Mountain Bikes
+heroImage: https://tse1.mm.bing.net/th?q=best-child-seat-for-electric-bike&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best child seat for an electric bike ensures safety and comfort for your little one. A good seat fits well, supports your child, and works with your bike.**

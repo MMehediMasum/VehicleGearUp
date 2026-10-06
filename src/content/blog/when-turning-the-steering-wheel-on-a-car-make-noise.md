@@ -1,10 +1,14 @@
 ---
-title: "When Turning the Steering Wheel on a Car Make Noise: Causes & Fixes"
-description: "Have you ever turned your car’s steering wheel and heard an unexpected noise? That creak, squeak, or grind can be unsettling—and it often means something isn’t "
+title: 'When Turning the Steering Wheel on a Car Make Noise: Causes & Fixes'
+description: 'Have you ever turned your car’s steering wheel and heard an unexpected
+  noise? That creak, squeak, or grind can be unsettling—and it often means something
+  isn’t '
 pubDate: 2025-10-20
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=when-turning-the-steering-wheel-on-a-car-make-noise&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Steering Wheel Problems and Covers
+heroImage: https://tse1.mm.bing.net/th?q=when-turning-the-steering-wheel-on-a-car-make-noise&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever turned your car’s steering wheel and heard an unexpected noise? That creak, squeak, or grind can be unsettling—and it often means something isn’t quite right.**

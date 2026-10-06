@@ -1,10 +1,14 @@
 ---
-title: "Does Cold Weather Affect a Car Battery: Surprising Truths Revealed"
-description: "Have you ever been left stranded on a chilly morning, wondering why your car just won’t start? You might be surprised to learn that cold weather could be the re"
+title: 'Does Cold Weather Affect a Car Battery: Surprising Truths Revealed'
+description: Have you ever been left stranded on a chilly morning, wondering why your
+  car just won’t start? You might be surprised to learn that cold weather could be
+  the re
 pubDate: 2026-05-09
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-cold-weather-affect-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Cold Weather Battery Drain
+heroImage: https://tse1.mm.bing.net/th?q=does-cold-weather-affect-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever been left stranded on a chilly morning, wondering why your car just won’t start? You might be surprised to learn that cold weather could be the real culprit behind your battery problems.**

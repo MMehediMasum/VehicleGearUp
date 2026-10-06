@@ -1,10 +1,14 @@
 ---
-title: "When is a Car Battery Considered Dead: Signs You Can’t Ignore"
-description: "Have you ever turned the key in your car only to hear nothing but a click or a faint whir? That frustrating moment might mean your car battery is dead—or close "
+title: 'When is a Car Battery Considered Dead: Signs You Can’t Ignore'
+description: 'Have you ever turned the key in your car only to hear nothing but a
+  click or a faint whir? That frustrating moment might mean your car battery is dead—or
+  close '
 pubDate: 2026-04-05
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=when-is-a-car-battery-considered-dead&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- When to Replace a Battery
+heroImage: https://tse1.mm.bing.net/th?q=when-is-a-car-battery-considered-dead&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever turned the key in your car only to hear nothing but a click or a faint whir? That frustrating moment might mean your car battery is dead—or close to it.**

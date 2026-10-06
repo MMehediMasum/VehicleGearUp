@@ -1,10 +1,14 @@
 ---
-title: "How to Replace Windshield Washer Nozzle on Ram 1500: Easy Guide"
-description: "Is your Ram 1500’s windshield washer nozzle not spraying properly? A clogged or broken nozzle can make it hard to keep your windshield clean, especially when th"
+title: 'How to Replace Windshield Washer Nozzle on Ram 1500: Easy Guide'
+description: Is your Ram 1500’s windshield washer nozzle not spraying properly? A
+  clogged or broken nozzle can make it hard to keep your windshield clean, especially
+  when th
 pubDate: 2026-05-13
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-replace-windshield-washer-nozzle-on-ram-1500&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Windshield and Mirror Repair
+heroImage: https://tse1.mm.bing.net/th?q=how-to-replace-windshield-washer-nozzle-on-ram-1500&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Is your Ram 1500’s windshield washer nozzle not spraying properly? A clogged or broken nozzle can make it hard to keep your windshield clean, especially when the road gets messy.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Check Tire Pressure on Toyota Camry: Easy Step-by-Step Guide"
-description: "Keeping your Toyota Camry’s tires at the right pressure is one of the easiest ways to improve your car’s safety and fuel efficiency. But do you know how to chec"
+title: 'How to Check Tire Pressure on Toyota Camry: Easy Step-by-Step Guide'
+description: Keeping your Toyota Camry’s tires at the right pressure is one of the
+  easiest ways to improve your car’s safety and fuel efficiency. But do you know how
+  to chec
 pubDate: 2026-03-04
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-check-tire-pressure-on-toyota-camry&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Tire Pressure Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-check-tire-pressure-on-toyota-camry&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Keeping your Toyota Camry’s tires at the right pressure is one of the easiest ways to improve your car’s safety and fuel efficiency. But do you know how to check your tire pressure correctly?**

@@ -1,10 +1,14 @@
 ---
-title: "Does 2000 Ford F150 Have a Triton Engine? Uncover Truths Now"
-description: "Are you curious about what powers your 2000 Ford F150? Knowing if your truck has a Triton engine can help you understand its performance, maintenance needs, and"
+title: Does 2000 Ford F150 Have a Triton Engine? Uncover Truths Now
+description: Are you curious about what powers your 2000 Ford F150? Knowing if your
+  truck has a Triton engine can help you understand its performance, maintenance needs,
+  and
 pubDate: 2026-05-10
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-2000-ford-f150-have-a-triton-engine&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Model Questions
+heroImage: https://tse1.mm.bing.net/th?q=does-2000-ford-f150-have-a-triton-engine&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you curious about what powers your 2000 Ford F150? Knowing if your truck has a Triton engine can help you understand its performance, maintenance needs, and value.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Car Wash Soap for Hard Water: Top Spot-Free Cleaning Picks"
-description: "Hard water can leave spots and streaks on your car’s paint. Choosing the right car wash soap helps keep your vehicle clean and shiny. Hard water contains minera"
+title: 'Best Car Wash Soap for Hard Water: Top Spot-Free Cleaning Picks'
+description: Hard water can leave spots and streaks on your car’s paint. Choosing
+  the right car wash soap helps keep your vehicle clean and shiny. Hard water contains
+  minera
 pubDate: 2025-10-28
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-wash-soap-for-hard-water&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wash Soap Picks
+heroImage: https://tse1.mm.bing.net/th?q=best-car-wash-soap-for-hard-water&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Hard water can leave spots and streaks on your car’s paint. Choosing the right car wash soap helps keep your vehicle clean and shiny.**

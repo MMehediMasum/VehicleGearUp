@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Why is Honda Civic Insurance So High: Shocking Truth Revealed"
 description: "Are you surprised by how much you’re paying for Honda Civic insurance? You’re not alone. Many drivers wonder why their premiums seem higher than expected for su"
 pubDate: 2025-09-20

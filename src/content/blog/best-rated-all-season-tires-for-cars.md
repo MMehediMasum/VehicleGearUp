@@ -1,10 +1,14 @@
 ---
-title: "Best Rated All Season Tires for Cars: Top Performance and Durability Picks"
-description: "Choosing the best all-season tires can improve your car’s safety and performance year-round. This guide covers top-rated tires for cars, SUVs, and trucks. All-s"
+title: 'Best Rated All Season Tires for Cars: Top Performance and Durability Picks'
+description: Choosing the best all-season tires can improve your car’s safety and
+  performance year-round. This guide covers top-rated tires for cars, SUVs, and trucks.
+  All-s
 pubDate: 2026-01-02
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rated-all-season-tires-for-cars&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- All Season SUV Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-rated-all-season-tires-for-cars&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best all-season tires can improve your car’s safety and performance year-round. This guide covers top-rated tires for cars, SUVs, and trucks.**

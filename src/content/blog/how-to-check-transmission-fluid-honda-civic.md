@@ -1,10 +1,14 @@
 ---
-title: "How to Check Transmission Fluid Honda Civic: Easy Step-by-Step Guide"
-description: "If you own a Honda Civic, keeping your transmission fluid in check is key to smooth driving and avoiding costly repairs. But how do you know when it’s time to c"
+title: 'How to Check Transmission Fluid Honda Civic: Easy Step-by-Step Guide'
+description: If you own a Honda Civic, keeping your transmission fluid in check is
+  key to smooth driving and avoiding costly repairs. But how do you know when it’s
+  time to c
 pubDate: 2026-05-17
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-check-transmission-fluid-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Transmission Fluid Checks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-check-transmission-fluid-honda-civic&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a Honda Civic, keeping your transmission fluid in check is key to smooth driving and avoiding costly repairs. But how do you know when it’s time to check your transmission fluid, and how do you do it right?**

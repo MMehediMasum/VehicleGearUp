@@ -1,10 +1,14 @@
 ---
-title: "How to Change Headlight Bulb on Jeep Grand Cherokee: Easy Guide"
-description: "Is your Jeep Grand Cherokee’s headlight flickering or completely out? Changing a headlight bulb might seem tricky, but you can do it yourself quickly and safely"
+title: 'How to Change Headlight Bulb on Jeep Grand Cherokee: Easy Guide'
+description: Is your Jeep Grand Cherokee’s headlight flickering or completely out?
+  Changing a headlight bulb might seem tricky, but you can do it yourself quickly
+  and safely
 pubDate: 2026-05-26
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-headlight-bulb-on-jeep-grand-cherokee&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Headlight Bulbs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-headlight-bulb-on-jeep-grand-cherokee&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your Jeep Grand Cherokee’s headlight flickering or completely out? Changing a headlight bulb might seem tricky, but you can do it yourself quickly and safely.**

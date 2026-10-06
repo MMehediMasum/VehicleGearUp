@@ -1,10 +1,14 @@
 ---
-title: "Are Any Car Tires Made in the USA: Discover Top American Brands"
-description: "Are you curious about where your car tires come from? You might wonder if any tires on the market are actually made in the USA. Knowing the origin of your tires"
+title: 'Are Any Car Tires Made in the USA: Discover Top American Brands'
+description: Are you curious about where your car tires come from? You might wonder
+  if any tires on the market are actually made in the USA. Knowing the origin of your
+  tires
 pubDate: 2025-10-30
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-any-car-tires-made-in-the-usa&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tire Construction and Origin
+heroImage: https://tse1.mm.bing.net/th?q=are-any-car-tires-made-in-the-usa&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Are you curious about where your car tires come from? You might wonder if any tires on the market are actually made in the USA.**

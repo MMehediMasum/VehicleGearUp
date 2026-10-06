@@ -1,10 +1,14 @@
 ---
-title: "Best Small Shop Vac for Car Detailing: Top Attachments and Accessories Guide"
-description: "Choosing the best small shop vac makes car detailing easier and more effective. It helps clean tight spaces and removes dirt quickly. Car detailing needs a vacu"
+title: 'Best Small Shop Vac for Car Detailing: Top Attachments and Accessories Guide'
+description: Choosing the best small shop vac makes car detailing easier and more
+  effective. It helps clean tight spaces and removes dirt quickly. Car detailing needs
+  a vacu
 pubDate: 2026-07-07
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-small-shop-vac-for-car-detailing&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Detailing Equipment
+heroImage: https://tse1.mm.bing.net/th?q=best-small-shop-vac-for-car-detailing&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best small shop vac makes car detailing easier and more effective. It helps clean tight spaces and removes dirt quickly.**

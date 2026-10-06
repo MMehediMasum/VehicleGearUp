@@ -1,10 +1,14 @@
 ---
-title: "How to Bleed a Car Radiator System: Easy Steps for Quick Cooling"
-description: "If your car’s heater isn’t working right or the engine is overheating, the problem might be trapped air in your radiator system. Knowing how to bleed a car radi"
+title: 'How to Bleed a Car Radiator System: Easy Steps for Quick Cooling'
+description: If your car’s heater isn’t working right or the engine is overheating,
+  the problem might be trapped air in your radiator system. Knowing how to bleed a
+  car radi
 pubDate: 2026-01-30
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-bleed-a-car-radiator-system&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Coolant and AC Recharge
+heroImage: https://tse1.mm.bing.net/th?q=how-to-bleed-a-car-radiator-system&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If your car’s heater isn’t working right or the engine is overheating, the problem might be trapped air in your radiator system. Knowing how to bleed a car radiator system can save you from costly repairs and keep your engine running smoothly.**

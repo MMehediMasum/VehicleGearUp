@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for F150 5.0 to Boost Power and Performance"
-description: "Finding the best cold air intake for your F150 5.0 can boost engine power and improve fuel efficiency. A quality intake helps your truck breathe better and perf"
+title: Best Cold Air Intake for F150 5.0 to Boost Power and Performance
+description: Finding the best cold air intake for your F150 5.0 can boost engine power
+  and improve fuel efficiency. A quality intake helps your truck breathe better and
+  perf
 pubDate: 2026-06-04
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-f150-50&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-f150-50&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Finding the best cold air intake for your F150 5.0 can boost engine power and improve fuel efficiency. A quality intake helps your truck breathe better and perform stronger.**

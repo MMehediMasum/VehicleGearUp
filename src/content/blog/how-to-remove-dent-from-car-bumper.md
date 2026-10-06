@@ -1,10 +1,14 @@
 ---
-title: "How to Remove Dent from Car Bumper: Easy Steps for a Flawless Fix"
-description: "Have you noticed a dent on your car bumper and wondered how to fix it without spending a fortune? That small dent can be frustrating, making your car look less "
+title: 'How to Remove Dent from Car Bumper: Easy Steps for a Flawless Fix'
+description: 'Have you noticed a dent on your car bumper and wondered how to fix it
+  without spending a fortune? That small dent can be frustrating, making your car
+  look less '
 pubDate: 2025-10-12
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-remove-dent-from-car-bumper&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Bumper Dent and Scratch Repair
+heroImage: https://tse1.mm.bing.net/th?q=how-to-remove-dent-from-car-bumper&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you noticed a dent on your car bumper and wondered how to fix it without spending a fortune? That small dent can be frustrating, making your car look less than perfect.**

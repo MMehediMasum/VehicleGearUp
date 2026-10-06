@@ -1,10 +1,13 @@
 ---
-title: "How to Use Physical Key on 2019 Chevy Equinox: Quick & Easy Guide"
-description: "Have you ever found yourself locked out of your 2019 Chevy Equinox because the key fob’s battery died? It’s frustrating, right? Knowing how to use the physical "
+title: 'How to Use Physical Key on 2019 Chevy Equinox: Quick & Easy Guide'
+description: 'Have you ever found yourself locked out of your 2019 Chevy Equinox because
+  the key fob’s battery died? It’s frustrating, right? Knowing how to use the physical '
 pubDate: 2025-12-13
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-use-physical-key-on-2019-chevy-equinox&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Chevy Valves and Module Resets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-use-physical-key-on-2019-chevy-equinox&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Have you ever found yourself locked out of your 2019 Chevy Equinox because the key fob’s battery died? It’s frustrating, right?**

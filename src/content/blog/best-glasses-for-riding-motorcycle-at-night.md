@@ -1,10 +1,14 @@
 ---
-title: "Best Glasses for Riding Motorcycle at Night: Top Anti-Glare Picks"
-description: "Riding a motorcycle at night can be risky due to poor visibility and glare from headlights. Choosing the right glasses helps improve vision and safety on the ro"
+title: 'Best Glasses for Riding Motorcycle at Night: Top Anti-Glare Picks'
+description: Riding a motorcycle at night can be risky due to poor visibility and
+  glare from headlights. Choosing the right glasses helps improve vision and safety
+  on the ro
 pubDate: 2026-01-14
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-glasses-for-riding-motorcycle-at-night&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Riding Accessories
+heroImage: https://tse1.mm.bing.net/th?q=best-glasses-for-riding-motorcycle-at-night&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Riding a motorcycle at night can be risky due to poor visibility and glare from headlights. Choosing the right glasses helps improve vision and safety on the road.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Turn off Headlights on Jeep Grand Cherokee: Quick Guide"
-description: "Have you ever found yourself wondering how to turn off the headlights on your Jeep Grand Cherokee? It’s a simple task, but if you’re new to the vehicle or just "
+title: 'How to Turn off Headlights on Jeep Grand Cherokee: Quick Guide'
+description: 'Have you ever found yourself wondering how to turn off the headlights
+  on your Jeep Grand Cherokee? It’s a simple task, but if you’re new to the vehicle
+  or just '
 pubDate: 2025-09-25
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-headlights-on-jeep-grand-cherokee&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Interior Light Settings
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-headlights-on-jeep-grand-cherokee&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Have you ever found yourself wondering how to turn off the headlights on your Jeep Grand Cherokee? It’s a simple task, but if you’re new to the vehicle or just not sure where to look, it can be frustrating.**

@@ -1,10 +1,14 @@
 ---
-title: "Why Does My New Car Battery Keep Dying? Shocking Causes Revealed"
-description: "Isn’t it frustrating when your brand-new car battery keeps dying on you? You expect a fresh battery to last, but instead, you find yourself stuck with a dead en"
+title: Why Does My New Car Battery Keep Dying? Shocking Causes Revealed
+description: Isn’t it frustrating when your brand-new car battery keeps dying on you?
+  You expect a fresh battery to last, but instead, you find yourself stuck with a
+  dead en
 pubDate: 2026-04-11
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-does-my-new-car-battery-keep-dying&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Why Batteries Keep Dying
+heroImage: https://tse1.mm.bing.net/th?q=why-does-my-new-car-battery-keep-dying&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Isn’t it frustrating when your brand-new car battery keeps dying on you? You expect a fresh battery to last, but instead, you find yourself stuck with a dead engine more times than you’d like.**

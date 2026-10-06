@@ -1,10 +1,14 @@
 ---
-title: "How to Change Cabin Air Filter Hyundai Elantra: Easy Step-by-Step Guide"
-description: "If you drive a Hyundai Elantra, keeping your cabin air filter clean is key to fresh air inside your car. You might not realize it, but a dirty filter can make t"
+title: 'How to Change Cabin Air Filter Hyundai Elantra: Easy Step-by-Step Guide'
+description: If you drive a Hyundai Elantra, keeping your cabin air filter clean is
+  key to fresh air inside your car. You might not realize it, but a dirty filter can
+  make t
 pubDate: 2026-03-01
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-cabin-air-filter-hyundai-elantra&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Cabin Air Filters
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-cabin-air-filter-hyundai-elantra&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you drive a Hyundai Elantra, keeping your cabin air filter clean is key to fresh air inside your car. You might not realize it, but a dirty filter can make the air stale, cause bad odors, and even affect your health.**

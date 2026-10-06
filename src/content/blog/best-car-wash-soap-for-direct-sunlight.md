@@ -1,10 +1,14 @@
 ---
-title: "Best Car Wash Soap for Direct Sunlight: Top Spot-Free Shine Picks"
-description: "Washing a car under direct sunlight can cause streaks and spots. Choosing the right car wash soap helps protect your vehicle’s shine. Car cleaning in bright sun"
+title: 'Best Car Wash Soap for Direct Sunlight: Top Spot-Free Shine Picks'
+description: Washing a car under direct sunlight can cause streaks and spots. Choosing
+  the right car wash soap helps protect your vehicle’s shine. Car cleaning in bright
+  sun
 pubDate: 2026-07-05
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-wash-soap-for-direct-sunlight&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wash Soap Picks
+heroImage: https://tse1.mm.bing.net/th?q=best-car-wash-soap-for-direct-sunlight&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Washing a car under direct sunlight can cause streaks and spots. Choosing the right car wash soap helps protect your vehicle’s shine.**

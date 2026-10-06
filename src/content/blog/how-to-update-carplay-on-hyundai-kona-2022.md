@@ -1,10 +1,14 @@
 ---
-title: "How to Update Carplay on Hyundai Kona 2025: Easy Step-by-Step Guide"
-description: "If you own a Hyundai Kona 2022, keeping your CarPlay updated is key to enjoying the latest features and smooth performance. But how do you make sure your system"
+title: 'How to Update Carplay on Hyundai Kona 2025: Easy Step-by-Step Guide'
+description: If you own a Hyundai Kona 2022, keeping your CarPlay updated is key to
+  enjoying the latest features and smooth performance. But how do you make sure your
+  system
 pubDate: 2025-10-10
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-update-carplay-on-hyundai-kona-2022&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Warning Light Fixes
+heroImage: https://tse1.mm.bing.net/th?q=how-to-update-carplay-on-hyundai-kona-2022&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If you own a Hyundai Kona 2022, keeping your CarPlay updated is key to enjoying the latest features and smooth performance. But how do you make sure your system stays current without any hassle?**

@@ -1,10 +1,14 @@
 ---
-title: "Does a Car Charger Drain Your Car Battery? Shocking Truth Revealed!"
-description: "Have you ever wondered if leaving your car charger plugged in could harm your car battery? You might think it’s harmless, but the truth could surprise you. Know"
+title: Does a Car Charger Drain Your Car Battery? Shocking Truth Revealed!
+description: Have you ever wondered if leaving your car charger plugged in could harm
+  your car battery? You might think it’s harmless, but the truth could surprise you.
+  Know
 pubDate: 2026-04-03
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-a-car-charger-drain-your-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Using Battery Chargers
+heroImage: https://tse1.mm.bing.net/th?q=does-a-car-charger-drain-your-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if leaving your car charger plugged in could harm your car battery? You might think it’s harmless, but the truth could surprise you.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Brake Pads for Harley Davidson: Top Durable and High-Performance Picks"
-description: "Choosing the best brake pads for your Harley Davidson ensures safe rides and smooth stops. Quality pads fit specific Harley models and handle heavy use well. Br"
+title: 'Best Brake Pads for Harley Davidson: Top Durable and High-Performance Picks'
+description: Choosing the best brake pads for your Harley Davidson ensures safe rides
+  and smooth stops. Quality pads fit specific Harley models and handle heavy use well.
+  Br
 pubDate: 2025-10-23
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-brake-pads-for-harley-davidson&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Maintenance Basics
+heroImage: https://tse1.mm.bing.net/th?q=best-brake-pads-for-harley-davidson&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best brake pads for your Harley Davidson ensures safe rides and smooth stops. Quality pads fit specific Harley models and handle heavy use well.**

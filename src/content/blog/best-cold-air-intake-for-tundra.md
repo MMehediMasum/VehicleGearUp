@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for Tundra to Boost Power and Performance"
-description: "Choosing the best cold air intake for your Toyota Tundra can boost engine power and fuel efficiency. This guide covers top options for models from 2007 to 2024."
+title: Best Cold Air Intake for Tundra to Boost Power and Performance
+description: Choosing the best cold air intake for your Toyota Tundra can boost engine
+  power and fuel efficiency. This guide covers top options for models from 2007 to
+  2024.
 pubDate: 2026-06-19
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-tundra&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Engine Specific Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-tundra&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best cold air intake for your Toyota Tundra can boost engine power and fuel efficiency. This guide covers top options for models from 2007 to 2024.**

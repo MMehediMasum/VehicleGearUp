@@ -1,10 +1,14 @@
 ---
-title: "How to Turn off Emergency Flashers on Harley Davidson: Quick Guide"
-description: "If you’ve ever found yourself unsure about how to turn off the emergency flashers on your Harley Davidson, you’re not alone. Those flashing lights can be a life"
+title: 'How to Turn off Emergency Flashers on Harley Davidson: Quick Guide'
+description: If you’ve ever found yourself unsure about how to turn off the emergency
+  flashers on your Harley Davidson, you’re not alone. Those flashing lights can be
+  a life
 pubDate: 2025-09-05
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-emergency-flashers-on-harley-davidson&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Maintenance Basics
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-emergency-flashers-on-harley-davidson&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **If you’ve ever found yourself unsure about how to turn off the emergency flashers on your Harley Davidson, you’re not alone. Those flashing lights can be a lifesaver in tricky situations, but they can also be distracting if left on too long.**

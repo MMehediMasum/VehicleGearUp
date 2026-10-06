@@ -1,10 +1,14 @@
 ---
-title: "What Oil Does a 2013 Ford Focus Take: Essential Guide"
-description: "If you own a 2013 Ford Focus, you know how important it is to keep your car running smoothly. One simple step that makes a big difference is using the right oil"
+title: 'What Oil Does a 2013 Ford Focus Take: Essential Guide'
+description: If you own a 2013 Ford Focus, you know how important it is to keep your
+  car running smoothly. One simple step that makes a big difference is using the right
+  oil
 pubDate: 2026-04-30
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-oil-does-a-2013-ford-focus-take&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- What Oil to Use
+heroImage: https://tse1.mm.bing.net/th?q=what-oil-does-a-2013-ford-focus-take&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a 2013 Ford Focus, you know how important it is to keep your car running smoothly. One simple step that makes a big difference is using the right oil.**

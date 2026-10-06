@@ -1,10 +1,14 @@
 ---
-title: "How to Put Windshield Wipers on Honda Civic: Easy Step-by-Step Guide"
-description: "When was the last time you changed your Honda Civic’s windshield wipers? If you’re like most drivers, it might have slipped your mind. But worn-out wipers can b"
+title: 'How to Put Windshield Wipers on Honda Civic: Easy Step-by-Step Guide'
+description: When was the last time you changed your Honda Civic’s windshield wipers?
+  If you’re like most drivers, it might have slipped your mind. But worn-out wipers
+  can b
 pubDate: 2025-11-20
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-put-windshield-wipers-on-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Windshield Wipers
+heroImage: https://tse1.mm.bing.net/th?q=how-to-put-windshield-wipers-on-honda-civic&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **When was the last time you changed your Honda Civic’s windshield wipers? If you’re like most drivers, it might have slipped your mind.**

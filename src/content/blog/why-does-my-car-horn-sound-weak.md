@@ -1,10 +1,14 @@
 ---
-title: "Why Does My Car Horn Sound Weak: Easy Fixes to Boost Sound"
-description: "Have you noticed your car horn sounding weak lately? It’s frustrating when you press the horn, but it barely makes a sound. Your horn is more than just a noise-"
+title: 'Why Does My Car Horn Sound Weak: Easy Fixes to Boost Sound'
+description: Have you noticed your car horn sounding weak lately? It’s frustrating
+  when you press the horn, but it barely makes a sound. Your horn is more than just
+  a noise-
 pubDate: 2026-02-10
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-does-my-car-horn-sound-weak&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Horn Problems
+heroImage: https://tse1.mm.bing.net/th?q=why-does-my-car-horn-sound-weak&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Have you noticed your car horn sounding weak lately? It’s frustrating when you press the horn, but it barely makes a sound.**

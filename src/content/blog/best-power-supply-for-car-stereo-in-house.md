@@ -1,10 +1,14 @@
 ---
-title: "Best Power Supply for Car Stereo in House: Top Portable 12V Chargers"
-description: "Finding the best power supply for a car stereo in a house can be tricky. You need a reliable device that converts home AC power to 12V DC safely. Car stereos ru"
+title: 'Best Power Supply for Car Stereo in House: Top Portable 12V Chargers'
+description: Finding the best power supply for a car stereo in a house can be tricky.
+  You need a reliable device that converts home AC power to 12V DC safely. Car stereos
+  ru
 pubDate: 2026-07-29
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-power-supply-for-car-stereo-in-house&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Power Supplies and Inverters
+heroImage: https://tse1.mm.bing.net/th?q=best-power-supply-for-car-stereo-in-house&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Finding the best power supply for a car stereo in a house can be tricky. You need a reliable device that converts home AC power to 12V DC safely.**

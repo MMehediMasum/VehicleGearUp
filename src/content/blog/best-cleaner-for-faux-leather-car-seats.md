@@ -1,10 +1,14 @@
 ---
-title: "Best Cleaner for Faux Leather Car Seats: Top Picks for Ultimate Care"
-description: "Faux leather car seats need gentle but effective cleaning to stay fresh and last longer. Choosing the best cleaner protects the material without damage. Faux le"
+title: 'Best Cleaner for Faux Leather Car Seats: Top Picks for Ultimate Care'
+description: Faux leather car seats need gentle but effective cleaning to stay fresh
+  and last longer. Choosing the best cleaner protects the material without damage.
+  Faux le
 pubDate: 2026-07-06
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cleaner-for-faux-leather-car-seats&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Leather and Fabric Seat Care
+heroImage: https://tse1.mm.bing.net/th?q=best-cleaner-for-faux-leather-car-seats&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Faux leather car seats need gentle but effective cleaning to stay fresh and last longer. Choosing the best cleaner protects the material without damage.**

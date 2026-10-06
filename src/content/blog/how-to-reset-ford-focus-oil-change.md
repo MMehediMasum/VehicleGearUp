@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Ford Focus Oil Change: Quick & Easy Guide"
-description: "If you own a Ford Focus, you know how important it is to keep your car running smoothly. One key part of maintenance is changing the oil regularly. But after yo"
+title: 'How to Reset Ford Focus Oil Change: Quick & Easy Guide'
+description: If you own a Ford Focus, you know how important it is to keep your car
+  running smoothly. One key part of maintenance is changing the oil regularly. But
+  after yo
 pubDate: 2026-05-06
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-ford-focus-oil-change&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Oil Change Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-ford-focus-oil-change&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a Ford Focus, you know how important it is to keep your car running smoothly. One key part of maintenance is changing the oil regularly.**

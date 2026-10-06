@@ -1,10 +1,13 @@
 ---
-title: "Best All Season Tires for Tesla Model Y: Top Picks for Performance"
-description: "Choosing the best all-season tires for your Tesla Model Y improves safety and performance year-round. Quality tires provide better grip, comfort, and efficiency"
+title: 'Best All Season Tires for Tesla Model Y: Top Picks for Performance'
+description: Choosing the best all-season tires for your Tesla Model Y improves safety
+  and performance year-round. Quality tires provide better grip, comfort, and efficiency
 pubDate: 2026-01-12
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-all-season-tires-for-tesla-model-y&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Tires and Accessories
+heroImage: https://tse1.mm.bing.net/th?q=best-all-season-tires-for-tesla-model-y&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best all-season tires for your Tesla Model Y improves safety and performance year-round. Quality tires provide better grip, comfort, and efficiency in different weather conditions.**

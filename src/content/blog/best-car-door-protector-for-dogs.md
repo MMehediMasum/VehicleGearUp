@@ -1,10 +1,14 @@
 ---
-title: "Best Car Door Protector for Dogs: Top Scratch-Resistant Picks"
-description: "Protecting your car doors from dog scratches is essential for every pet owner. The best car door protectors keep doors safe and clean during trips. Dogs love to"
+title: 'Best Car Door Protector for Dogs: Top Scratch-Resistant Picks'
+description: Protecting your car doors from dog scratches is essential for every pet
+  owner. The best car door protectors keep doors safe and clean during trips. Dogs
+  love to
 pubDate: 2026-06-28
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-door-protector-for-dogs&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Pets and Babies in Cars
+heroImage: https://tse1.mm.bing.net/th?q=best-car-door-protector-for-dogs&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Protecting your car doors from dog scratches is essential for every pet owner. The best car door protectors keep doors safe and clean during trips.**

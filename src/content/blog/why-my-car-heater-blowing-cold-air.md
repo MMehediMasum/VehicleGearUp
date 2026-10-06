@@ -1,10 +1,14 @@
 ---
-title: "Why My Car Heater Blowing Cold Air: Common Causes & Easy Fixes"
-description: "Is your car heater blowing cold air when you need warmth the most? It’s frustrating, especially on those chilly mornings or cold nights. You might wonder why yo"
+title: 'Why My Car Heater Blowing Cold Air: Common Causes & Easy Fixes'
+description: Is your car heater blowing cold air when you need warmth the most? It’s
+  frustrating, especially on those chilly mornings or cold nights. You might wonder
+  why yo
 pubDate: 2026-02-23
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-my-car-heater-blowing-cold-air&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Heater Not Working
+heroImage: https://tse1.mm.bing.net/th?q=why-my-car-heater-blowing-cold-air&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your car heater blowing cold air when you need warmth the most? It’s frustrating, especially on those chilly mornings or cold nights.**

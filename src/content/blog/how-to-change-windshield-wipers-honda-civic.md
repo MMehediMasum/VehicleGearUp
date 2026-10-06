@@ -1,10 +1,13 @@
 ---
-title: "How to Change Windshield Wipers Honda Civic: Easy Step-by-Step Guide"
-description: "Your Honda Civic’s windshield wipers are crucial for clear vision, especially when rain or snow hits. If they’re streaking or skipping, it’s time for a change. "
+title: 'How to Change Windshield Wipers Honda Civic: Easy Step-by-Step Guide'
+description: 'Your Honda Civic’s windshield wipers are crucial for clear vision, especially
+  when rain or snow hits. If they’re streaking or skipping, it’s time for a change. '
 pubDate: 2025-09-02
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-windshield-wipers-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Windshield Wipers
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-windshield-wipers-honda-civic&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Your Honda Civic’s windshield wipers are crucial for clear vision, especially when rain or snow hits. If they’re streaking or skipping, it’s time for a change.**

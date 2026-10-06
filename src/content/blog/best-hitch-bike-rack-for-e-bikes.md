@@ -1,10 +1,14 @@
 ---
-title: "Best Hitch Bike Rack for E Bikes: Top Durable Carriers for Heavy E-Bikes"
-description: "Finding the best hitch bike rack for e-bikes makes transporting easy and safe. These racks support heavy e-bikes and fit various vehicles. E-bikes are heavier a"
+title: 'Best Hitch Bike Rack for E Bikes: Top Durable Carriers for Heavy E-Bikes'
+description: Finding the best hitch bike rack for e-bikes makes transporting easy
+  and safe. These racks support heavy e-bikes and fit various vehicles. E-bikes are
+  heavier a
 pubDate: 2025-10-22
-author: "herbertlangham"
-categories: ["Towing & Hauling"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-hitch-bike-rack-for-e-bikes&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hitch Bike Racks
+heroImage: https://tse1.mm.bing.net/th?q=best-hitch-bike-rack-for-e-bikes&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Finding the best hitch bike rack for e-bikes makes transporting easy and safe. These racks support heavy e-bikes and fit various vehicles.**

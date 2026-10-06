@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for 6.4 Powerstroke to Boost Performance & Efficiency"
-description: "Choosing the best cold air intake for a 6.4 Powerstroke can boost your truck’s engine performance. A quality intake improves airflow and helps your diesel run s"
+title: Best Cold Air Intake for 6.4 Powerstroke to Boost Performance & Efficiency
+description: Choosing the best cold air intake for a 6.4 Powerstroke can boost your
+  truck’s engine performance. A quality intake improves airflow and helps your diesel
+  run s
 pubDate: 2026-06-01
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-64-powerstroke&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-64-powerstroke&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best cold air intake for a 6.4 Powerstroke can boost your truck’s engine performance. A quality intake improves airflow and helps your diesel run smoother.**

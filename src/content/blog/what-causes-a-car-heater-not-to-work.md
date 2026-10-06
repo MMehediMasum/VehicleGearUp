@@ -1,10 +1,14 @@
 ---
-title: "What Causes a Car Heater Not to Work: Common Issues Explained"
-description: "Is your car heater not working when you need it most? You’re not alone. A broken heater can turn your drive into an uncomfortable, chilly experience. But why do"
+title: 'What Causes a Car Heater Not to Work: Common Issues Explained'
+description: Is your car heater not working when you need it most? You’re not alone.
+  A broken heater can turn your drive into an uncomfortable, chilly experience. But
+  why do
 pubDate: 2025-11-08
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-causes-a-car-heater-not-to-work&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Heater Not Working
+heroImage: https://tse1.mm.bing.net/th?q=what-causes-a-car-heater-not-to-work&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your car heater not working when you need it most? You’re not alone.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for Jeep Gladiator to Boost Power & Performance"
-description: "Choosing the best cold air intake can boost your Jeep Gladiator’s engine power and efficiency. A quality intake improves airflow, helping your vehicle perform b"
+title: Best Cold Air Intake for Jeep Gladiator to Boost Power & Performance
+description: Choosing the best cold air intake can boost your Jeep Gladiator’s engine
+  power and efficiency. A quality intake improves airflow, helping your vehicle perform
+  b
 pubDate: 2026-06-01
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-jeep-gladiator&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Engine Specific Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-jeep-gladiator&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best cold air intake can boost your Jeep Gladiator’s engine power and efficiency. A quality intake improves airflow, helping your vehicle perform better.**

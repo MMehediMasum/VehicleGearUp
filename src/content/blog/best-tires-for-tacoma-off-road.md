@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Tacoma Off Road: Top Picks for Ultimate Trail Performance"
-description: "Choosing the best tires for your Tacoma off-road enhances performance and safety on rough trails. The right tires offer better grip, durability, and comfort on "
+title: 'Best Tires for Tacoma Off Road: Top Picks for Ultimate Trail Performance'
+description: 'Choosing the best tires for your Tacoma off-road enhances performance
+  and safety on rough trails. The right tires offer better grip, durability, and comfort
+  on '
 pubDate: 2026-01-02
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-tacoma-off-road&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Trim Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-tacoma-off-road&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your Tacoma off-road enhances performance and safety on rough trails. The right tires offer better grip, durability, and comfort on mud, rocks, and dirt roads.**

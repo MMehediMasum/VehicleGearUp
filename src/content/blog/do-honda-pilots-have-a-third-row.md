@@ -1,10 +1,14 @@
 ---
-title: "Do Honda Pilots Have a Third Row: Ultimate Family SUV Guide"
-description: "Are you thinking about getting a Honda Pilot but wondering if it has a third row? You’re not alone. Many families and drivers like you want extra seating for ki"
+title: 'Do Honda Pilots Have a Third Row: Ultimate Family SUV Guide'
+description: Are you thinking about getting a Honda Pilot but wondering if it has
+  a third row? You’re not alone. Many families and drivers like you want extra seating
+  for ki
 pubDate: 2026-03-11
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-honda-pilots-have-a-third-row&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Speed and Drive
+heroImage: https://tse1.mm.bing.net/th?q=do-honda-pilots-have-a-third-row&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you thinking about getting a Honda Pilot but wondering if it has a third row? You’re not alone.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Honda Ridgeline: Top Durable Picks for Smooth Rides"
-description: "Choosing the best tires for your 2019 Honda Ridgeline improves safety and driving comfort. The right tires fit perfectly with your truck’s 18-inch alloy wheels "
+title: 'Best Tires for Honda Ridgeline: Top Durable Picks for Smooth Rides'
+description: 'Choosing the best tires for your 2019 Honda Ridgeline improves safety
+  and driving comfort. The right tires fit perfectly with your truck’s 18-inch alloy
+  wheels '
 pubDate: 2025-11-14
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-2019-honda-ridgeline&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-2019-honda-ridgeline&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your 2019 Honda Ridgeline improves safety and driving comfort. The right tires fit perfectly with your truck’s 18-inch alloy wheels and suspension system.**

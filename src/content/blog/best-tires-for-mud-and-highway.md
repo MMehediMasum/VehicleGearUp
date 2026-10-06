@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Mud And Highway: Top Durable Off-Road Tire Picks"
-description: "Choosing the best tires for mud and highway drives improves safety and performance. Tires must handle rough mud and smooth pavement well. Selecting tires that w"
+title: 'Best Tires for Mud And Highway: Top Durable Off-Road Tire Picks'
+description: Choosing the best tires for mud and highway drives improves safety and
+  performance. Tires must handle rough mud and smooth pavement well. Selecting tires
+  that w
 pubDate: 2025-12-31
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-mud-and-highway&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Mud Street and RV Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-mud-and-highway&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for mud and highway drives improves safety and performance. Tires must handle rough mud and smooth pavement well.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Turn off Intelligent 4Wd Ford Escape: Easy Step-by-Step Guide"
-description: "Are you wondering how to turn off the Intelligent 4WD on your Ford Escape? Knowing when and how to switch off this feature can give you better control over your"
+title: 'How to Turn off Intelligent 4Wd Ford Escape: Easy Step-by-Step Guide'
+description: Are you wondering how to turn off the Intelligent 4WD on your Ford Escape?
+  Knowing when and how to switch off this feature can give you better control over
+  your
 pubDate: 2026-03-05
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-intelligent-4wd-ford-escape&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Turning On 4WD
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-intelligent-4wd-ford-escape&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you wondering how to turn off the Intelligent 4WD on your Ford Escape? Knowing when and how to switch off this feature can give you better control over your driving experience.**

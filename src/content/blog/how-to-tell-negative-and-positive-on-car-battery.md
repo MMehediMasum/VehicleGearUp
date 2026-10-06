@@ -1,10 +1,14 @@
 ---
-title: "How to Tell Negative And Positive on Car Battery: Quick Guide"
-description: "Have you ever wondered how to quickly tell the difference between the negative and positive terminals on your car battery? Knowing this simple trick can save yo"
+title: 'How to Tell Negative And Positive on Car Battery: Quick Guide'
+description: Have you ever wondered how to quickly tell the difference between the
+  negative and positive terminals on your car battery? Knowing this simple trick can
+  save yo
 pubDate: 2026-04-06
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-tell-negative-and-positive-on-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Terminal Care
+heroImage: https://tse1.mm.bing.net/th?q=how-to-tell-negative-and-positive-on-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered how to quickly tell the difference between the negative and positive terminals on your car battery? Knowing this simple trick can save you from costly mistakes, keep you safe, and make tasks like jump-starting your car much easier.**

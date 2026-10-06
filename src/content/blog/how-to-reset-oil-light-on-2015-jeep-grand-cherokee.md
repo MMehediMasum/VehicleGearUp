@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Light on 2015 Jeep Grand Cherokee: Quick & Easy Guide"
-description: "You’ve just changed the oil on your 2015 Jeep Grand Cherokee, but the oil light won’t turn off. That flashing or steady warning can be frustrating and distracti"
+title: 'How to Reset Oil Light on 2015 Jeep Grand Cherokee: Quick & Easy Guide'
+description: You’ve just changed the oil on your 2015 Jeep Grand Cherokee, but the
+  oil light won’t turn off. That flashing or steady warning can be frustrating and
+  distracti
 pubDate: 2026-05-14
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-light-on-2015-jeep-grand-cherokee&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Oil Light Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-light-on-2015-jeep-grand-cherokee&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **You’ve just changed the oil on your 2015 Jeep Grand Cherokee, but the oil light won’t turn off. That flashing or steady warning can be frustrating and distracting.**

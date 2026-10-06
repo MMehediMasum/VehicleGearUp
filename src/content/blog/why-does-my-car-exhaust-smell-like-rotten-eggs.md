@@ -1,10 +1,14 @@
 ---
-title: "Why Does My Car Exhaust Smell Like Rotten Eggs: Shocking Causes Explained"
-description: "Have you ever noticed a strange smell coming from your car’s exhaust, like rotten eggs? It’s not just unpleasant—it could be a sign that something is wrong unde"
+title: 'Why Does My Car Exhaust Smell Like Rotten Eggs: Shocking Causes Explained'
+description: Have you ever noticed a strange smell coming from your car’s exhaust,
+  like rotten eggs? It’s not just unpleasant—it could be a sign that something is
+  wrong unde
 pubDate: 2026-03-07
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-does-my-car-exhaust-smell-like-rotten-eggs&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Exhaust Systems
+heroImage: https://tse1.mm.bing.net/th?q=why-does-my-car-exhaust-smell-like-rotten-eggs&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you ever noticed a strange smell coming from your car’s exhaust, like rotten eggs? It’s not just unpleasant—it could be a sign that something is wrong under the hood.**

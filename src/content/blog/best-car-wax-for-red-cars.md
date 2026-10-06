@@ -1,10 +1,14 @@
 ---
-title: "Best Car Wax for Red Cars: Ultimate Shine and Scratch Protection Guide"
-description: "Red cars need special care to keep their shine bright and color rich. Using the best car wax protects paint and hides minor scratches. Choosing the right wax he"
+title: 'Best Car Wax for Red Cars: Ultimate Shine and Scratch Protection Guide'
+description: Red cars need special care to keep their shine bright and color rich.
+  Using the best car wax protects paint and hides minor scratches. Choosing the right
+  wax he
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-wax-for-red-cars&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wax by Paint Color
+heroImage: https://tse1.mm.bing.net/th?q=best-car-wax-for-red-cars&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Red cars need special care to keep their shine bright and color rich. Using the best car wax protects paint and hides minor scratches.**

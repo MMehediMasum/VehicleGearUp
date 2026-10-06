@@ -1,10 +1,14 @@
 ---
-title: "Does Tesla Model Y Have Ventilated Seats: Ultimate Comfort Guide"
-description: "Are you wondering if the Tesla Model Y has ventilated seats to keep you cool during those hot drives? You’re not alone. Comfort inside your car can make a huge "
+title: 'Does Tesla Model Y Have Ventilated Seats: Ultimate Comfort Guide'
+description: 'Are you wondering if the Tesla Model Y has ventilated seats to keep
+  you cool during those hot drives? You’re not alone. Comfort inside your car can
+  make a huge '
 pubDate: 2025-09-21
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-tesla-model-y-have-ventilated-seats&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Tires and Accessories
+heroImage: https://tse1.mm.bing.net/th?q=does-tesla-model-y-have-ventilated-seats&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you wondering if the Tesla Model Y has ventilated seats to keep you cool during those hot drives? You’re not alone.**

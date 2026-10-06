@@ -1,10 +1,14 @@
 ---
-title: "How to Turn off Auto Headlights Honda Civic: Quick & Easy Guide"
-description: "Are your Honda Civic’s headlights turning on automatically when you don’t want them to? It can be frustrating, especially if you prefer full control over your c"
+title: 'How to Turn off Auto Headlights Honda Civic: Quick & Easy Guide'
+description: Are your Honda Civic’s headlights turning on automatically when you don’t
+  want them to? It can be frustrating, especially if you prefer full control over
+  your c
 pubDate: 2026-05-28
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-auto-headlights-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Interior Light Settings
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-auto-headlights-honda-civic&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are your Honda Civic’s headlights turning on automatically when you don’t want them to? It can be frustrating, especially if you prefer full control over your car’s lighting.**

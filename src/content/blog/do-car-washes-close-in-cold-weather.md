@@ -1,10 +1,14 @@
 ---
-title: "Do Car Washes Close in Cold Weather: Essential Facts Revealed"
-description: "Have you ever wondered if car washes close when the weather turns cold? You might think freezing temperatures mean no clean cars, but the truth is more interest"
+title: 'Do Car Washes Close in Cold Weather: Essential Facts Revealed'
+description: Have you ever wondered if car washes close when the weather turns cold?
+  You might think freezing temperatures mean no clean cars, but the truth is more
+  interest
 pubDate: 2026-03-22
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-car-washes-close-in-cold-weather&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Do Car Washes Damage Paint
+heroImage: https://tse1.mm.bing.net/th?q=do-car-washes-close-in-cold-weather&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever wondered if car washes close when the weather turns cold? You might think freezing temperatures mean no clean cars, but the truth is more interesting.**

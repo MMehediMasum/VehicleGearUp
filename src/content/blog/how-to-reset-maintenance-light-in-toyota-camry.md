@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Maintenance Light in Toyota Camry: Quick & Easy Guide"
-description: "Is the maintenance light on your Toyota Camry distracting you while you drive? You’re not alone. This little warning light is important, but once you’ve taken c"
+title: 'How to Reset Maintenance Light in Toyota Camry: Quick & Easy Guide'
+description: Is the maintenance light on your Toyota Camry distracting you while you
+  drive? You’re not alone. This little warning light is important, but once you’ve
+  taken c
 pubDate: 2026-05-28
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-maintenance-light-in-toyota-camry&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Maintenance Light Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-maintenance-light-in-toyota-camry&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is the maintenance light on your Toyota Camry distracting you while you drive? You’re not alone.**

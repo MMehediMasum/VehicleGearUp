@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Tire Pressure Sensor Honda Civic: Quick & Easy Guide"
-description: "If you’ve ever seen that tire pressure warning light pop up on your Honda Civic’s dashboard, you know how distracting—and sometimes worrying—it can be. But don’"
+title: 'How to Reset Tire Pressure Sensor Honda Civic: Quick & Easy Guide'
+description: If you’ve ever seen that tire pressure warning light pop up on your Honda
+  Civic’s dashboard, you know how distracting—and sometimes worrying—it can be. But
+  don’
 pubDate: 2026-01-20
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-tire-pressure-sensor-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Checking Tire Pressure
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-tire-pressure-sensor-honda-civic&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **If you’ve ever seen that tire pressure warning light pop up on your Honda Civic’s dashboard, you know how distracting—and sometimes worrying—it can be. But don’t let it stress you out.**

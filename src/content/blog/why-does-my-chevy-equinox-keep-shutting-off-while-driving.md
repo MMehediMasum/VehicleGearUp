@@ -1,10 +1,14 @@
 ---
-title: "Why Does My Chevy Equinox Keep Shutting off While Driving? Causes & Fixes"
-description: "Have you ever been driving your Chevy Equinox when suddenly the engine just cuts out? It’s not only frustrating but can also be scary. You might be wondering, \""
+title: Why Does My Chevy Equinox Keep Shutting off While Driving? Causes & Fixes
+description: Have you ever been driving your Chevy Equinox when suddenly the engine
+  just cuts out? It’s not only frustrating but can also be scary. You might be wondering,
+  "
 pubDate: 2026-03-01
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-does-my-chevy-equinox-keep-shutting-off-while-driving&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Not Starting Causes
+heroImage: https://tse1.mm.bing.net/th?q=why-does-my-chevy-equinox-keep-shutting-off-while-driving&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Have you ever been driving your Chevy Equinox when suddenly the engine just cuts out? It’s not only frustrating but can also be scary.**

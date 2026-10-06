@@ -1,10 +1,14 @@
 ---
-title: "How to Read Harley Davidson Oil Dipstick: Easy Steps to Master"
-description: "If you ride a Harley Davidson, keeping your bike in top shape is probably one of your priorities. One of the simplest yet most important tasks you can do is che"
+title: 'How to Read Harley Davidson Oil Dipstick: Easy Steps to Master'
+description: If you ride a Harley Davidson, keeping your bike in top shape is probably
+  one of your priorities. One of the simplest yet most important tasks you can do
+  is che
 pubDate: 2026-04-29
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-read-harley-davidson-oil-dipstick&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Fuel and Exhaust
+heroImage: https://tse1.mm.bing.net/th?q=how-to-read-harley-davidson-oil-dipstick&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **If you ride a Harley Davidson, keeping your bike in top shape is probably one of your priorities. One of the simplest yet most important tasks you can do is checking your oil level regularly.**

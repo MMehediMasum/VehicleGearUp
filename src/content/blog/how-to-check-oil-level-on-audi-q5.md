@@ -1,10 +1,14 @@
 ---
-title: "How to Check Oil Level on Audi Q5: Quick & Easy Guide"
-description: "Keeping your Audi Q5 running smoothly starts with one simple habit: regularly checking your oil level. You might think it’s a small task, but it can save you fr"
+title: 'How to Check Oil Level on Audi Q5: Quick & Easy Guide'
+description: 'Keeping your Audi Q5 running smoothly starts with one simple habit:
+  regularly checking your oil level. You might think it’s a small task, but it can
+  save you fr'
 pubDate: 2026-04-26
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-check-oil-level-on-audi-q5&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Checking Oil Levels
+heroImage: https://tse1.mm.bing.net/th?q=how-to-check-oil-level-on-audi-q5&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Keeping your Audi Q5 running smoothly starts with one simple habit: regularly checking your oil level. You might think it’s a small task, but it can save you from costly repairs and keep your engine healthy.**

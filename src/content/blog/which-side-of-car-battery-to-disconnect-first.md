@@ -1,10 +1,14 @@
 ---
-title: "Which Side of Car Battery to Disconnect First: Expert Guide"
-description: "When it comes to car maintenance, knowing how to safely disconnect your car battery is crucial. But have you ever wondered which side of the battery you should "
+title: 'Which Side of Car Battery to Disconnect First: Expert Guide'
+description: 'When it comes to car maintenance, knowing how to safely disconnect your
+  car battery is crucial. But have you ever wondered which side of the battery you
+  should '
 pubDate: 2026-03-27
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=which-side-of-car-battery-to-disconnect-first&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Disconnect Order
+heroImage: https://tse1.mm.bing.net/th?q=which-side-of-car-battery-to-disconnect-first&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **When it comes to car maintenance, knowing how to safely disconnect your car battery is crucial. But have you ever wondered which side of the battery you should disconnect first?**

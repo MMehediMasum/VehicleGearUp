@@ -1,10 +1,14 @@
 ---
-title: "How to Adjust Steering Wheel Honda Civic: Quick & Easy Steps"
-description: "Are you struggling to find the perfect steering wheel position in your Honda Civic? A steering wheel that’s too high, too low, or too close can make driving unc"
+title: 'How to Adjust Steering Wheel Honda Civic: Quick & Easy Steps'
+description: Are you struggling to find the perfect steering wheel position in your
+  Honda Civic? A steering wheel that’s too high, too low, or too close can make driving
+  unc
 pubDate: 2026-01-18
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-adjust-steering-wheel-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Steering Wheel Problems and Covers
+heroImage: https://tse1.mm.bing.net/th?q=how-to-adjust-steering-wheel-honda-civic&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Are you struggling to find the perfect steering wheel position in your Honda Civic? A steering wheel that’s too high, too low, or too close can make driving uncomfortable and even unsafe.**

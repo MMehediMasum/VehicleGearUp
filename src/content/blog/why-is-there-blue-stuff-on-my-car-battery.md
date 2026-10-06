@@ -1,10 +1,14 @@
 ---
-title: "Why is There Blue Stuff on My Car Battery: Causes & Fixes"
-description: "Have you ever opened your car hood and noticed a strange blue substance around your battery? You might be wondering, \"Why is there blue stuff on my car battery?"
+title: 'Why is There Blue Stuff on My Car Battery: Causes & Fixes'
+description: Have you ever opened your car hood and noticed a strange blue substance
+  around your battery? You might be wondering, "Why is there blue stuff on my car
+  battery?
 pubDate: 2025-10-11
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-is-there-blue-stuff-on-my-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Terminal Care
+heroImage: https://tse1.mm.bing.net/th?q=why-is-there-blue-stuff-on-my-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever opened your car hood and noticed a strange blue substance around your battery? You might be wondering, "Why is there blue stuff on my car battery?"**

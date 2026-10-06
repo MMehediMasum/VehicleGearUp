@@ -1,10 +1,14 @@
 ---
-title: "Best Exhaust for Harley Davidson Touring: Top Slip-On Mufflers Reviewed"
-description: "Choosing the best exhaust for your Harley Davidson Touring bike enhances sound, performance, and style. The right slip-on mufflers and exhaust kits fit models l"
+title: 'Best Exhaust for Harley Davidson Touring: Top Slip-On Mufflers Reviewed'
+description: Choosing the best exhaust for your Harley Davidson Touring bike enhances
+  sound, performance, and style. The right slip-on mufflers and exhaust kits fit models
+  l
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-exhaust-for-harley-davidson-touring&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Fuel and Exhaust
+heroImage: https://tse1.mm.bing.net/th?q=best-exhaust-for-harley-davidson-touring&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best exhaust for your Harley Davidson Touring bike enhances sound, performance, and style. The right slip-on mufflers and exhaust kits fit models like Road King, Street Glide, and Electra Glide.**

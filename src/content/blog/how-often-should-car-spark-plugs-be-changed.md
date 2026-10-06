@@ -1,10 +1,14 @@
 ---
-title: "How Often Should Car Spark Plugs Be Changed: Expert Guide 2025"
-description: "Have you ever wondered how often you should change your car’s spark plugs? These small parts play a big role in keeping your engine running smoothly. If you ign"
+title: 'How Often Should Car Spark Plugs Be Changed: Expert Guide 2025'
+description: Have you ever wondered how often you should change your car’s spark plugs?
+  These small parts play a big role in keeping your engine running smoothly. If you
+  ign
 pubDate: 2026-02-18
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-often-should-car-spark-plugs-be-changed&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spark Plug Maintenance
+heroImage: https://tse1.mm.bing.net/th?q=how-often-should-car-spark-plugs-be-changed&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you ever wondered how often you should change your car’s spark plugs? These small parts play a big role in keeping your engine running smoothly.**

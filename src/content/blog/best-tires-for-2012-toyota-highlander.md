@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Toyota Highlander: Top All-Season Picks for Performance"
-description: "Choosing the best tires for your 2012 Toyota Highlander improves safety and ride comfort. Quality tires also boost fuel efficiency and handling. The 2012 Highla"
+title: 'Best Tires for Toyota Highlander: Top All-Season Picks for Performance'
+description: Choosing the best tires for your 2012 Toyota Highlander improves safety
+  and ride comfort. Quality tires also boost fuel efficiency and handling. The 2012
+  Highla
 pubDate: 2025-12-23
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-2012-toyota-highlander&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-2012-toyota-highlander&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your 2012 Toyota Highlander improves safety and ride comfort. Quality tires also boost fuel efficiency and handling.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Put Honda Odyssey in Neutral With Dead Battery: Quick Guide"
-description: "Have you ever found yourself stuck, needing to move your Honda Odyssey but the battery is dead? It can be frustrating when your minivan won’t start, and you nee"
+title: 'How to Put Honda Odyssey in Neutral With Dead Battery: Quick Guide'
+description: Have you ever found yourself stuck, needing to move your Honda Odyssey
+  but the battery is dead? It can be frustrating when your minivan won’t start, and
+  you nee
 pubDate: 2026-03-27
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-put-honda-odyssey-in-neutral-with-dead-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Neutral With Dead Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-put-honda-odyssey-in-neutral-with-dead-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever found yourself stuck, needing to move your Honda Odyssey but the battery is dead? It can be frustrating when your minivan won’t start, and you need to shift it into neutral.**

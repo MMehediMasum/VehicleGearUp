@@ -1,10 +1,14 @@
 ---
-title: "How to Keep Car Battery from Dying in Cold Weather: Essential Tips"
-description: "Cold weather can be tough on your car battery. When temperatures drop, your battery has to work harder to start your engine. If you’ve ever been left stranded b"
+title: 'How to Keep Car Battery from Dying in Cold Weather: Essential Tips'
+description: Cold weather can be tough on your car battery. When temperatures drop,
+  your battery has to work harder to start your engine. If you’ve ever been left stranded
+  b
 pubDate: 2026-04-09
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-keep-car-battery-from-dying-in-cold-weather&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Cold Weather Battery Drain
+heroImage: https://tse1.mm.bing.net/th?q=how-to-keep-car-battery-from-dying-in-cold-weather&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Cold weather can be tough on your car battery. When temperatures drop, your battery has to work harder to start your engine.**

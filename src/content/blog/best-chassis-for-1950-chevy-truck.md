@@ -1,10 +1,13 @@
 ---
-title: "Best Chassis for 1950 Chevy Truck: Top Durable and Compatible Options"
-description: "Choosing the best chassis for a 1950 Chevy truck ensures better performance and durability. The right chassis fits well and supports your truck’s classic style."
+title: 'Best Chassis for 1950 Chevy Truck: Top Durable and Compatible Options'
+description: Choosing the best chassis for a 1950 Chevy truck ensures better performance
+  and durability. The right chassis fits well and supports your truck’s classic style.
 pubDate: 2026-06-04
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-chassis-for-1950-chevy-truck&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Handy Car Gadgets
+heroImage: https://tse1.mm.bing.net/th?q=best-chassis-for-1950-chevy-truck&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best chassis for a 1950 Chevy truck ensures better performance and durability. The right chassis fits well and supports your truck’s classic style.**

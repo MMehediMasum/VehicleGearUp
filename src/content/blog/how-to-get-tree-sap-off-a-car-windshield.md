@@ -1,10 +1,14 @@
 ---
-title: "How to Get Tree Sap off a Car Windshield: Quick & Easy Tips"
-description: "Imagine this: you’re all set for a smooth drive when you notice sticky tree sap splattered across your car windshield. It’s not just ugly—it can block your view"
+title: 'How to Get Tree Sap off a Car Windshield: Quick & Easy Tips'
+description: 'Imagine this: you’re all set for a smooth drive when you notice sticky
+  tree sap splattered across your car windshield. It’s not just ugly—it can block
+  your view'
 pubDate: 2025-09-01
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-get-tree-sap-off-a-car-windshield&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Windshield Sap and Scratches
+heroImage: https://tse1.mm.bing.net/th?q=how-to-get-tree-sap-off-a-car-windshield&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Imagine this: you’re all set for a smooth drive when you notice sticky tree sap splattered across your car windshield. It’s not just ugly—it can block your view and even damage the glass if left too long.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Indian Scout Bobber for Ultimate Grip and Durability"
-description: "Choosing the best tires for your Indian Scout Bobber improves safety and riding comfort. The right tires offer better grip, stability, and durability on differe"
+title: Best Tires for Indian Scout Bobber for Ultimate Grip and Durability
+description: Choosing the best tires for your Indian Scout Bobber improves safety
+  and riding comfort. The right tires offer better grip, stability, and durability
+  on differe
 pubDate: 2025-12-31
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-indian-scout-bobber&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-indian-scout-bobber&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best tires for your Indian Scout Bobber improves safety and riding comfort. The right tires offer better grip, stability, and durability on different roads.**

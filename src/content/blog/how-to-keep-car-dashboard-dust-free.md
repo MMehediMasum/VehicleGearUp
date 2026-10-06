@@ -1,10 +1,14 @@
 ---
-title: "How to Keep Car Dashboard Dust Free: Easy Tips for a Spotless Ride"
-description: "Your car’s dashboard is more than just a control panel—it’s the heart of your driving experience. But dust buildup can quickly make it look dull and worn out. I"
+title: 'How to Keep Car Dashboard Dust Free: Easy Tips for a Spotless Ride'
+description: Your car’s dashboard is more than just a control panel—it’s the heart
+  of your driving experience. But dust buildup can quickly make it look dull and worn
+  out. I
 pubDate: 2026-02-20
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-keep-car-dashboard-dust-free&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Leather and Dashboard Care
+heroImage: https://tse1.mm.bing.net/th?q=how-to-keep-car-dashboard-dust-free&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Your car’s dashboard is more than just a control panel—it’s the heart of your driving experience. But dust buildup can quickly make it look dull and worn out.**

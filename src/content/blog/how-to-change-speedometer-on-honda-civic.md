@@ -1,10 +1,14 @@
 ---
-title: "How to Change Speedometer on Honda Civic: Easy Step-by-Step Guide"
-description: "Are you noticing issues with your Honda Civic’s speedometer? Maybe it’s not showing the right speed, or it has stopped working altogether. Changing the speedome"
+title: 'How to Change Speedometer on Honda Civic: Easy Step-by-Step Guide'
+description: Are you noticing issues with your Honda Civic’s speedometer? Maybe it’s
+  not showing the right speed, or it has stopped working altogether. Changing the
+  speedome
 pubDate: 2026-01-15
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-speedometer-on-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Features and Fixes
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-speedometer-on-honda-civic&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are you noticing issues with your Honda Civic’s speedometer? Maybe it’s not showing the right speed, or it has stopped working altogether.**

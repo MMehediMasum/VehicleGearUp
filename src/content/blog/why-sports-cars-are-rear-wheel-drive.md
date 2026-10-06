@@ -1,10 +1,14 @@
 ---
-title: "Why Sports Cars are Rear Wheel Drive: Ultimate Performance Explained"
-description: "Have you ever wondered why most sports cars have rear wheel drive? It’s not just about looks or tradition—there’s a real reason behind this design choice that a"
+title: 'Why Sports Cars are Rear Wheel Drive: Ultimate Performance Explained'
+description: Have you ever wondered why most sports cars have rear wheel drive? It’s
+  not just about looks or tradition—there’s a real reason behind this design choice
+  that a
 pubDate: 2025-10-21
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-sports-cars-are-rear-wheel-drive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota 4WD Questions
+heroImage: https://tse1.mm.bing.net/th?q=why-sports-cars-are-rear-wheel-drive&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Have you ever wondered why most sports cars have rear wheel drive? It’s not just about looks or tradition—there’s a real reason behind this design choice that affects how your car feels and performs on the road.**

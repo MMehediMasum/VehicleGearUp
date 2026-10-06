@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Light on 2008 Honda Civic: Quick & Easy Steps"
-description: "Your 2008 Honda Civic’s oil light just came on, and now you’re wondering what to do next. Ignoring that little warning could lead to bigger problems and costly "
+title: 'How to Reset Oil Light on 2008 Honda Civic: Quick & Easy Steps'
+description: 'Your 2008 Honda Civic’s oil light just came on, and now you’re wondering
+  what to do next. Ignoring that little warning could lead to bigger problems and
+  costly '
 pubDate: 2026-05-06
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-light-on-2008-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Oil Light Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-light-on-2008-honda-civic&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Your 2008 Honda Civic’s oil light just came on, and now you’re wondering what to do next. Ignoring that little warning could lead to bigger problems and costly repairs.**

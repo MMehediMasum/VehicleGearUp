@@ -1,10 +1,14 @@
 ---
-title: "Best Travel Car Seat for 18 Month Old: Top Safe & Portable Picks"
-description: "Choosing the best travel car seat for an 18-month-old ensures safety and comfort during trips. This guide covers top lightweight, portable, and easy-to-use car "
+title: 'Best Travel Car Seat for 18 Month Old: Top Safe & Portable Picks'
+description: 'Choosing the best travel car seat for an 18-month-old ensures safety
+  and comfort during trips. This guide covers top lightweight, portable, and easy-to-use
+  car '
 pubDate: 2026-07-28
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-travel-car-seat-for-18-month-old&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Seat Accessories
+heroImage: https://tse1.mm.bing.net/th?q=best-travel-car-seat-for-18-month-old&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best travel car seat for an 18-month-old ensures safety and comfort during trips. This guide covers top lightweight, portable, and easy-to-use car seats for toddlers.**

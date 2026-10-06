@@ -1,10 +1,14 @@
 ---
-title: "Why is My Car Locking And Unlocking on Its Own: Shocking Causes Revealed"
-description: "Have you noticed your car locking and unlocking by itself? It can be confusing and even a little scary. You might wonder if it’s a sign of a bigger problem or i"
+title: 'Why is My Car Locking And Unlocking on Its Own: Shocking Causes Revealed'
+description: Have you noticed your car locking and unlocking by itself? It can be
+  confusing and even a little scary. You might wonder if it’s a sign of a bigger problem
+  or i
 pubDate: 2026-03-08
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-is-my-car-locking-and-unlocking-on-its-own&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Lock Problems
+heroImage: https://tse1.mm.bing.net/th?q=why-is-my-car-locking-and-unlocking-on-its-own&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **Have you noticed your car locking and unlocking by itself? It can be confusing and even a little scary.**

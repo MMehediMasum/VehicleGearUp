@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Hyundai Santa Fe: Top All-Season Picks for Performance"
-description: "Choosing the best tires for your Hyundai Santa Fe improves safety and driving comfort. Quality tires enhance handling, fuel efficiency, and ride smoothness on a"
+title: 'Best Tires for Hyundai Santa Fe: Top All-Season Picks for Performance'
+description: Choosing the best tires for your Hyundai Santa Fe improves safety and
+  driving comfort. Quality tires enhance handling, fuel efficiency, and ride smoothness
+  on a
 pubDate: 2025-12-23
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-hyundai-santa-fe&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hyundai and Kia Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-hyundai-santa-fe&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your Hyundai Santa Fe improves safety and driving comfort. Quality tires enhance handling, fuel efficiency, and ride smoothness on any road.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Use Jeep Grand Cherokee Navigation System: Ultimate Guide"
-description: "Are you ready to make every drive smoother and stress-free? Your Jeep Grand Cherokee’s navigation system is designed to guide you with ease, but only if you kno"
+title: 'How to Use Jeep Grand Cherokee Navigation System: Ultimate Guide'
+description: Are you ready to make every drive smoother and stress-free? Your Jeep
+  Grand Cherokee’s navigation system is designed to guide you with ease, but only
+  if you kno
 pubDate: 2026-02-24
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-use-jeep-grand-cherokee-navigation-system&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jeep Grand Cherokee Resets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-use-jeep-grand-cherokee-navigation-system&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are you ready to make every drive smoother and stress-free? Your Jeep Grand Cherokee’s navigation system is designed to guide you with ease, but only if you know how to use it right.**

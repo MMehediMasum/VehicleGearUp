@@ -1,10 +1,14 @@
 ---
-title: "Where Can I Buy a Used Car Engine: Top Reliable Sources Revealed"
-description: "Are you searching for a reliable place to buy a used car engine? Finding the right engine can save you a lot of money and keep your vehicle running smoothly. Bu"
+title: 'Where Can I Buy a Used Car Engine: Top Reliable Sources Revealed'
+description: Are you searching for a reliable place to buy a used car engine? Finding
+  the right engine can save you a lot of money and keep your vehicle running smoothly.
+  Bu
 pubDate: 2026-05-16
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-buy-a-used-car-engine&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- How Car Engines Work
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-buy-a-used-car-engine&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Are you searching for a reliable place to buy a used car engine? Finding the right engine can save you a lot of money and keep your vehicle running smoothly.**

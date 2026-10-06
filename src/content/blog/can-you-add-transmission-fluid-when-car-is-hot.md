@@ -1,10 +1,14 @@
 ---
-title: "Can You Add Transmission Fluid When Car is Hot: Essential Tips"
-description: "Have you ever wondered if it’s safe to add transmission fluid when your car is hot? You might be facing a low fluid warning or noticing some shifting issues, an"
+title: 'Can You Add Transmission Fluid When Car is Hot: Essential Tips'
+description: Have you ever wondered if it’s safe to add transmission fluid when your
+  car is hot? You might be facing a low fluid warning or noticing some shifting issues,
+  an
 pubDate: 2026-05-15
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-add-transmission-fluid-when-car-is-hot&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Adding Transmission Fluid
+heroImage: https://tse1.mm.bing.net/th?q=can-you-add-transmission-fluid-when-car-is-hot&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever wondered if it’s safe to add transmission fluid when your car is hot? You might be facing a low fluid warning or noticing some shifting issues, and the idea of topping up right away seems urgent.**

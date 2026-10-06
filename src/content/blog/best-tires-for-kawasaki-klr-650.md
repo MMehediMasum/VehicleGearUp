@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Kawasaki KLR 650: Top Picks for Ultimate Adventure"
-description: "Choosing the best tires for your Kawasaki KLR 650 improves safety and performance. The right tires handle different roads and weather well. The Kawasaki KLR 650"
+title: 'Best Tires for Kawasaki KLR 650: Top Picks for Ultimate Adventure'
+description: Choosing the best tires for your Kawasaki KLR 650 improves safety and
+  performance. The right tires handle different roads and weather well. The Kawasaki
+  KLR 650
 pubDate: 2025-12-28
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-kawasaki-klr-650&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-kawasaki-klr-650&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best tires for your Kawasaki KLR 650 improves safety and performance. The right tires handle different roads and weather well.**

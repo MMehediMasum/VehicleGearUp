@@ -1,10 +1,13 @@
 ---
-title: "What Engines are Available in the Ford Bronco: Ultimate Power Options"
-description: "Are you curious about what powers the Ford Bronco? Whether you’re planning your next off-road adventure or just want a ride that matches your bold style, knowin"
+title: 'What Engines are Available in the Ford Bronco: Ultimate Power Options'
+description: Are you curious about what powers the Ford Bronco? Whether you’re planning
+  your next off-road adventure or just want a ride that matches your bold style, knowin
 pubDate: 2026-05-02
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-engines-are-available-in-the-ford-bronco&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Third Row and Mileage
+heroImage: https://tse1.mm.bing.net/th?q=what-engines-are-available-in-the-ford-bronco&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you curious about what powers the Ford Bronco? Whether you’re planning your next off-road adventure or just want a ride that matches your bold style, knowing the engine options is key.**

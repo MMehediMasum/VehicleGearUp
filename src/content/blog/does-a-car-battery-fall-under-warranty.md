@@ -1,10 +1,14 @@
 ---
-title: "Does a Car Battery Fall under Warranty: Essential Facts Revealed"
-description: "Have you ever wondered if your car battery is covered under warranty? If your car won’t start or the battery dies unexpectedly, you might be left wondering who’"
+title: 'Does a Car Battery Fall under Warranty: Essential Facts Revealed'
+description: Have you ever wondered if your car battery is covered under warranty?
+  If your car won’t start or the battery dies unexpectedly, you might be left wondering
+  who’
 pubDate: 2026-04-04
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-a-car-battery-fall-under-warranty&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Warranty and Storage
+heroImage: https://tse1.mm.bing.net/th?q=does-a-car-battery-fall-under-warranty&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if your car battery is covered under warranty? If your car won’t start or the battery dies unexpectedly, you might be left wondering who’s responsible for the repair or replacement costs.**

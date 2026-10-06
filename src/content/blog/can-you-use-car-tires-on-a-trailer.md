@@ -1,10 +1,14 @@
 ---
-title: "Can You Use Car Tires on a Trailer: Essential Tips & Risks Explained"
-description: "Are you wondering if you can use car tires on your trailer? It’s a question many trailer owners ask, especially when looking for a quick and affordable tire sol"
+title: 'Can You Use Car Tires on a Trailer: Essential Tips & Risks Explained'
+description: Are you wondering if you can use car tires on your trailer? It’s a question
+  many trailer owners ask, especially when looking for a quick and affordable tire
+  sol
 pubDate: 2025-09-13
-author: "herbertlangham"
-categories: ["Towing & Hauling"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-use-car-tires-on-a-trailer&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Trailer Gear and Accessories
+heroImage: https://tse1.mm.bing.net/th?q=can-you-use-car-tires-on-a-trailer&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Are you wondering if you can use car tires on your trailer? It’s a question many trailer owners ask, especially when looking for a quick and affordable tire solution.**

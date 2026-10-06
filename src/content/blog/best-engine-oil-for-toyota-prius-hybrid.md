@@ -1,10 +1,14 @@
 ---
-title: "Best Engine Oil for Toyota Prius Hybrid: Top Synthetic Picks Reviewed"
-description: "Choosing the best engine oil for your Toyota Prius Hybrid keeps the engine clean and running smoothly. Using the right oil helps improve fuel efficiency and pro"
+title: 'Best Engine Oil for Toyota Prius Hybrid: Top Synthetic Picks Reviewed'
+description: Choosing the best engine oil for your Toyota Prius Hybrid keeps the engine
+  clean and running smoothly. Using the right oil helps improve fuel efficiency and
+  pro
 pubDate: 2026-07-13
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-engine-oil-for-toyota-prius-hybrid&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- How Hybrids Work
+heroImage: https://tse1.mm.bing.net/th?q=best-engine-oil-for-toyota-prius-hybrid&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best engine oil for your Toyota Prius Hybrid keeps the engine clean and running smoothly. Using the right oil helps improve fuel efficiency and protects your vehicle’s hybrid system.**

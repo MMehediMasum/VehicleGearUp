@@ -1,10 +1,14 @@
 ---
-title: "Is 14 Volts Good for a Car Battery: Truths You Must Know"
-description: "Are you wondering if 14 volts is good for your car battery? Understanding the right voltage for your battery is crucial to keep your vehicle running smoothly an"
+title: 'Is 14 Volts Good for a Car Battery: Truths You Must Know'
+description: Are you wondering if 14 volts is good for your car battery? Understanding
+  the right voltage for your battery is crucial to keep your vehicle running smoothly
+  an
 pubDate: 2025-09-17
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-14-volts-good-for-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Types and Specs
+heroImage: https://tse1.mm.bing.net/th?q=is-14-volts-good-for-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you wondering if 14 volts is good for your car battery? Understanding the right voltage for your battery is crucial to keep your vehicle running smoothly and avoid unexpected breakdowns.**

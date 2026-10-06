@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Where is the Car Battery in Granny 1: Ultimate Location Guide"
 description: "Are you stuck wondering, “Where is the car battery in Granny 1?” You’re not alone. Finding the battery might seem tricky at first, but once you know where to lo"
 pubDate: 2025-09-08

@@ -1,10 +1,14 @@
 ---
-title: "Best Shocks for 1997 Chevy K1500: Top Picks for Ultimate Performance"
-description: "Choosing the best shocks for a 1997 Chevy K1500 improves ride comfort and vehicle control. Quality shock absorbers handle bumps and rough roads better. Shocks a"
+title: 'Best Shocks for 1997 Chevy K1500: Top Picks for Ultimate Performance'
+description: Choosing the best shocks for a 1997 Chevy K1500 improves ride comfort
+  and vehicle control. Quality shock absorbers handle bumps and rough roads better.
+  Shocks a
 pubDate: 2026-06-23
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-shocks-for-1997-chevy-k1500&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Silverado and Sierra Shocks
+heroImage: https://tse1.mm.bing.net/th?q=best-shocks-for-1997-chevy-k1500&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Choosing the best shocks for a 1997 Chevy K1500 improves ride comfort and vehicle control. Quality shock absorbers handle bumps and rough roads better.**

@@ -3,7 +3,7 @@
 
 Sets two separate frontmatter fields so the site stays niche-agnostic:
   - categories: [cluster_name]   -> the specific category (unchanged behaviour)
-  - topic: pet                   -> the broad top-level grouping used for the
+  - topic: main_topic                   -> the broad top-level grouping used for the
                                      Header dropdown / /topic/[topic].astro page
 
 Uses real YAML parsing (not regex) so it handles every frontmatter format
@@ -17,7 +17,7 @@ from urllib.parse import urlparse
 import openpyxl
 import yaml
 
-XLSX_PATH = "pet_keyword_clusters_v5.xlsx"
+XLSX_PATH = "keyword_clusters.xlsx"
 BLOG_DIR = Path("src/content/blog")
 LOG_PATH = Path("category_remap_log.json")
 
@@ -56,8 +56,8 @@ def main():
     parse_error = []
 
     for row in sheet.iter_rows(min_row=2, values_only=True):
-        # No. | Pet | Cluster Name | Topic Type | Keyword / Topic | Post URL
-        _, pet, cluster_name, _topic_type, _keyword, post_url = row
+        # No. | Main Topic | Cluster Name | Topic Type | Keyword / Topic | Post URL
+        _, main_topic, cluster_name, _topic_type, _keyword, post_url = row
         if not post_url:
             continue
 
@@ -83,7 +83,7 @@ def main():
             continue
 
         data["categories"] = [cluster_name]
-        data["topic"] = pet
+        data["topic"] = main_topic
 
         md_path.write_text(join_frontmatter(data, body), encoding="utf-8")
         updated += 1

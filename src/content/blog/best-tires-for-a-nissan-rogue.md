@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for a Nissan Rogue: Top All-Season SUV Tire Picks"
-description: "Choosing the best tires for a Nissan Rogue ensures safety and smooth driving on all roads. This guide covers top all-season tires that fit the Rogue perfectly. "
+title: 'Best Tires for a Nissan Rogue: Top All-Season SUV Tire Picks'
+description: 'Choosing the best tires for a Nissan Rogue ensures safety and smooth
+  driving on all roads. This guide covers top all-season tires that fit the Rogue
+  perfectly. '
 pubDate: 2026-01-01
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-a-nissan-rogue&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Mud Street and RV Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-a-nissan-rogue&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for a Nissan Rogue ensures safety and smooth driving on all roads. This guide covers top all-season tires that fit the Rogue perfectly.**

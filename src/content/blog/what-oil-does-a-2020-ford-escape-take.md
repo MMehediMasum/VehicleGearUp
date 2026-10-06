@@ -1,10 +1,14 @@
 ---
-title: "What Oil Does a 2020 Ford Escape Take: Expert Guide to Perfect Choice"
-description: "If you own a 2020 Ford Escape, knowing the right oil to use is crucial for keeping your engine running smoothly. Using the wrong oil can lead to costly repairs "
+title: 'What Oil Does a 2020 Ford Escape Take: Expert Guide to Perfect Choice'
+description: 'If you own a 2020 Ford Escape, knowing the right oil to use is crucial
+  for keeping your engine running smoothly. Using the wrong oil can lead to costly
+  repairs '
 pubDate: 2026-04-23
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-oil-does-a-2020-ford-escape-take&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- What Oil to Use
+heroImage: https://tse1.mm.bing.net/th?q=what-oil-does-a-2020-ford-escape-take&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a 2020 Ford Escape, knowing the right oil to use is crucial for keeping your engine running smoothly. Using the wrong oil can lead to costly repairs and reduce your car’s performance.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Tire Pressure Light Chevy Equinox: Easy Steps Guide"
-description: "Is your Chevy Equinox’s tire pressure light flashing and you’re not sure what to do next? Don’t worry—you’re not alone. That little warning can be confusing and"
+title: 'How to Reset Tire Pressure Light Chevy Equinox: Easy Steps Guide'
+description: Is your Chevy Equinox’s tire pressure light flashing and you’re not sure
+  what to do next? Don’t worry—you’re not alone. That little warning can be confusing
+  and
 pubDate: 2025-09-17
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-tire-pressure-light-chevy-equinox&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Tire Pressure Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-tire-pressure-light-chevy-equinox&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Is your Chevy Equinox’s tire pressure light flashing and you’re not sure what to do next? Don’t worry—you’re not alone.**

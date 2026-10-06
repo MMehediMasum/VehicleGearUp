@@ -1,10 +1,14 @@
 ---
-title: "How Tall is a 2025 Ford Transit: Exact Specs Revealed!"
-description: "Are you curious about the exact height of the 2024 Ford Transit? Whether you’re planning to park in tight garages, load it onto a ferry, or just want to know if"
+title: 'How Tall is a 2025 Ford Transit: Exact Specs Revealed!'
+description: Are you curious about the exact height of the 2024 Ford Transit? Whether
+  you’re planning to park in tight garages, load it onto a ferry, or just want to
+  know if
 pubDate: 2025-10-31
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-tall-is-a-2024-ford-transit&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Third Row and Mileage
+heroImage: https://tse1.mm.bing.net/th?q=how-tall-is-a-2024-ford-transit&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you curious about the exact height of the 2024 Ford Transit? Whether you’re planning to park in tight garages, load it onto a ferry, or just want to know if it fits under your home’s carport, knowing the precise measurements is key.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Lithium Battery Charger for Motorcycle: Top Smart Chargers Reviewed"
-description: "Choosing the best lithium battery charger for your motorcycle ensures reliable starts and long battery life. A good charger protects your battery and keeps it h"
+title: 'Best Lithium Battery Charger for Motorcycle: Top Smart Chargers Reviewed'
+description: Choosing the best lithium battery charger for your motorcycle ensures
+  reliable starts and long battery life. A good charger protects your battery and
+  keeps it h
 pubDate: 2025-11-08
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lithium-battery-charger-for-motorcycle&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Batteries and Brakes
+heroImage: https://tse1.mm.bing.net/th?q=best-lithium-battery-charger-for-motorcycle&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best lithium battery charger for your motorcycle ensures reliable starts and long battery life. A good charger protects your battery and keeps it healthy during storage.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Toyota 4Runner Limited: Top Durable and Reliable Picks"
-description: "Choosing the best tires for your Toyota 4Runner Limited ensures safety and performance on every drive. Quality tires improve handling, comfort, and durability o"
+title: 'Best Tires for Toyota 4Runner Limited: Top Durable and Reliable Picks'
+description: Choosing the best tires for your Toyota 4Runner Limited ensures safety
+  and performance on every drive. Quality tires improve handling, comfort, and durability
+  o
 pubDate: 2026-01-02
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-toyota-4runner-limited&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Trim Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-toyota-4runner-limited&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your Toyota 4Runner Limited ensures safety and performance on every drive. Quality tires improve handling, comfort, and durability on all road types.**

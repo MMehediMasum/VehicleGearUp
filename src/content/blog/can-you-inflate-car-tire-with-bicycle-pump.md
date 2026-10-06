@@ -1,10 +1,14 @@
 ---
-title: "Can You Inflate Car Tire With Bicycle Pump: Essential Tips Revealed"
-description: "Have you ever faced a flat car tire and wondered if your bicycle pump could save the day? It’s a question many of us ask when stranded or in a pinch. You might "
+title: 'Can You Inflate Car Tire With Bicycle Pump: Essential Tips Revealed'
+description: 'Have you ever faced a flat car tire and wondered if your bicycle pump
+  could save the day? It’s a question many of us ask when stranded or in a pinch.
+  You might '
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-inflate-car-tire-with-bicycle-pump&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Checking Tire Pressure
+heroImage: https://tse1.mm.bing.net/th?q=can-you-inflate-car-tire-with-bicycle-pump&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Have you ever faced a flat car tire and wondered if your bicycle pump could save the day? It’s a question many of us ask when stranded or in a pinch.**

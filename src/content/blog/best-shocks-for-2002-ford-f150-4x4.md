@@ -1,10 +1,14 @@
 ---
-title: "Best Shocks for 2002 Ford F150 4X4: Top Durable Suspension Upgrades"
-description: "Choosing the best shocks for your 2002 Ford F150 4X4 improves ride comfort and vehicle control. Quality shocks help handle rough roads and heavy loads better. T"
+title: 'Best Shocks for 2002 Ford F150 4X4: Top Durable Suspension Upgrades'
+description: Choosing the best shocks for your 2002 Ford F150 4X4 improves ride comfort
+  and vehicle control. Quality shocks help handle rough roads and heavy loads better.
+  T
 pubDate: 2026-06-29
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-shocks-for-2002-ford-f150-4x4&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Silverado and Sierra Shocks
+heroImage: https://tse1.mm.bing.net/th?q=best-shocks-for-2002-ford-f150-4x4&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Choosing the best shocks for your 2002 Ford F150 4X4 improves ride comfort and vehicle control. Quality shocks help handle rough roads and heavy loads better.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Program Ford F150 Key Fob: Quick & Easy Steps"
-description: "Losing or replacing your Ford F150 key fob can feel frustrating, especially when you realize it won’t work right away. But what if you could program your key fo"
+title: 'How to Program Ford F150 Key Fob: Quick & Easy Steps'
+description: Losing or replacing your Ford F150 key fob can feel frustrating, especially
+  when you realize it won’t work right away. But what if you could program your key
+  fo
 pubDate: 2026-01-17
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-program-ford-f150-key-fob&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Programming Key Fobs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-program-ford-f150-key-fob&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **Losing or replacing your Ford F150 key fob can feel frustrating, especially when you realize it won’t work right away. But what if you could program your key fob yourself, saving time and money?**

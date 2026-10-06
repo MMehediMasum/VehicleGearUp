@@ -1,10 +1,14 @@
 ---
-title: "Best Truck Bed Cover for Tundra: Top Durable and Stylish Picks"
-description: "Finding the best truck bed cover for your Tundra protects cargo and improves truck appearance. Choose the right cover for your model and bed size. A good truck "
+title: 'Best Truck Bed Cover for Tundra: Top Durable and Stylish Picks'
+description: 'Finding the best truck bed cover for your Tundra protects cargo and
+  improves truck appearance. Choose the right cover for your model and bed size. A
+  good truck '
 pubDate: 2026-07-20
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-truck-bed-cover-for-tundra&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Truck Bed Gear
+heroImage: https://tse1.mm.bing.net/th?q=best-truck-bed-cover-for-tundra&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Finding the best truck bed cover for your Tundra protects cargo and improves truck appearance. Choose the right cover for your model and bed size.**

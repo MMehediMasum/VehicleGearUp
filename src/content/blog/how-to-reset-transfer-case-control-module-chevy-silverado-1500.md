@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Transfer Case Control Module Chevy Silverado 1500: Quick Guide"
-description: "If you drive a Chevy Silverado 1500, you know how important the transfer case control module is for smooth 4WD operation. But what do you do when it starts acti"
+title: 'How to Reset Transfer Case Control Module Chevy Silverado 1500: Quick Guide'
+description: If you drive a Chevy Silverado 1500, you know how important the transfer
+  case control module is for smooth 4WD operation. But what do you do when it starts
+  acti
 pubDate: 2026-02-08
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-transfer-case-control-module-chevy-silverado-1500&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Chevy Valves and Module Resets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-transfer-case-control-module-chevy-silverado-1500&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If you drive a Chevy Silverado 1500, you know how important the transfer case control module is for smooth 4WD operation. But what do you do when it starts acting up?**

@@ -1,10 +1,13 @@
 ---
-title: "Best Bike Rack for Tesla Model Y: Top Picks for Secure Transport"
-description: "Finding the best bike rack for your Tesla Model Y can save time and protect your bikes. Choosing the right rack ensures safe transport and easy use. Tesla Model"
+title: 'Best Bike Rack for Tesla Model Y: Top Picks for Secure Transport'
+description: Finding the best bike rack for your Tesla Model Y can save time and protect
+  your bikes. Choosing the right rack ensures safe transport and easy use. Tesla Model
 pubDate: 2025-11-12
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-bike-rack-for-tesla-model-y&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Tires and Accessories
+heroImage: https://tse1.mm.bing.net/th?q=best-bike-rack-for-tesla-model-y&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Finding the best bike rack for your Tesla Model Y can save time and protect your bikes. Choosing the right rack ensures safe transport and easy use.**

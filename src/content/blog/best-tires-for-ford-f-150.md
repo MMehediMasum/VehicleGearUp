@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Ford F 150: Top Accessories to Boost Performance"
-description: "Choosing the best tires for your Ford F-150 improves safety, performance, and comfort. The right tires handle different roads and weather with ease. Ford F-150 "
+title: 'Best Tires for Ford F 150: Top Accessories to Boost Performance'
+description: 'Choosing the best tires for your Ford F-150 improves safety, performance,
+  and comfort. The right tires handle different roads and weather with ease. Ford
+  F-150 '
 pubDate: 2025-12-24
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-ford-f-150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Car and Truck Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-ford-f-150&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your Ford F-150 improves safety, performance, and comfort. The right tires handle different roads and weather with ease.**

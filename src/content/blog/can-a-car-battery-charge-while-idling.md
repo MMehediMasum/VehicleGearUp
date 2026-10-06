@@ -1,10 +1,14 @@
 ---
-title: "Can a Car Battery Charge While Idling: Truths You Must Know"
-description: "Have you ever wondered if your car battery can charge while your engine is just idling? Maybe you’re stuck in traffic or waiting for someone, and you’re curious"
+title: 'Can a Car Battery Charge While Idling: Truths You Must Know'
+description: Have you ever wondered if your car battery can charge while your engine
+  is just idling? Maybe you’re stuck in traffic or waiting for someone, and you’re
+  curious
 pubDate: 2026-04-12
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-a-car-battery-charge-while-idling&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Charging While Idling
+heroImage: https://tse1.mm.bing.net/th?q=can-a-car-battery-charge-while-idling&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if your car battery can charge while your engine is just idling? Maybe you’re stuck in traffic or waiting for someone, and you’re curious if your battery is getting any boost during that time.**

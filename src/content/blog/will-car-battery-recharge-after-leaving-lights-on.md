@@ -1,10 +1,14 @@
 ---
-title: "Will Car Battery Recharge After Leaving Lights on? Expert Tips"
-description: "Have you ever left your car lights on and worried if your battery will bounce back? It’s a common mistake that can leave you feeling stuck and frustrated. But h"
+title: Will Car Battery Recharge After Leaving Lights on? Expert Tips
+description: Have you ever left your car lights on and worried if your battery will
+  bounce back? It’s a common mistake that can leave you feeling stuck and frustrated.
+  But h
 pubDate: 2026-04-05
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=will-car-battery-recharge-after-leaving-lights-on&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Charging While Idling
+heroImage: https://tse1.mm.bing.net/th?q=will-car-battery-recharge-after-leaving-lights-on&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever left your car lights on and worried if your battery will bounce back? It’s a common mistake that can leave you feeling stuck and frustrated.**

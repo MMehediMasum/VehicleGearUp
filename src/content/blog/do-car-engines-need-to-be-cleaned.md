@@ -1,10 +1,14 @@
 ---
-title: "Do Car Engines Need to Be Cleaned: Essential Tips for Longevity"
-description: "Have you ever wondered if your car’s engine needs a good cleaning? You might think it’s only about looks, but keeping your engine clean can actually protect you"
+title: 'Do Car Engines Need to Be Cleaned: Essential Tips for Longevity'
+description: Have you ever wondered if your car’s engine needs a good cleaning? You
+  might think it’s only about looks, but keeping your engine clean can actually protect
+  you
 pubDate: 2026-05-18
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-car-engines-need-to-be-cleaned&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Engine Noise and Heat
+heroImage: https://tse1.mm.bing.net/th?q=do-car-engines-need-to-be-cleaned&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you ever wondered if your car’s engine needs a good cleaning? You might think it’s only about looks, but keeping your engine clean can actually protect your investment and improve how your car runs.**

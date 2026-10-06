@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Steering Wheel for Farming Simulator 22: Top Picks for Ultimate Control"
 description: "Choosing the best steering wheel boosts your Farming Simulator 22 experience. It makes driving tractors and machines feel real and fun. Farming Simulator 22 nee"
 pubDate: 2026-01-05

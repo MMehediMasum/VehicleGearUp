@@ -1,10 +1,14 @@
 ---
-title: "Does a 2012 Ford Focus Have U Joints? Essential Facts Revealed"
-description: "Are you wondering if your 2012 Ford Focus has U joints? Knowing this can save you time and money on repairs. U joints play a key role in how your car’s drivetra"
+title: Does a 2012 Ford Focus Have U Joints? Essential Facts Revealed
+description: Are you wondering if your 2012 Ford Focus has U joints? Knowing this
+  can save you time and money on repairs. U joints play a key role in how your car’s
+  drivetra
 pubDate: 2025-12-11
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-a-2012-ford-focus-have-u-joints&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Model Questions
+heroImage: https://tse1.mm.bing.net/th?q=does-a-2012-ford-focus-have-u-joints&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you wondering if your 2012 Ford Focus has U joints? Knowing this can save you time and money on repairs.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Heated Vest for Motorcycle Riding: Stay Warm and Safe on Every Ride"
-description: "Choosing the best heated vest for motorcycle riding keeps you warm and comfortable on cold days. A good vest offers warmth, safety, and convenience while you ri"
+title: 'Best Heated Vest for Motorcycle Riding: Stay Warm and Safe on Every Ride'
+description: Choosing the best heated vest for motorcycle riding keeps you warm and
+  comfortable on cold days. A good vest offers warmth, safety, and convenience while
+  you ri
 pubDate: 2026-01-14
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-heated-vest-for-motorcycle-riding&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Riding Accessories
+heroImage: https://tse1.mm.bing.net/th?q=best-heated-vest-for-motorcycle-riding&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best heated vest for motorcycle riding keeps you warm and comfortable on cold days. A good vest offers warmth, safety, and convenience while you ride.**

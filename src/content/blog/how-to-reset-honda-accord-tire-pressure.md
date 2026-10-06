@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Honda Accord Tire Pressure: Quick & Easy Guide"
-description: "If your Honda Accord’s tire pressure warning light just came on, you might feel a bit frustrated or unsure about what to do next. The good news is that resettin"
+title: 'How to Reset Honda Accord Tire Pressure: Quick & Easy Guide'
+description: If your Honda Accord’s tire pressure warning light just came on, you
+  might feel a bit frustrated or unsure about what to do next. The good news is that
+  resettin
 pubDate: 2026-01-21
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-honda-accord-tire-pressure&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Checking Tire Pressure
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-honda-accord-tire-pressure&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **If your Honda Accord’s tire pressure warning light just came on, you might feel a bit frustrated or unsure about what to do next. The good news is that resetting your tire pressure is easier than you think—and it’s something you can do yourself in just a few simple steps.**

@@ -1,10 +1,14 @@
 ---
-title: "Are Car Batteries Ac Or Dc Current: Ultimate Power Explained"
-description: "Have you ever wondered whether your car battery uses AC or DC current? Understanding this simple fact can save you time, money, and even prevent damage to your "
+title: 'Are Car Batteries Ac Or Dc Current: Ultimate Power Explained'
+description: 'Have you ever wondered whether your car battery uses AC or DC current?
+  Understanding this simple fact can save you time, money, and even prevent damage
+  to your '
 pubDate: 2025-10-01
-author: "herbertlangham"
-categories: ["Car Buying & Ownership"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-car-batteries-ac-or-dc-current&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Types and Specs
+heroImage: https://tse1.mm.bing.net/th?q=are-car-batteries-ac-or-dc-current&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered whether your car battery uses AC or DC current? Understanding this simple fact can save you time, money, and even prevent damage to your vehicle.**

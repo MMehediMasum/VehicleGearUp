@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How Do You Say Car Horn in Spanish: Essential Vocabulary Guide"
 description: "Have you ever been in a situation where you needed to ask for directions or talk about traffic, but didn’t know the right word in Spanish? Knowing how to say ev"
 pubDate: 2025-09-13

@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for 6.4 Hemi Charger to Boost Performance Fast"
-description: "Choosing the best cold air intake for your 6.4 Hemi Charger can boost engine power and improve airflow. A quality intake system helps your engine breathe better"
+title: Best Cold Air Intake for 6.4 Hemi Charger to Boost Performance Fast
+description: Choosing the best cold air intake for your 6.4 Hemi Charger can boost
+  engine power and improve airflow. A quality intake system helps your engine breathe
+  better
 pubDate: 2026-07-09
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-64-hemi-charger&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hemi Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-64-hemi-charger&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best cold air intake for your 6.4 Hemi Charger can boost engine power and improve airflow. A quality intake system helps your engine breathe better and run smoother.**

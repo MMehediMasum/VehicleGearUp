@@ -1,10 +1,14 @@
 ---
-title: "What is the Top Rated Car Battery: Ultimate Guide to Best Picks"
-description: "Are you tired of your car battery dying when you least expect it? Choosing the right battery can save you from unexpected breakdowns and costly repairs. But wit"
+title: 'What is the Top Rated Car Battery: Ultimate Guide to Best Picks'
+description: Are you tired of your car battery dying when you least expect it? Choosing
+  the right battery can save you from unexpected breakdowns and costly repairs. But
+  wit
 pubDate: 2026-04-09
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-top-rated-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Price and Installation
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-top-rated-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you tired of your car battery dying when you least expect it? Choosing the right battery can save you from unexpected breakdowns and costly repairs.**

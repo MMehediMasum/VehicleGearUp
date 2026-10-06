@@ -1,10 +1,13 @@
 ---
-title: "Best Tires for Scat Pack Charger: Top Picks for Ultimate Performance"
-description: "Choosing the best tires for your Scat Pack Charger improves safety, handling, and performance. The right set matches your driving style and road conditions perf"
+title: 'Best Tires for Scat Pack Charger: Top Picks for Ultimate Performance'
+description: Choosing the best tires for your Scat Pack Charger improves safety, handling,
+  and performance. The right set matches your driving style and road conditions perf
 pubDate: 2026-07-10
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-scat-pack-charger&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ram and Dodge Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-scat-pack-charger&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your Scat Pack Charger improves safety, handling, and performance. The right set matches your driving style and road conditions perfectly.**

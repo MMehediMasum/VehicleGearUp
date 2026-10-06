@@ -1,10 +1,14 @@
 ---
-title: "How to Program a New Car Key Fob: Quick & Easy Steps Revealed"
-description: "Losing or replacing your car key fob can feel stressful, but programming a new one is easier than you might think. Imagine getting back control of your car with"
+title: 'How to Program a New Car Key Fob: Quick & Easy Steps Revealed'
+description: Losing or replacing your car key fob can feel stressful, but programming
+  a new one is easier than you might think. Imagine getting back control of your car
+  with
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-program-a-new-car-key-fob&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Key Fob Problems
+heroImage: https://tse1.mm.bing.net/th?q=how-to-program-a-new-car-key-fob&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **Losing or replacing your car key fob can feel stressful, but programming a new one is easier than you might think. Imagine getting back control of your car without waiting for a costly dealer visit.**

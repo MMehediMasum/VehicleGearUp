@@ -1,10 +1,14 @@
 ---
-title: "Best Winter Tires for Tesla Model Y: Top Picks for Ultimate Traction"
-description: "Choosing the best winter tires for your Tesla Model Y ensures safe and smooth driving on icy roads. Proper tires improve traction, control, and overall vehicle "
+title: 'Best Winter Tires for Tesla Model Y: Top Picks for Ultimate Traction'
+description: 'Choosing the best winter tires for your Tesla Model Y ensures safe and
+  smooth driving on icy roads. Proper tires improve traction, control, and overall
+  vehicle '
 pubDate: 2025-09-27
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-winter-tires-for-tesla-model-y&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Tires and Accessories
+heroImage: https://tse1.mm.bing.net/th?q=best-winter-tires-for-tesla-model-y&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best winter tires for your Tesla Model Y ensures safe and smooth driving on icy roads. Proper tires improve traction, control, and overall vehicle performance in cold weather.**

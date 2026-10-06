@@ -1,10 +1,14 @@
 ---
-title: "How to Replace a Passenger Side Window of Audi Q5: Easy Step-by-Step Guide"
-description: "Has your Audi Q5’s passenger side window cracked or stopped working? Fixing it yourself might sound tricky, but it’s easier than you think. You don’t need to sp"
+title: 'How to Replace a Passenger Side Window of Audi Q5: Easy Step-by-Step Guide'
+description: Has your Audi Q5’s passenger side window cracked or stopped working?
+  Fixing it yourself might sound tricky, but it’s easier than you think. You don’t
+  need to sp
 pubDate: 2026-05-02
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-replace-a-passenger-side-window-of-audi-q5&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Windshield and Mirror Repair
+heroImage: https://tse1.mm.bing.net/th?q=how-to-replace-a-passenger-side-window-of-audi-q5&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Has your Audi Q5’s passenger side window cracked or stopped working? Fixing it yourself might sound tricky, but it’s easier than you think.**

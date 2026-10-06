@@ -1,10 +1,14 @@
 ---
-title: "How to Replace Wiper Blades Toyota Camry: Easy Step-by-Step Guide"
-description: "Are your Toyota Camry’s wiper blades streaking or skipping? Replacing them yourself is easier than you think—and it can make a huge difference in your driving s"
+title: 'How to Replace Wiper Blades Toyota Camry: Easy Step-by-Step Guide'
+description: Are your Toyota Camry’s wiper blades streaking or skipping? Replacing
+  them yourself is easier than you think—and it can make a huge difference in your
+  driving s
 pubDate: 2026-05-02
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-replace-wiper-blades-toyota-camry&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Best Wiper Blades
+heroImage: https://tse1.mm.bing.net/th?q=how-to-replace-wiper-blades-toyota-camry&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Are your Toyota Camry’s wiper blades streaking or skipping? Replacing them yourself is easier than you think—and it can make a huge difference in your driving safety and visibility.**

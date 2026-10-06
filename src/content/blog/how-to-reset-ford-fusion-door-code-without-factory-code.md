@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Ford Fusion Door Code Without Factory Code: Easy Guide"
-description: "Have you ever been locked out of your Ford Fusion because you forgot the door code and don’t have the factory code? It’s frustrating, and you might feel stuck. "
+title: 'How to Reset Ford Fusion Door Code Without Factory Code: Easy Guide'
+description: 'Have you ever been locked out of your Ford Fusion because you forgot
+  the door code and don’t have the factory code? It’s frustrating, and you might feel
+  stuck. '
 pubDate: 2026-01-29
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-ford-fusion-door-code-without-factory-code&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Door Codes and Lock Lube
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-ford-fusion-door-code-without-factory-code&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **Have you ever been locked out of your Ford Fusion because you forgot the door code and don’t have the factory code? It’s frustrating, and you might feel stuck.**

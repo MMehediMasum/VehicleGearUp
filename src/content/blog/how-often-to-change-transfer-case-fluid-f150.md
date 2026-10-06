@@ -1,10 +1,14 @@
 ---
-title: "How Often to Change Transfer Case Fluid F150: Essential Guide"
-description: "If you drive an F150, you know how important it is to keep every part of your truck running smoothly. One part that often gets overlooked is the transfer case f"
+title: 'How Often to Change Transfer Case Fluid F150: Essential Guide'
+description: If you drive an F150, you know how important it is to keep every part
+  of your truck running smoothly. One part that often gets overlooked is the transfer
+  case f
 pubDate: 2026-04-30
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-often-to-change-transfer-case-fluid-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford F150 Resets and Fixes
+heroImage: https://tse1.mm.bing.net/th?q=how-often-to-change-transfer-case-fluid-f150&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If you drive an F150, you know how important it is to keep every part of your truck running smoothly. One part that often gets overlooked is the transfer case fluid.**

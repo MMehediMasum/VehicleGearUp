@@ -1,10 +1,14 @@
 ---
-title: "Why is My Honda Accord Making a Whining Noise: Top Causes Explained"
-description: "Is your Honda Accord making a strange whining noise that you just can’t ignore? That annoying sound might be trying to tell you something important about your c"
+title: 'Why is My Honda Accord Making a Whining Noise: Top Causes Explained'
+description: Is your Honda Accord making a strange whining noise that you just can’t
+  ignore? That annoying sound might be trying to tell you something important about
+  your c
 pubDate: 2026-03-15
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-is-my-honda-accord-making-a-whining-noise&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Dashboard Lights and Noises
+heroImage: https://tse1.mm.bing.net/th?q=why-is-my-honda-accord-making-a-whining-noise&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your Honda Accord making a strange whining noise that you just can’t ignore? That annoying sound might be trying to tell you something important about your car’s health.**

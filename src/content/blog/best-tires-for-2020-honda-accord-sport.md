@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Honda Accord Sport: Top All-Season and Performance Picks"
-description: "Choosing the best tires for your 2020 Honda Accord Sport improves safety and driving comfort. The right tires match your car’s size, speed rating, and season ne"
+title: 'Best Tires for Honda Accord Sport: Top All-Season and Performance Picks'
+description: Choosing the best tires for your 2020 Honda Accord Sport improves safety
+  and driving comfort. The right tires match your car’s size, speed rating, and season
+  ne
 pubDate: 2026-01-10
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-2020-honda-accord-sport&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Sport Model Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-2020-honda-accord-sport&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your 2020 Honda Accord Sport improves safety and driving comfort. The right tires match your car’s size, speed rating, and season needs.**

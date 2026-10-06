@@ -1,10 +1,14 @@
 ---
-title: "Can You Pressure Wash a Car Engine: Essential Tips & Safety Guide"
-description: "Have you ever wondered if you can pressure wash your car engine safely? Your engine works hard every day, and keeping it clean can help it run better and last l"
+title: 'Can You Pressure Wash a Car Engine: Essential Tips & Safety Guide'
+description: Have you ever wondered if you can pressure wash your car engine safely?
+  Your engine works hard every day, and keeping it clean can help it run better and
+  last l
 pubDate: 2026-05-18
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-pressure-wash-a-car-engine&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- How Car Engines Work
+heroImage: https://tse1.mm.bing.net/th?q=can-you-pressure-wash-a-car-engine&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you ever wondered if you can pressure wash your car engine safely? Your engine works hard every day, and keeping it clean can help it run better and last longer.**

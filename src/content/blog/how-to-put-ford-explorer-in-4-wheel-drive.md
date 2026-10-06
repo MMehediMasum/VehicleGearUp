@@ -1,10 +1,14 @@
 ---
-title: "How to Put Ford Explorer in 4 Wheel Drive: Easy Step-by-Step Guide"
-description: "Are you ready to take your Ford Explorer off the beaten path? Knowing how to put your Ford Explorer in 4 wheel drive can make all the difference when you face r"
+title: 'How to Put Ford Explorer in 4 Wheel Drive: Easy Step-by-Step Guide'
+description: Are you ready to take your Ford Explorer off the beaten path? Knowing
+  how to put your Ford Explorer in 4 wheel drive can make all the difference when
+  you face r
 pubDate: 2026-01-19
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-put-ford-explorer-in-4-wheel-drive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford 4WD Questions
+heroImage: https://tse1.mm.bing.net/th?q=how-to-put-ford-explorer-in-4-wheel-drive&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you ready to take your Ford Explorer off the beaten path? Knowing how to put your Ford Explorer in 4 wheel drive can make all the difference when you face rough roads, slippery conditions, or tough terrain.**

@@ -1,10 +1,14 @@
 ---
-title: "How to View Live Camera on Tesla Model Y: Easy Step-by-Step Guide"
-description: "Have you ever wished you could check what’s happening around your Tesla Model Y without stepping outside? Imagine having a clear, real-time view of your car’s s"
+title: 'How to View Live Camera on Tesla Model Y: Easy Step-by-Step Guide'
+description: Have you ever wished you could check what’s happening around your Tesla
+  Model Y without stepping outside? Imagine having a clear, real-time view of your
+  car’s s
 pubDate: 2025-12-20
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-view-live-camera-on-tesla-model-y&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Model Y Features
+heroImage: https://tse1.mm.bing.net/th?q=how-to-view-live-camera-on-tesla-model-y&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Have you ever wished you could check what’s happening around your Tesla Model Y without stepping outside? Imagine having a clear, real-time view of your car’s surroundings right on your phone or screen.**

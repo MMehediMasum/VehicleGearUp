@@ -1,10 +1,15 @@
 ---
-title: "How to Replace Valve Cover Gasket on 2013 Honda Accord: Easy Step-by-Step Guide"
-description: "If you’ve noticed oil leaks or a burning smell coming from your 2013 Honda Accord, the valve cover gasket might be the problem. Replacing this gasket isn’t as h"
+title: 'How to Replace Valve Cover Gasket on 2013 Honda Accord: Easy Step-by-Step
+  Guide'
+description: If you’ve noticed oil leaks or a burning smell coming from your 2013
+  Honda Accord, the valve cover gasket might be the problem. Replacing this gasket
+  isn’t as h
 pubDate: 2025-11-02
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-replace-valve-cover-gasket-on-2013-honda-accord&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Features and Fixes
+heroImage: https://tse1.mm.bing.net/th?q=how-to-replace-valve-cover-gasket-on-2013-honda-accord&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If you’ve noticed oil leaks or a burning smell coming from your 2013 Honda Accord, the valve cover gasket might be the problem. Replacing this gasket isn’t as hard as it sounds, and doing it yourself can save you time and money.**

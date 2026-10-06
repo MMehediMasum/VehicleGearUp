@@ -1,10 +1,14 @@
 ---
-title: "How to Change Battery on Lexus Rx350 Key: Easy Step-by-Step Guide"
-description: "Is your Lexus RX350 key fob acting up or not working like it used to? The problem might be a dead battery, and replacing it yourself can save you time and money"
+title: 'How to Change Battery on Lexus Rx350 Key: Easy Step-by-Step Guide'
+description: Is your Lexus RX350 key fob acting up or not working like it used to?
+  The problem might be a dead battery, and replacing it yourself can save you time
+  and money
 pubDate: 2026-04-01
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-battery-on-lexus-rx350-key&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Key Fob Battery Replacement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-battery-on-lexus-rx350-key&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **Is your Lexus RX350 key fob acting up or not working like it used to? The problem might be a dead battery, and replacing it yourself can save you time and money.**

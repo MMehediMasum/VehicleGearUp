@@ -1,10 +1,14 @@
 ---
-title: "Where Can I Buy a Portable Car Heater: Top Trusted Shops Revealed"
-description: "Are you tired of shivering in your car during cold mornings or long winter drives? Finding the right portable car heater can make a huge difference in your comf"
+title: 'Where Can I Buy a Portable Car Heater: Top Trusted Shops Revealed'
+description: Are you tired of shivering in your car during cold mornings or long winter
+  drives? Finding the right portable car heater can make a huge difference in your
+  comf
 pubDate: 2025-09-19
-author: "herbertlangham"
-categories: ["Car Buying & Ownership"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-buy-a-portable-car-heater&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Heater Not Working
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-buy-a-portable-car-heater&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Are you tired of shivering in your car during cold mornings or long winter drives? Finding the right portable car heater can make a huge difference in your comfort and safety on the road.**

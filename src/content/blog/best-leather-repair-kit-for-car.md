@@ -1,10 +1,14 @@
 ---
-title: "Best Leather Repair Kit for Car Seats, Interiors, and More"
-description: "Finding the best leather repair kit for your car can save you money and extend your seat’s life. A good kit fixes tears, scratches, and peeling quickly and easi"
+title: Best Leather Repair Kit for Car Seats, Interiors, and More
+description: Finding the best leather repair kit for your car can save you money and
+  extend your seat’s life. A good kit fixes tears, scratches, and peeling quickly
+  and easi
 pubDate: 2026-07-15
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-leather-repair-kit-for-car&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Leather and Dashboard Care
+heroImage: https://tse1.mm.bing.net/th?q=best-leather-repair-kit-for-car&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Finding the best leather repair kit for your car can save you money and extend your seat’s life. A good kit fixes tears, scratches, and peeling quickly and easily.**

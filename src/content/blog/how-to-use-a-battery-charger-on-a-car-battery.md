@@ -1,10 +1,13 @@
 ---
-title: "How to Use a Battery Charger on a Car Battery: Quick & Easy Guide"
-description: "Is your car battery dead or just acting weak? Knowing how to use a battery charger on your car battery can save you time, money, and frustration. Imagine being "
+title: 'How to Use a Battery Charger on a Car Battery: Quick & Easy Guide'
+description: 'Is your car battery dead or just acting weak? Knowing how to use a battery
+  charger on your car battery can save you time, money, and frustration. Imagine being '
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-use-a-battery-charger-on-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Using Battery Chargers
+heroImage: https://tse1.mm.bing.net/th?q=how-to-use-a-battery-charger-on-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your car battery dead or just acting weak? Knowing how to use a battery charger on your car battery can save you time, money, and frustration.**

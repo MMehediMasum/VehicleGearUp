@@ -1,10 +1,14 @@
 ---
-title: "Best Touch Up Paint for Car Chips: Quick, Easy, and Color Accurate Solutions"
-description: "Car chips spoil a vehicle’s look and can cause rust if left untreated. Choosing the best touch up paint helps fix these chips quickly and easily. Minor scratche"
+title: 'Best Touch Up Paint for Car Chips: Quick, Easy, and Color Accurate Solutions'
+description: Car chips spoil a vehicle’s look and can cause rust if left untreated.
+  Choosing the best touch up paint helps fix these chips quickly and easily. Minor
+  scratche
 pubDate: 2025-11-01
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-touch-up-paint-for-car-chips&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spray Paint and Scratch Repair
+heroImage: https://tse1.mm.bing.net/th?q=best-touch-up-paint-for-car-chips&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Car chips spoil a vehicle’s look and can cause rust if left untreated. Choosing the best touch up paint helps fix these chips quickly and easily.**

@@ -1,10 +1,14 @@
 ---
-title: "How Fast is a Tesla Model Y: Unleashing Electric Speed"
-description: "Have you ever wondered how quickly a Tesla Model Y can accelerate? If speed excites you and you want to know what this electric SUV is truly capable of, you’re "
+title: 'How Fast is a Tesla Model Y: Unleashing Electric Speed'
+description: 'Have you ever wondered how quickly a Tesla Model Y can accelerate? If
+  speed excites you and you want to know what this electric SUV is truly capable of,
+  you’re '
 pubDate: 2026-01-29
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-fast-is-a-tesla-model-y&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Summon and Dog Mode
+heroImage: https://tse1.mm.bing.net/th?q=how-fast-is-a-tesla-model-y&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Have you ever wondered how quickly a Tesla Model Y can accelerate? If speed excites you and you want to know what this electric SUV is truly capable of, you’re in the right place.**

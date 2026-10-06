@@ -1,10 +1,14 @@
 ---
-title: "Best Car Mount for Samsung S23 Ultra: Top Wireless Fast Chargers Reviewed"
-description: "Finding the best car mount for your Samsung S23 Ultra ensures safe and easy phone use while driving. A good mount holds your phone firmly and offers fast chargi"
+title: 'Best Car Mount for Samsung S23 Ultra: Top Wireless Fast Chargers Reviewed'
+description: Finding the best car mount for your Samsung S23 Ultra ensures safe and
+  easy phone use while driving. A good mount holds your phone firmly and offers fast
+  chargi
 pubDate: 2026-06-06
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-mount-for-samsung-s23-ultra&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Phone Mounts and Adapters
+heroImage: https://tse1.mm.bing.net/th?q=best-car-mount-for-samsung-s23-ultra&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Finding the best car mount for your Samsung S23 Ultra ensures safe and easy phone use while driving. A good mount holds your phone firmly and offers fast charging.**

@@ -1,10 +1,14 @@
 ---
-title: "Can You Replace 2019 Honda Accord Stereo: Easy DIY Guide"
-description: "Are you thinking about upgrading the stereo in your 2019 Honda Accord? You’re not alone. Many drivers want better sound, more features, or a fresh look for thei"
+title: 'Can You Replace 2019 Honda Accord Stereo: Easy DIY Guide'
+description: Are you thinking about upgrading the stereo in your 2019 Honda Accord?
+  You’re not alone. Many drivers want better sound, more features, or a fresh look
+  for thei
 pubDate: 2026-05-09
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-replace-2019-honda-accord-stereo&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Choosing Car Stereos
+heroImage: https://tse1.mm.bing.net/th?q=can-you-replace-2019-honda-accord-stereo&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are you thinking about upgrading the stereo in your 2019 Honda Accord? You’re not alone.**

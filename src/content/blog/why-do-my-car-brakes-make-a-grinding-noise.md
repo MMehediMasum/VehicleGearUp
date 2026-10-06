@@ -1,10 +1,14 @@
 ---
-title: "Why Do My Car Brakes Make a Grinding Noise: Causes & Fixes"
-description: "Have you ever pressed your car brakes and heard a grinding noise that made you stop in your tracks? That sound isn’t just annoying—it’s a warning sign that some"
+title: 'Why Do My Car Brakes Make a Grinding Noise: Causes & Fixes'
+description: Have you ever pressed your car brakes and heard a grinding noise that
+  made you stop in your tracks? That sound isn’t just annoying—it’s a warning sign
+  that some
 pubDate: 2025-10-12
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-do-my-car-brakes-make-a-grinding-noise&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Brake Replacement and Rotors
+heroImage: https://tse1.mm.bing.net/th?q=why-do-my-car-brakes-make-a-grinding-noise&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever pressed your car brakes and heard a grinding noise that made you stop in your tracks? That sound isn’t just annoying—it’s a warning sign that something might be seriously wrong with your vehicle.**

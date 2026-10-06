@@ -1,10 +1,14 @@
 ---
-title: "Is Car Battery 12 Volt Or 6: Essential Facts You Must Know"
-description: "Are you confused about whether your car battery is 12 volt or 6 volt? Knowing the right voltage is crucial for your vehicle’s performance and safety. Choosing t"
+title: 'Is Car Battery 12 Volt Or 6: Essential Facts You Must Know'
+description: Are you confused about whether your car battery is 12 volt or 6 volt?
+  Knowing the right voltage is crucial for your vehicle’s performance and safety.
+  Choosing t
 pubDate: 2026-05-10
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-car-battery-12-volt-or-6&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Types and Specs
+heroImage: https://tse1.mm.bing.net/th?q=is-car-battery-12-volt-or-6&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you confused about whether your car battery is 12 volt or 6 volt? Knowing the right voltage is crucial for your vehicle’s performance and safety.**

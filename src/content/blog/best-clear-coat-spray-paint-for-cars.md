@@ -1,10 +1,14 @@
 ---
-title: "Best Clear Coat Spray Paint for Cars: Top High Gloss Automotive Picks"
-description: "Choosing the best clear coat spray paint protects your car’s finish and keeps it shiny. This guide covers top clear coat sprays for easy, durable car paint prot"
+title: 'Best Clear Coat Spray Paint for Cars: Top High Gloss Automotive Picks'
+description: Choosing the best clear coat spray paint protects your car’s finish and
+  keeps it shiny. This guide covers top clear coat sprays for easy, durable car paint
+  prot
 pubDate: 2025-11-20
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-clear-coat-spray-paint-for-cars&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spray Paint and Scratch Repair
+heroImage: https://tse1.mm.bing.net/th?q=best-clear-coat-spray-paint-for-cars&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best clear coat spray paint protects your car’s finish and keeps it shiny. This guide covers top clear coat sprays for easy, durable car paint protection.**

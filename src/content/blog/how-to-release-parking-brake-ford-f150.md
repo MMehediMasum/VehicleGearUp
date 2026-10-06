@@ -1,10 +1,14 @@
 ---
-title: "How to Release Parking Brake Ford F150: Easy Steps Explained"
-description: "Struggling to release the parking brake on your Ford F150? You’re not alone. Sometimes, the parking brake can feel stubborn or confusing, especially if you’re n"
+title: 'How to Release Parking Brake Ford F150: Easy Steps Explained'
+description: Struggling to release the parking brake on your Ford F150? You’re not
+  alone. Sometimes, the parking brake can feel stubborn or confusing, especially if
+  you’re n
 pubDate: 2026-05-02
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-release-parking-brake-ford-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hill Start and Brake Assist
+heroImage: https://tse1.mm.bing.net/th?q=how-to-release-parking-brake-ford-f150&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Struggling to release the parking brake on your Ford F150? You’re not alone.**

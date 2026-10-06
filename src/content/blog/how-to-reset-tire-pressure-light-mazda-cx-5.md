@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Tire Pressure Light Mazda Cx 5: Quick & Easy Guide"
-description: "Is your Mazda CX-5’s tire pressure light on, and you’re not sure how to turn it off? That little warning can be distracting and even stressful. But don’t worry—"
+title: 'How to Reset Tire Pressure Light Mazda Cx 5: Quick & Easy Guide'
+description: Is your Mazda CX-5’s tire pressure light on, and you’re not sure how
+  to turn it off? That little warning can be distracting and even stressful. But don’t
+  worry—
 pubDate: 2026-05-25
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-tire-pressure-light-mazda-cx-5&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Tire Pressure Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-tire-pressure-light-mazda-cx-5&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Is your Mazda CX-5’s tire pressure light on, and you’re not sure how to turn it off? That little warning can be distracting and even stressful.**

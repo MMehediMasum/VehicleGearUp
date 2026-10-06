@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Full Size Pickup Trucks: Top All-Terrain & All-Season Picks"
-description: "Choosing the best tires for full size pickup trucks boosts safety and performance on all roads. Tires must handle heavy loads, rough terrain, and varied weather"
+title: 'Best Tires for Full Size Pickup Trucks: Top All-Terrain & All-Season Picks'
+description: Choosing the best tires for full size pickup trucks boosts safety and
+  performance on all roads. Tires must handle heavy loads, rough terrain, and varied
+  weather
 pubDate: 2026-01-06
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-full-size-pickup-trucks&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Mud Street and RV Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-full-size-pickup-trucks&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for full size pickup trucks boosts safety and performance on all roads. Tires must handle heavy loads, rough terrain, and varied weather.**

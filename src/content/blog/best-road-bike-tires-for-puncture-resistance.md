@@ -1,10 +1,14 @@
 ---
-title: "Best Road Bike Tires for Puncture Resistance: Top Durable Picks"
-description: "Choosing the best road bike tires for puncture resistance keeps your rides smooth and worry-free. Durable tires reduce flats and save time on repairs. Puncture-"
+title: 'Best Road Bike Tires for Puncture Resistance: Top Durable Picks'
+description: Choosing the best road bike tires for puncture resistance keeps your
+  rides smooth and worry-free. Durable tires reduce flats and save time on repairs.
+  Puncture-
 pubDate: 2026-01-08
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-road-bike-tires-for-puncture-resistance&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Bike Tires and Pumps
+heroImage: https://tse1.mm.bing.net/th?q=best-road-bike-tires-for-puncture-resistance&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best road bike tires for puncture resistance keeps your rides smooth and worry-free. Durable tires reduce flats and save time on repairs.**

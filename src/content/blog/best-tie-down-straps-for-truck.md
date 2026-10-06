@@ -1,10 +1,14 @@
 ---
-title: "Best Tie Down Straps for Truck: Secure Cargo with Heavy Duty Strength"
-description: "Securing cargo safely is essential for every truck owner. Choosing the best tie down straps ensures your load stays stable during transit. Tie down straps come "
+title: 'Best Tie Down Straps for Truck: Secure Cargo with Heavy Duty Strength'
+description: 'Securing cargo safely is essential for every truck owner. Choosing the
+  best tie down straps ensures your load stays stable during transit. Tie down straps
+  come '
 pubDate: 2026-06-30
-author: "herbertlangham"
-categories: ["Towing & Hauling"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tie-down-straps-for-truck&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Truck Bed Gear
+heroImage: https://tse1.mm.bing.net/th?q=best-tie-down-straps-for-truck&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Securing cargo safely is essential for every truck owner. Choosing the best tie down straps ensures your load stays stable during transit.**

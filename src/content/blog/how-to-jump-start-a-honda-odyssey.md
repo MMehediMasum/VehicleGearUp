@@ -1,10 +1,14 @@
 ---
-title: "How to Jump Start a Honda Odyssey: Quick and Easy Steps"
-description: "Has your Honda Odyssey ever refused to start just when you needed it most? It’s frustrating and can leave you feeling stuck. But don’t worry—you can get your mi"
+title: 'How to Jump Start a Honda Odyssey: Quick and Easy Steps'
+description: Has your Honda Odyssey ever refused to start just when you needed it
+  most? It’s frustrating and can leave you feeling stuck. But don’t worry—you can
+  get your mi
 pubDate: 2026-01-20
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-jump-start-a-honda-odyssey&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jump Starting by Model
+heroImage: https://tse1.mm.bing.net/th?q=how-to-jump-start-a-honda-odyssey&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Has your Honda Odyssey ever refused to start just when you needed it most? It’s frustrating and can leave you feeling stuck.**

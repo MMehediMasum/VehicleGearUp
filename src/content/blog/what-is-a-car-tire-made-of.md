@@ -1,10 +1,14 @@
 ---
-title: "What is a Car Tire Made of: Surprising Materials Inside Revealed"
-description: "Have you ever stopped to think about what makes your car tire so strong and reliable? You might assume it’s just rubber, but there’s a lot more going on beneath"
+title: 'What is a Car Tire Made of: Surprising Materials Inside Revealed'
+description: Have you ever stopped to think about what makes your car tire so strong
+  and reliable? You might assume it’s just rubber, but there’s a lot more going on
+  beneath
 pubDate: 2025-11-13
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-a-car-tire-made-of&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tire Age Pressure and Size
+heroImage: https://tse1.mm.bing.net/th?q=what-is-a-car-tire-made-of&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Have you ever stopped to think about what makes your car tire so strong and reliable? You might assume it’s just rubber, but there’s a lot more going on beneath the surface.**

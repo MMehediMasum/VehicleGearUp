@@ -1,10 +1,13 @@
 ---
-title: "Does Tesla Model Y Have Cooled Seats: Ultimate Comfort Review"
-description: "Are you curious if the Tesla Model Y has cooled seats to keep you comfortable during hot drives? When you spend time behind the wheel, especially on warm days, "
+title: 'Does Tesla Model Y Have Cooled Seats: Ultimate Comfort Review'
+description: 'Are you curious if the Tesla Model Y has cooled seats to keep you comfortable
+  during hot drives? When you spend time behind the wheel, especially on warm days, '
 pubDate: 2026-05-20
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-tesla-model-y-have-cooled-seats&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Tires and Accessories
+heroImage: https://tse1.mm.bing.net/th?q=does-tesla-model-y-have-cooled-seats&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you curious if the Tesla Model Y has cooled seats to keep you comfortable during hot drives? When you spend time behind the wheel, especially on warm days, having seats that cool down can make a big difference in your comfort and driving experience.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Engine Oil for Audi A6 3.0 Tdi Quattro: Top Synthetic Picks"
-description: "Choosing the best engine oil for your Audi A6 3.0 TDI Quattro keeps the engine running smoothly. Proper oil protects parts and improves performance. The Audi A6"
+title: 'Best Engine Oil for Audi A6 3.0 Tdi Quattro: Top Synthetic Picks'
+description: Choosing the best engine oil for your Audi A6 3.0 TDI Quattro keeps the
+  engine running smoothly. Proper oil protects parts and improves performance. The
+  Audi A6
 pubDate: 2026-07-11
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-engine-oil-for-audi-a6-30-tdi-quattro&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Best Engine Oils
+heroImage: https://tse1.mm.bing.net/th?q=best-engine-oil-for-audi-a6-30-tdi-quattro&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Choosing the best engine oil for your Audi A6 3.0 TDI Quattro keeps the engine running smoothly. Proper oil protects parts and improves performance.**

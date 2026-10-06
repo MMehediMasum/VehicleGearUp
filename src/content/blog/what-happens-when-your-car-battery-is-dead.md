@@ -1,10 +1,14 @@
 ---
-title: "What Happens When Your Car Battery is Dead: Essential Facts Revealed"
-description: "Have you ever turned the key in your car only to hear nothing but silence? A dead car battery can catch you off guard at the worst moments, leaving you stuck an"
+title: 'What Happens When Your Car Battery is Dead: Essential Facts Revealed'
+description: Have you ever turned the key in your car only to hear nothing but silence?
+  A dead car battery can catch you off guard at the worst moments, leaving you stuck
+  an
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-happens-when-your-car-battery-is-dead&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- When to Replace a Battery
+heroImage: https://tse1.mm.bing.net/th?q=what-happens-when-your-car-battery-is-dead&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever turned the key in your car only to hear nothing but silence? A dead car battery can catch you off guard at the worst moments, leaving you stuck and frustrated.**

@@ -1,10 +1,14 @@
 ---
-title: "Is It Safe to Wash Engine at Car Wash: Essential Safety Tips Revealed"
-description: "Have you ever wondered if washing your car’s engine at a car wash is safe? You might think it’s a quick and easy way to keep your engine clean, but is it really"
+title: 'Is It Safe to Wash Engine at Car Wash: Essential Safety Tips Revealed'
+description: Have you ever wondered if washing your car’s engine at a car wash is
+  safe? You might think it’s a quick and easy way to keep your engine clean, but is
+  it really
 pubDate: 2026-05-06
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-it-safe-to-wash-engine-at-car-wash&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wash Costs and Etiquette
+heroImage: https://tse1.mm.bing.net/th?q=is-it-safe-to-wash-engine-at-car-wash&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever wondered if washing your car’s engine at a car wash is safe? You might think it’s a quick and easy way to keep your engine clean, but is it really a good idea?**

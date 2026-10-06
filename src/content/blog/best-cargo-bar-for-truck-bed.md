@@ -1,10 +1,14 @@
 ---
-title: "Best Cargo Bar for Truck Bed: Top Adjustable Bars to Secure Loads"
-description: "Securing cargo in a truck bed prevents damage and keeps loads stable during travel. Choosing the best cargo bar makes hauling safer and easier. A cargo bar fits"
+title: 'Best Cargo Bar for Truck Bed: Top Adjustable Bars to Secure Loads'
+description: Securing cargo in a truck bed prevents damage and keeps loads stable
+  during travel. Choosing the best cargo bar makes hauling safer and easier. A cargo
+  bar fits
 pubDate: 2025-10-24
-author: "herbertlangham"
-categories: ["Towing & Hauling"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cargo-bar-for-truck-bed&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Truck Bed Gear
+heroImage: https://tse1.mm.bing.net/th?q=best-cargo-bar-for-truck-bed&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Securing cargo in a truck bed prevents damage and keeps loads stable during travel. Choosing the best cargo bar makes hauling safer and easier.**

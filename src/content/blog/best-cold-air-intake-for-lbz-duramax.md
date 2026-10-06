@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for Lbz Duramax to Boost Power and Efficiency"
-description: "Finding the best cold air intake for your LBZ Duramax can boost engine power and improve fuel efficiency. A quality intake brings cooler, cleaner air to your en"
+title: Best Cold Air Intake for Lbz Duramax to Boost Power and Efficiency
+description: Finding the best cold air intake for your LBZ Duramax can boost engine
+  power and improve fuel efficiency. A quality intake brings cooler, cleaner air to
+  your en
 pubDate: 2026-06-04
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-lbz-duramax&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- GM Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-lbz-duramax&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Finding the best cold air intake for your LBZ Duramax can boost engine power and improve fuel efficiency. A quality intake brings cooler, cleaner air to your engine, helping it run better.**

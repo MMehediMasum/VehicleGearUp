@@ -1,10 +1,14 @@
 ---
-title: "Does a Ford Explorer Have 3Rd Row Seating? Ultimate Guide 2025"
-description: "Are you wondering if the Ford Explorer has third-row seating? If you need extra space for family, friends, or gear, this is a key question. Knowing whether the "
+title: Does a Ford Explorer Have 3Rd Row Seating? Ultimate Guide 2025
+description: 'Are you wondering if the Ford Explorer has third-row seating? If you
+  need extra space for family, friends, or gear, this is a key question. Knowing whether
+  the '
 pubDate: 2025-08-28
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-a-ford-explorer-have-3rd-row-seating&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Third Row and Mileage
+heroImage: https://tse1.mm.bing.net/th?q=does-a-ford-explorer-have-3rd-row-seating&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you wondering if the Ford Explorer has third-row seating? If you need extra space for family, friends, or gear, this is a key question.**

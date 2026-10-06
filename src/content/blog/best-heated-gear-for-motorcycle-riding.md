@@ -1,10 +1,14 @@
 ---
-title: "Best Heated Gear for Motorcycle Riding: Stay Warm with Top Electric Apparel"
-description: "Riding a motorcycle in cold weather can be tough without proper heated gear. Staying warm improves comfort and safety on every trip. Choosing the best heated ge"
+title: 'Best Heated Gear for Motorcycle Riding: Stay Warm with Top Electric Apparel'
+description: Riding a motorcycle in cold weather can be tough without proper heated
+  gear. Staying warm improves comfort and safety on every trip. Choosing the best
+  heated ge
 pubDate: 2025-11-18
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-heated-gear-for-motorcycle-riding&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Riding Accessories
+heroImage: https://tse1.mm.bing.net/th?q=best-heated-gear-for-motorcycle-riding&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Riding a motorcycle in cold weather can be tough without proper heated gear. Staying warm improves comfort and safety on every trip.**

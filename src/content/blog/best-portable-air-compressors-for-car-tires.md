@@ -1,10 +1,14 @@
 ---
-title: "Best Portable Air Compressors for Car Tires: Top Reliable Picks Reviewed"
-description: "Keeping car tires properly inflated improves safety and fuel efficiency. Portable air compressors make tire inflation quick and easy anywhere. A reliable portab"
+title: 'Best Portable Air Compressors for Car Tires: Top Reliable Picks Reviewed'
+description: Keeping car tires properly inflated improves safety and fuel efficiency.
+  Portable air compressors make tire inflation quick and easy anywhere. A reliable
+  portab
 pubDate: 2026-01-03
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-portable-air-compressors-for-car-tires&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tire Inflators and Compressors
+heroImage: https://tse1.mm.bing.net/th?q=best-portable-air-compressors-for-car-tires&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Keeping car tires properly inflated improves safety and fuel efficiency. Portable air compressors make tire inflation quick and easy anywhere.**

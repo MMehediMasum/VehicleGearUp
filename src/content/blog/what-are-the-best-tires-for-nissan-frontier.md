@@ -1,10 +1,14 @@
 ---
-title: "What are the Best Tires for Nissan Frontier: Top Picks for 2025"
-description: "If you own a Nissan Frontier, you know how important it is to have the right tires. The right set can improve your truck’s performance, safety, and comfort on e"
+title: 'What are the Best Tires for Nissan Frontier: Top Picks for 2025'
+description: If you own a Nissan Frontier, you know how important it is to have the
+  right tires. The right set can improve your truck’s performance, safety, and comfort
+  on e
 pubDate: 2025-10-30
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-the-best-tires-for-nissan-frontier&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tire Construction and Origin
+heroImage: https://tse1.mm.bing.net/th?q=what-are-the-best-tires-for-nissan-frontier&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **If you own a Nissan Frontier, you know how important it is to have the right tires. The right set can improve your truck’s performance, safety, and comfort on every drive.**

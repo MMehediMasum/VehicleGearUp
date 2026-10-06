@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Ram Power Wagon to Enhance Off-Road Performance"
-description: "Choosing the best tires for your Ram Power Wagon enhances performance and safety. The right tires improve traction, handling, and ride comfort on all terrains. "
+title: Best Tires for Ram Power Wagon to Enhance Off-Road Performance
+description: 'Choosing the best tires for your Ram Power Wagon enhances performance
+  and safety. The right tires improve traction, handling, and ride comfort on all
+  terrains. '
 pubDate: 2025-12-23
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-ram-power-wagon&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ram and Dodge Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-ram-power-wagon&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your Ram Power Wagon enhances performance and safety. The right tires improve traction, handling, and ride comfort on all terrains.**

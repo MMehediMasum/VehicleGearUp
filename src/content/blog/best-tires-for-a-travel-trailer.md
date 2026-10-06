@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for a Travel Trailer: Top Durable and Reliable Picks"
-description: "Choosing the best tires for a travel trailer ensures safety and smooth travel on any road. Durable tires protect your trailer and improve your journey experienc"
+title: 'Best Tires for a Travel Trailer: Top Durable and Reliable Picks'
+description: Choosing the best tires for a travel trailer ensures safety and smooth
+  travel on any road. Durable tires protect your trailer and improve your journey
+  experienc
 pubDate: 2025-11-11
-author: "herbertlangham"
-categories: ["Towing & Hauling"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-a-travel-trailer&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Trailer Gear and Accessories
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-a-travel-trailer&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Choosing the best tires for a travel trailer ensures safety and smooth travel on any road. Durable tires protect your trailer and improve your journey experience.**

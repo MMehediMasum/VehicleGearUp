@@ -1,10 +1,14 @@
 ---
-title: "How to Jumpstart a Toyota Highlander Hybrid: Quick & Easy Steps"
-description: "Have you ever found yourself stuck with a dead battery in your Toyota Highlander Hybrid? It’s frustrating when your car won’t start, especially when you need to"
+title: 'How to Jumpstart a Toyota Highlander Hybrid: Quick & Easy Steps'
+description: Have you ever found yourself stuck with a dead battery in your Toyota
+  Highlander Hybrid? It’s frustrating when your car won’t start, especially when you
+  need to
 pubDate: 2026-01-23
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-jumpstart-a-toyota-highlander-hybrid&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- How Hybrids Work
+heroImage: https://tse1.mm.bing.net/th?q=how-to-jumpstart-a-toyota-highlander-hybrid&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Have you ever found yourself stuck with a dead battery in your Toyota Highlander Hybrid? It’s frustrating when your car won’t start, especially when you need to get going fast.**

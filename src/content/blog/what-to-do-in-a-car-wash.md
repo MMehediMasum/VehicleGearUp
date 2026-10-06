@@ -1,10 +1,13 @@
 ---
-title: "What to Do in a Car Wash: Essential Tips for a Spotless Shine"
-description: "You’ve pulled into a car wash, but what comes next? Knowing exactly what to do in a car wash can save you time, protect your vehicle, and even make the experien"
+title: 'What to Do in a Car Wash: Essential Tips for a Spotless Shine'
+description: You’ve pulled into a car wash, but what comes next? Knowing exactly what
+  to do in a car wash can save you time, protect your vehicle, and even make the experien
 pubDate: 2025-09-25
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-do-in-a-car-wash&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wash Basics
+heroImage: https://tse1.mm.bing.net/th?q=what-to-do-in-a-car-wash&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **You’ve pulled into a car wash, but what comes next? Knowing exactly what to do in a car wash can save you time, protect your vehicle, and even make the experience more enjoyable.**

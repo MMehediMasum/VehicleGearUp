@@ -1,10 +1,14 @@
 ---
-title: "Do Honda Pilots Have 3Rd Row Seating: Ultimate Family SUV Guide"
-description: "Are you searching for a family-friendly SUV that can comfortably fit everyone? If you’ve been eyeing the Honda Pilot, one question might be on your mind: does i"
+title: 'Do Honda Pilots Have 3Rd Row Seating: Ultimate Family SUV Guide'
+description: 'Are you searching for a family-friendly SUV that can comfortably fit
+  everyone? If you’ve been eyeing the Honda Pilot, one question might be on your mind:
+  does i'
 pubDate: 2026-05-23
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-honda-pilots-have-3rd-row-seating&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Speed and Drive
+heroImage: https://tse1.mm.bing.net/th?q=do-honda-pilots-have-3rd-row-seating&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you searching for a family-friendly SUV that can comfortably fit everyone? If you’ve been eyeing the Honda Pilot, one question might be on your mind: does it have 3rd row seating?**

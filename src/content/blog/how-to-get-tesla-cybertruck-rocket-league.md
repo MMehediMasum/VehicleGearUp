@@ -1,10 +1,14 @@
 ---
-title: "How to Get Tesla Cybertruck Rocket League: Ultimate Guide 2025"
-description: "Are you ready to drive the coolest vehicle in Rocket League? The Tesla Cybertruck is turning heads with its unique design and powerful performance. But how do y"
+title: 'How to Get Tesla Cybertruck Rocket League: Ultimate Guide 2025'
+description: Are you ready to drive the coolest vehicle in Rocket League? The Tesla
+  Cybertruck is turning heads with its unique design and powerful performance. But
+  how do y
 pubDate: 2026-02-25
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-get-tesla-cybertruck-rocket-league&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Model Y Features
+heroImage: https://tse1.mm.bing.net/th?q=how-to-get-tesla-cybertruck-rocket-league&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you ready to drive the coolest vehicle in Rocket League? The Tesla Cybertruck is turning heads with its unique design and powerful performance.**

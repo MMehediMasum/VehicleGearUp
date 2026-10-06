@@ -1,10 +1,14 @@
 ---
-title: "Are All Mazda CX-5 All Wheel Drive? Essential Facts Revealed"
-description: "Are you considering a Mazda CX-5 but wondering if all models come with all-wheel drive? This question matters more than you might think. Whether you live in a p"
+title: Are All Mazda CX-5 All Wheel Drive? Essential Facts Revealed
+description: Are you considering a Mazda CX-5 but wondering if all models come with
+  all-wheel drive? This question matters more than you might think. Whether you live
+  in a p
 pubDate: 2025-11-08
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-all-mazda-cx-5-all-wheel-drive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- All Wheel Drive Questions
+heroImage: https://tse1.mm.bing.net/th?q=are-all-mazda-cx-5-all-wheel-drive&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you considering a Mazda CX-5 but wondering if all models come with all-wheel drive? This question matters more than you might think.**

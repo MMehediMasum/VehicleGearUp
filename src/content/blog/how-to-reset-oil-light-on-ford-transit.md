@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Light on Ford Transit: Quick & Easy Guide"
-description: "Is your Ford Transit’s oil light blinking or staying on? It can be worrying to see that warning, but don’t panic. Knowing how to reset the oil light yourself sa"
+title: 'How to Reset Oil Light on Ford Transit: Quick & Easy Guide'
+description: Is your Ford Transit’s oil light blinking or staying on? It can be worrying
+  to see that warning, but don’t panic. Knowing how to reset the oil light yourself
+  sa
 pubDate: 2026-04-23
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-light-on-ford-transit&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Oil Light Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-light-on-ford-transit&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your Ford Transit’s oil light blinking or staying on? It can be worrying to see that warning, but don’t panic.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Yukon Denali 22 Inch: Top Rims and Tire Sets Reviewed"
-description: "Choosing the best tires for your Yukon Denali 22 improves safety and performance. The right tires fit perfectly and handle various road conditions well. Yukon D"
+title: 'Best Tires for Yukon Denali 22 Inch: Top Rims and Tire Sets Reviewed'
+description: Choosing the best tires for your Yukon Denali 22 improves safety and
+  performance. The right tires fit perfectly and handle various road conditions well.
+  Yukon D
 pubDate: 2025-12-24
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-yukon-denali-22&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Chevy and GMC Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-yukon-denali-22&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your Yukon Denali 22 improves safety and performance. The right tires fit perfectly and handle various road conditions well.**

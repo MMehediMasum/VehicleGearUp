@@ -1,10 +1,14 @@
 ---
-title: "Best UV Protection for Car Paint: Top Sprays to Shield and Shine"
-description: "Protecting your car’s paint from UV damage keeps it looking new longer. The right UV protection stops fading, cracking, and dullness caused by the sun. Sunlight"
+title: 'Best UV Protection for Car Paint: Top Sprays to Shield and Shine'
+description: Protecting your car’s paint from UV damage keeps it looking new longer.
+  The right UV protection stops fading, cracking, and dullness caused by the sun.
+  Sunlight
 pubDate: 2025-10-20
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-uv-protection-for-car-paint&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spray Paint and Scratch Repair
+heroImage: https://tse1.mm.bing.net/th?q=best-uv-protection-for-car-paint&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Protecting your car’s paint from UV damage keeps it looking new longer. The right UV protection stops fading, cracking, and dullness caused by the sun.**

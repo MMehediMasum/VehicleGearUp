@@ -1,10 +1,14 @@
 ---
-title: "Best Indoor Car Cover for Dust Protection: Top Picks for Sedans"
-description: "Keeping your car clean indoors requires the best indoor car cover for dust. A good cover blocks dust, dirt, and scratches while allowing airflow. Dust can settl"
+title: 'Best Indoor Car Cover for Dust Protection: Top Picks for Sedans'
+description: Keeping your car clean indoors requires the best indoor car cover for
+  dust. A good cover blocks dust, dirt, and scratches while allowing airflow. Dust
+  can settl
 pubDate: 2026-07-22
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-indoor-car-cover-for-dust&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Covers
+heroImage: https://tse1.mm.bing.net/th?q=best-indoor-car-cover-for-dust&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Keeping your car clean indoors requires the best indoor car cover for dust. A good cover blocks dust, dirt, and scratches while allowing airflow.**

@@ -1,10 +1,14 @@
 ---
-title: "How Do You Get Scratches Out of a Car Windshield: Easy Fixes That Work"
-description: "Your car windshield is more than just a window—it’s your shield against the road. But when scratches appear, they can block your view and make driving unsafe. Y"
+title: 'How Do You Get Scratches Out of a Car Windshield: Easy Fixes That Work'
+description: Your car windshield is more than just a window—it’s your shield against
+  the road. But when scratches appear, they can block your view and make driving unsafe.
+  Y
 pubDate: 2026-03-21
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-get-scratches-out-of-a-car-windshield&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Windshield Sap and Scratches
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-get-scratches-out-of-a-car-windshield&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Your car windshield is more than just a window—it’s your shield against the road. But when scratches appear, they can block your view and make driving unsafe.**

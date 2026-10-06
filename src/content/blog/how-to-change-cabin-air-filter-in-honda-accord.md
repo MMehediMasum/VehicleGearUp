@@ -1,10 +1,14 @@
 ---
-title: "How to Change Cabin Air Filter in Honda Accord: Easy Step-by-Step Guide"
-description: "If you want fresh, clean air inside your Honda Accord, changing the cabin air filter is a simple step you can’t skip. Dirty filters can make the air stale, caus"
+title: 'How to Change Cabin Air Filter in Honda Accord: Easy Step-by-Step Guide'
+description: If you want fresh, clean air inside your Honda Accord, changing the cabin
+  air filter is a simple step you can’t skip. Dirty filters can make the air stale,
+  caus
 pubDate: 2025-12-11
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-cabin-air-filter-in-honda-accord&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Cabin Air Filters
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-cabin-air-filter-in-honda-accord&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you want fresh, clean air inside your Honda Accord, changing the cabin air filter is a simple step you can’t skip. Dirty filters can make the air stale, cause unpleasant odors, and even affect your health.**

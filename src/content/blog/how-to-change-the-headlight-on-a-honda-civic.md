@@ -1,10 +1,14 @@
 ---
-title: "How to Change the Headlight on a Honda Civic: Easy Step-by-Step Guide"
-description: "Are your Honda Civic headlights dim or flickering? Changing them yourself can save you time and money. In this guide, you’ll learn simple steps to replace your "
+title: 'How to Change the Headlight on a Honda Civic: Easy Step-by-Step Guide'
+description: 'Are your Honda Civic headlights dim or flickering? Changing them yourself
+  can save you time and money. In this guide, you’ll learn simple steps to replace
+  your '
 pubDate: 2026-05-29
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-the-headlight-on-a-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Headlight Bulbs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-the-headlight-on-a-honda-civic&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are your Honda Civic headlights dim or flickering? Changing them yourself can save you time and money.**

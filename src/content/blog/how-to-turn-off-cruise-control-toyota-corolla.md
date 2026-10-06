@@ -1,10 +1,14 @@
 ---
-title: "How to Turn off Cruise Control Toyota Corolla: Quick & Easy Guide"
-description: "If you drive a Toyota Corolla, knowing how to turn off cruise control can save you from confusion and keep you in full control of your car. Maybe you’re on a bu"
+title: 'How to Turn off Cruise Control Toyota Corolla: Quick & Easy Guide'
+description: If you drive a Toyota Corolla, knowing how to turn off cruise control
+  can save you from confusion and keep you in full control of your car. Maybe you’re
+  on a bu
 pubDate: 2026-03-09
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-cruise-control-toyota-corolla&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Driver Assist Settings
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-cruise-control-toyota-corolla&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If you drive a Toyota Corolla, knowing how to turn off cruise control can save you from confusion and keep you in full control of your car. Maybe you’re on a busy road and need to slow down quickly, or perhaps you just want to switch back to manual driving smoothly.**

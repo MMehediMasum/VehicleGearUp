@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "What is the Salary of a Car Engineer: Unlocking Top Earnings Insights"
 description: "Are you curious about how much a car engineer earns? Whether you’re thinking about a career in automotive engineering or just want to know what drives their pay"
 pubDate: 2026-05-05

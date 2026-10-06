@@ -1,10 +1,14 @@
 ---
-title: "What is Single Din in Car Stereo: Ultimate Guide to Features & Benefits"
-description: "Are you thinking about upgrading your car stereo but feel confused by all the technical terms? One phrase you might have come across is \"Single DIN.\" But what e"
+title: 'What is Single Din in Car Stereo: Ultimate Guide to Features & Benefits'
+description: Are you thinking about upgrading your car stereo but feel confused by
+  all the technical terms? One phrase you might have come across is "Single DIN."
+  But what e
 pubDate: 2025-09-08
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-single-din-in-car-stereo&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Stereo Installation Help
+heroImage: https://tse1.mm.bing.net/th?q=what-is-single-din-in-car-stereo&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are you thinking about upgrading your car stereo but feel confused by all the technical terms? One phrase you might have come across is "Single DIN."**

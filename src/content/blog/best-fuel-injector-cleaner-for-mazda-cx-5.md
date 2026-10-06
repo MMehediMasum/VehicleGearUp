@@ -1,10 +1,14 @@
 ---
-title: "Best Fuel Injector Cleaner for Mazda CX-5 to Boost Engine Performance"
-description: "Maintaining a clean fuel injector is key for your Mazda CX-5’s smooth performance. Choosing the right fuel injector cleaner helps keep your engine efficient and"
+title: Best Fuel Injector Cleaner for Mazda CX-5 to Boost Engine Performance
+description: Maintaining a clean fuel injector is key for your Mazda CX-5’s smooth
+  performance. Choosing the right fuel injector cleaner helps keep your engine efficient
+  and
 pubDate: 2026-07-08
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-fuel-injector-cleaner-for-mazda-cx-5&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Fuel Injector Cleaner Picks
+heroImage: https://tse1.mm.bing.net/th?q=best-fuel-injector-cleaner-for-mazda-cx-5&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Maintaining a clean fuel injector is key for your Mazda CX-5’s smooth performance. Choosing the right fuel injector cleaner helps keep your engine efficient and reliable.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Spray Paint a Car Bumper: Easy Steps for a Flawless Finish"
-description: "Are you looking to give your car bumper a fresh, professional-looking finish without spending a fortune? Learning how to spray paint a car bumper yourself can s"
+title: 'How to Spray Paint a Car Bumper: Easy Steps for a Flawless Finish'
+description: Are you looking to give your car bumper a fresh, professional-looking
+  finish without spending a fortune? Learning how to spray paint a car bumper yourself
+  can s
 pubDate: 2025-10-27
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-spray-paint-a-car-bumper&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Bumper Paint and Sticker Removal
+heroImage: https://tse1.mm.bing.net/th?q=how-to-spray-paint-a-car-bumper&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Are you looking to give your car bumper a fresh, professional-looking finish without spending a fortune? Learning how to spray paint a car bumper yourself can save you time and money while making your vehicle look like new.**

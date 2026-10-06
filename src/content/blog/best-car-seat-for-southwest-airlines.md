@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Car Seat for Southwest Airlines: Top Travel-Friendly Options Reviewed"
 description: "Choosing the best car seat for Southwest Airlines ensures safety and convenience during travel. This guide highlights top options designed for easy airport use "
 pubDate: 2026-07-24

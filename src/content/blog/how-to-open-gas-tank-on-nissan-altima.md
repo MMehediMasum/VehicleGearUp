@@ -1,10 +1,14 @@
 ---
-title: "How to Open Gas Tank on Nissan Altima: Quick & Easy Guide"
-description: "If you’ve just started driving a Nissan Altima or switched from another car, figuring out how to open the gas tank might seem tricky. You don’t want to be stuck"
+title: 'How to Open Gas Tank on Nissan Altima: Quick & Easy Guide'
+description: If you’ve just started driving a Nissan Altima or switched from another
+  car, figuring out how to open the gas tank might seem tricky. You don’t want to
+  be stuck
 pubDate: 2026-02-03
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-open-gas-tank-on-nissan-altima&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Opening European Gas Tanks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-open-gas-tank-on-nissan-altima&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If you’ve just started driving a Nissan Altima or switched from another car, figuring out how to open the gas tank might seem tricky. You don’t want to be stuck standing at the pump, wondering what to do next.**

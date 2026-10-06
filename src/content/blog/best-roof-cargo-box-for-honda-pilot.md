@@ -1,10 +1,14 @@
 ---
-title: "Best Roof Cargo Box for Honda Pilot: Top Durable & Waterproof Picks"
-description: "Finding the best roof cargo box for your Honda Pilot makes travel easier and more organized. A good cargo box adds extra storage space without crowding your veh"
+title: 'Best Roof Cargo Box for Honda Pilot: Top Durable & Waterproof Picks'
+description: Finding the best roof cargo box for your Honda Pilot makes travel easier
+  and more organized. A good cargo box adds extra storage space without crowding your
+  veh
 pubDate: 2025-10-21
-author: "herbertlangham"
-categories: ["Towing & Hauling"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-roof-cargo-box-for-honda-pilot&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Truck Caps and Bed Liners
+heroImage: https://tse1.mm.bing.net/th?q=best-roof-cargo-box-for-honda-pilot&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Finding the best roof cargo box for your Honda Pilot makes travel easier and more organized. A good cargo box adds extra storage space without crowding your vehicle’s interior.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Perform Service on Ram 2500: Quick & Easy Guide"
-description: "If you drive a Ram 2500, you know how important it is to keep your truck running smoothly. When the Perform Service light comes on, it’s your truck’s way of tel"
+title: 'How to Reset Perform Service on Ram 2500: Quick & Easy Guide'
+description: If you drive a Ram 2500, you know how important it is to keep your truck
+  running smoothly. When the Perform Service light comes on, it’s your truck’s way
+  of tel
 pubDate: 2026-03-16
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-perform-service-on-ram-2500&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ram and Dodge Oil Life
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-perform-service-on-ram-2500&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you drive a Ram 2500, you know how important it is to keep your truck running smoothly. When the Perform Service light comes on, it’s your truck’s way of telling you it’s time for maintenance.**

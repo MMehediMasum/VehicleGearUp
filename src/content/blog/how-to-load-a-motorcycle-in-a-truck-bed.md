@@ -1,10 +1,14 @@
 ---
-title: "How to Load a Motorcycle in a Truck Bed: Easy Steps for Safety"
-description: "Loading your motorcycle into a truck bed might seem tricky, but it doesn’t have to be. Whether you’re moving, heading to a race, or just transporting your bike,"
+title: 'How to Load a Motorcycle in a Truck Bed: Easy Steps for Safety'
+description: Loading your motorcycle into a truck bed might seem tricky, but it doesn’t
+  have to be. Whether you’re moving, heading to a race, or just transporting your
+  bike,
 pubDate: 2026-03-02
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-load-a-motorcycle-in-a-truck-bed&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hauling Motorcycles in Trucks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-load-a-motorcycle-in-a-truck-bed&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Loading your motorcycle into a truck bed might seem tricky, but it doesn’t have to be. Whether you’re moving, heading to a race, or just transporting your bike, knowing the right way to load it keeps you and your motorcycle safe.**

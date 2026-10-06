@@ -1,10 +1,14 @@
 ---
-title: "How to Set Valves on a 350 Chevy: Easy Steps for Perfect Timing"
-description: "If you own a 350 Chevy engine, knowing how to set your valves correctly is key to keeping it running smooth and strong. You might think it’s a complicated job, "
+title: 'How to Set Valves on a 350 Chevy: Easy Steps for Perfect Timing'
+description: 'If you own a 350 Chevy engine, knowing how to set your valves correctly
+  is key to keeping it running smooth and strong. You might think it’s a complicated
+  job, '
 pubDate: 2026-02-18
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-set-valves-on-a-350-chevy&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Chevy Valves and Module Resets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-set-valves-on-a-350-chevy&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If you own a 350 Chevy engine, knowing how to set your valves correctly is key to keeping it running smooth and strong. You might think it’s a complicated job, but with the right steps, you can do it yourself and save time and money.**

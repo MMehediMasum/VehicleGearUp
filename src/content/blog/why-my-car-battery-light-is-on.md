@@ -1,10 +1,14 @@
 ---
-title: "Why My Car Battery Light is on: Causes & Quick Fixes"
-description: "Have you ever noticed that little battery light glowing on your car’s dashboard and wondered, “Why is my car battery light on?” It’s a warning you can’t ignore "
+title: 'Why My Car Battery Light is on: Causes & Quick Fixes'
+description: 'Have you ever noticed that little battery light glowing on your car’s
+  dashboard and wondered, “Why is my car battery light on?” It’s a warning you can’t
+  ignore '
 pubDate: 2026-04-20
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-my-car-battery-light-is-on&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Warranty and Storage
+heroImage: https://tse1.mm.bing.net/th?q=why-my-car-battery-light-is-on&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever noticed that little battery light glowing on your car’s dashboard and wondered, “Why is my car battery light on?” It’s a warning you can’t ignore because it means your car’s electrical system isn’t working right. If you don’t act fast, you could be stuck with a dead battery or worse, a car that won’t start at all.**

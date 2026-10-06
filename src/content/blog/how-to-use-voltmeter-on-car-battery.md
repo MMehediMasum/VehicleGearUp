@@ -1,10 +1,14 @@
 ---
-title: "How to Use Voltmeter on Car Battery: Easy Steps to Test Power"
-description: "Are you unsure if your car battery is healthy or needs a replacement? Knowing how to use a voltmeter on your car battery can save you time, money, and unexpecte"
+title: 'How to Use Voltmeter on Car Battery: Easy Steps to Test Power'
+description: Are you unsure if your car battery is healthy or needs a replacement?
+  Knowing how to use a voltmeter on your car battery can save you time, money, and
+  unexpecte
 pubDate: 2026-04-17
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-use-voltmeter-on-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Warranty and Storage
+heroImage: https://tse1.mm.bing.net/th?q=how-to-use-voltmeter-on-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you unsure if your car battery is healthy or needs a replacement? Knowing how to use a voltmeter on your car battery can save you time, money, and unexpected breakdowns.**

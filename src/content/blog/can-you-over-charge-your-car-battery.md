@@ -1,10 +1,14 @@
 ---
-title: "Can You Over Charge Your Car Battery: Risks and Safety Tips"
-description: "Have you ever wondered if it’s possible to overcharge your car battery? You rely on your battery every day, but giving it too much power could cause serious pro"
+title: 'Can You Over Charge Your Car Battery: Risks and Safety Tips'
+description: Have you ever wondered if it’s possible to overcharge your car battery?
+  You rely on your battery every day, but giving it too much power could cause serious
+  pro
 pubDate: 2026-03-31
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-over-charge-your-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Charging a Car Battery
+heroImage: https://tse1.mm.bing.net/th?q=can-you-over-charge-your-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if it’s possible to overcharge your car battery? You rely on your battery every day, but giving it too much power could cause serious problems.**

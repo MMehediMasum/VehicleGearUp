@@ -1,10 +1,14 @@
 ---
-title: "Can You Add Transmission Fluid While the Car is Running? Essential Tips"
-description: "Have you ever wondered if you can add transmission fluid while your car is running? It’s a question many car owners ask when they notice their transmission acti"
+title: Can You Add Transmission Fluid While the Car is Running? Essential Tips
+description: Have you ever wondered if you can add transmission fluid while your car
+  is running? It’s a question many car owners ask when they notice their transmission
+  acti
 pubDate: 2026-05-17
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-add-transmission-fluid-while-the-car-is-running&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Adding Transmission Fluid
+heroImage: https://tse1.mm.bing.net/th?q=can-you-add-transmission-fluid-while-the-car-is-running&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever wondered if you can add transmission fluid while your car is running? It’s a question many car owners ask when they notice their transmission acting up.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Get Scratches Out of Plastic Car Bumper: Easy Fix Tips"
-description: "Have you noticed scratches on your plastic car bumper that make your car look less than perfect? Those marks can be frustrating, but the good news is you don’t "
+title: 'How to Get Scratches Out of Plastic Car Bumper: Easy Fix Tips'
+description: 'Have you noticed scratches on your plastic car bumper that make your
+  car look less than perfect? Those marks can be frustrating, but the good news is
+  you don’t '
 pubDate: 2026-03-21
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-get-scratches-out-of-plastic-car-bumper&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Bumper Dent and Scratch Repair
+heroImage: https://tse1.mm.bing.net/th?q=how-to-get-scratches-out-of-plastic-car-bumper&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you noticed scratches on your plastic car bumper that make your car look less than perfect? Those marks can be frustrating, but the good news is you don’t have to live with them.**

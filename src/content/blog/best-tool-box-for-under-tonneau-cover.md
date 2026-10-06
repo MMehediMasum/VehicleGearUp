@@ -1,10 +1,14 @@
 ---
-title: "Best Tool Box for under Tonneau Cover: Durable, Secure & Space-Saving Picks"
-description: "Finding the best tool box for under a tonneau cover can improve your truck’s storage and security. A good tool box fits well, locks securely, and resists weathe"
+title: 'Best Tool Box for under Tonneau Cover: Durable, Secure & Space-Saving Picks'
+description: Finding the best tool box for under a tonneau cover can improve your
+  truck’s storage and security. A good tool box fits well, locks securely, and resists
+  weathe
 pubDate: 2026-07-30
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tool-box-for-under-tonneau-cover&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tonneau Covers
+heroImage: https://tse1.mm.bing.net/th?q=best-tool-box-for-under-tonneau-cover&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Finding the best tool box for under a tonneau cover can improve your truck’s storage and security. A good tool box fits well, locks securely, and resists weather damage.**

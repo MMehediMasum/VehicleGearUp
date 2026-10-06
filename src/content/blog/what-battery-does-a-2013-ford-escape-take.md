@@ -1,10 +1,14 @@
 ---
-title: "What Battery Does a 2013 Ford Escape Take: Ultimate Guide 2025"
-description: "Are you wondering what battery your 2013 Ford Escape needs? Choosing the right battery is more important than you might think. The wrong one can leave you stran"
+title: 'What Battery Does a 2013 Ford Escape Take: Ultimate Guide 2025'
+description: Are you wondering what battery your 2013 Ford Escape needs? Choosing
+  the right battery is more important than you might think. The wrong one can leave
+  you stran
 pubDate: 2026-04-17
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-battery-does-a-2013-ford-escape-take&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Price and Installation
+heroImage: https://tse1.mm.bing.net/th?q=what-battery-does-a-2013-ford-escape-take&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you wondering what battery your 2013 Ford Escape needs? Choosing the right battery is more important than you might think.**

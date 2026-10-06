@@ -1,10 +1,14 @@
 ---
-title: "How to Put Back Seats Down in Toyota Camry: Easy Step-by-Step Guide"
-description: "Are you struggling to figure out how to put the back seats down in your Toyota Camry? You’re not alone. Knowing the simple steps to fold your seats can instantl"
+title: 'How to Put Back Seats Down in Toyota Camry: Easy Step-by-Step Guide'
+description: Are you struggling to figure out how to put the back seats down in your
+  Toyota Camry? You’re not alone. Knowing the simple steps to fold your seats can
+  instantl
 pubDate: 2026-05-21
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-put-back-seats-down-in-toyota-camry&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ram Throttle and Computer Resets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-put-back-seats-down-in-toyota-camry&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are you struggling to figure out how to put the back seats down in your Toyota Camry? You’re not alone.**

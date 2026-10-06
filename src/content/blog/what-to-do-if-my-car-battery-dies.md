@@ -1,10 +1,14 @@
 ---
-title: "What to Do If My Car Battery Dies: Quick Fixes & Expert Tips"
-description: "Imagine you’re in a rush, ready to head out, and then—your car won’t start. The culprit? A dead battery. It’s frustrating, inconvenient, and can leave you feeli"
+title: 'What to Do If My Car Battery Dies: Quick Fixes & Expert Tips'
+description: Imagine you’re in a rush, ready to head out, and then—your car won’t
+  start. The culprit? A dead battery. It’s frustrating, inconvenient, and can leave
+  you feeli
 pubDate: 2026-04-15
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-do-if-my-car-battery-dies&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Signs of a Failing Battery
+heroImage: https://tse1.mm.bing.net/th?q=what-to-do-if-my-car-battery-dies&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Imagine you’re in a rush, ready to head out, and then—your car won’t start. The culprit?**

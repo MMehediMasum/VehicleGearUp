@@ -1,10 +1,14 @@
 ---
-title: "How to Open Gas Tank on Volvo Xc90: Easy Steps Revealed"
-description: "If you own a Volvo XC90, knowing how to open the gas tank quickly and easily can save you time and frustration. You might find yourself standing at the pump, un"
+title: 'How to Open Gas Tank on Volvo Xc90: Easy Steps Revealed'
+description: If you own a Volvo XC90, knowing how to open the gas tank quickly and
+  easily can save you time and frustration. You might find yourself standing at the
+  pump, un
 pubDate: 2026-01-29
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-open-gas-tank-on-volvo-xc90&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Opening European Gas Tanks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-open-gas-tank-on-volvo-xc90&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If you own a Volvo XC90, knowing how to open the gas tank quickly and easily can save you time and frustration. You might find yourself standing at the pump, unsure of the right step to take.**

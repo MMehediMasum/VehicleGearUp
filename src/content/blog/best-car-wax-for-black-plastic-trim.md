@@ -1,10 +1,14 @@
 ---
-title: "Best Car Wax for Black Plastic Trim to Restore and Protect Shine"
-description: "Black plastic trim on cars often fades and looks dull over time. Choosing the best car wax can restore its deep black shine and protect it. Car trim faces harsh"
+title: Best Car Wax for Black Plastic Trim to Restore and Protect Shine
+description: Black plastic trim on cars often fades and looks dull over time. Choosing
+  the best car wax can restore its deep black shine and protect it. Car trim faces
+  harsh
 pubDate: 2026-07-08
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-wax-for-black-plastic-trim&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wax by Paint Color
+heroImage: https://tse1.mm.bing.net/th?q=best-car-wax-for-black-plastic-trim&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Black plastic trim on cars often fades and looks dull over time. Choosing the best car wax can restore its deep black shine and protect it.**

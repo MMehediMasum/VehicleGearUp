@@ -1,10 +1,14 @@
 ---
-title: "Best Seat Covers for Mazda CX 5: Top Waterproof Leather Protectors"
-description: "Choosing the best seat covers for your Mazda CX-5 improves comfort and protects your car’s interior. Quality covers fit well and last long. Seat covers shield y"
+title: 'Best Seat Covers for Mazda CX 5: Top Waterproof Leather Protectors'
+description: Choosing the best seat covers for your Mazda CX-5 improves comfort and
+  protects your car’s interior. Quality covers fit well and last long. Seat covers
+  shield y
 pubDate: 2026-07-26
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-seat-covers-for-mazda-cx-5&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Nissan and Fabric Seat Covers
+heroImage: https://tse1.mm.bing.net/th?q=best-seat-covers-for-mazda-cx-5&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best seat covers for your Mazda CX-5 improves comfort and protects your car’s interior. Quality covers fit well and last long.**

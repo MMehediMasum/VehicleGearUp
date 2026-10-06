@@ -1,10 +1,14 @@
 ---
-title: "Best Car Seat for 3 Across: Slim, Safe, and Space-Saving Picks"
-description: "Finding the best car seat for 3 across can be tough. Space is tight, but safety is key for every child. Many parents face this challenge daily. Choosing a slim,"
+title: 'Best Car Seat for 3 Across: Slim, Safe, and Space-Saving Picks'
+description: Finding the best car seat for 3 across can be tough. Space is tight,
+  but safety is key for every child. Many parents face this challenge daily. Choosing
+  a slim,
 pubDate: 2026-07-22
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-seat-for-3-across&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Choosing Child Car Seats
+heroImage: https://tse1.mm.bing.net/th?q=best-car-seat-for-3-across&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Finding the best car seat for 3 across can be tough. Space is tight, but safety is key for every child.**

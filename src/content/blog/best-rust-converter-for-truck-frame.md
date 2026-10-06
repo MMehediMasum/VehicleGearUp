@@ -1,10 +1,14 @@
 ---
-title: "Best Rust Converter for Truck Frame: Top Durable Rust Protection Picks"
-description: "Rust can damage your truck frame and weaken its structure. Using the best rust converter stops rust and protects metal effectively. Rust converters transform ru"
+title: 'Best Rust Converter for Truck Frame: Top Durable Rust Protection Picks'
+description: Rust can damage your truck frame and weaken its structure. Using the
+  best rust converter stops rust and protects metal effectively. Rust converters transform
+  ru
 pubDate: 2026-06-20
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rust-converter-for-truck-frame&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spray Paint and Scratch Repair
+heroImage: https://tse1.mm.bing.net/th?q=best-rust-converter-for-truck-frame&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Rust can damage your truck frame and weaken its structure. Using the best rust converter stops rust and protects metal effectively.**

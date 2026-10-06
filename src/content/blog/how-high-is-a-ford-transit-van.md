@@ -1,10 +1,14 @@
 ---
-title: "How High is a Ford Transit Van: Essential Height Guide 2025"
-description: "Are you thinking about getting a Ford Transit van but wondering if it will fit in your garage or under low bridges? Knowing the exact height of a Ford Transit v"
+title: 'How High is a Ford Transit Van: Essential Height Guide 2025'
+description: Are you thinking about getting a Ford Transit van but wondering if it
+  will fit in your garage or under low bridges? Knowing the exact height of a Ford
+  Transit v
 pubDate: 2026-02-08
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-high-is-a-ford-transit-van&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Model Questions
+heroImage: https://tse1.mm.bing.net/th?q=how-high-is-a-ford-transit-van&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you thinking about getting a Ford Transit van but wondering if it will fit in your garage or under low bridges? Knowing the exact height of a Ford Transit van can save you from costly surprises and frustrating moments.**

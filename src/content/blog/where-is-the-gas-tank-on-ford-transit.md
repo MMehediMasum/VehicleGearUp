@@ -1,10 +1,14 @@
 ---
-title: "Where is the Gas Tank on Ford Transit: Quick Guide & Tips"
-description: "Are you wondering where the gas tank is on your Ford Transit? Finding it quickly can save you time and hassle, especially when you’re in a rush. Whether you’re "
+title: 'Where is the Gas Tank on Ford Transit: Quick Guide & Tips'
+description: 'Are you wondering where the gas tank is on your Ford Transit? Finding
+  it quickly can save you time and hassle, especially when you’re in a rush. Whether
+  you’re '
 pubDate: 2026-02-21
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-is-the-gas-tank-on-ford-transit&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Model Questions
+heroImage: https://tse1.mm.bing.net/th?q=where-is-the-gas-tank-on-ford-transit&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you wondering where the gas tank is on your Ford Transit? Finding it quickly can save you time and hassle, especially when you’re in a rush.**

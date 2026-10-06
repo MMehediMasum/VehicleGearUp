@@ -1,10 +1,14 @@
 ---
-title: "How to Put a Car on 4 Jack Stands: Safe & Easy Step-by-Step Guide"
-description: "If you’re planning to work under your car, safety is your top priority. Knowing how to put a car on 4 jack stands correctly can save you from serious injury and"
+title: 'How to Put a Car on 4 Jack Stands: Safe & Easy Step-by-Step Guide'
+description: If you’re planning to work under your car, safety is your top priority.
+  Knowing how to put a car on 4 jack stands correctly can save you from serious injury
+  and
 pubDate: 2026-03-14
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-put-a-car-on-4-jack-stands&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Jacks and Jack Stands
+heroImage: https://tse1.mm.bing.net/th?q=how-to-put-a-car-on-4-jack-stands&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **If you’re planning to work under your car, safety is your top priority. Knowing how to put a car on 4 jack stands correctly can save you from serious injury and keep your vehicle stable while you work.**

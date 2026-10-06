@@ -1,10 +1,14 @@
 ---
-title: "Best Wet Dry Vacuum for Car Detailing: Top Powerful Picks Reviewed"
-description: "Choosing the best wet dry vacuum for car detailing makes cleaning easier and faster. These vacuums handle both wet spills and dry debris inside your vehicle. A "
+title: 'Best Wet Dry Vacuum for Car Detailing: Top Powerful Picks Reviewed'
+description: 'Choosing the best wet dry vacuum for car detailing makes cleaning easier
+  and faster. These vacuums handle both wet spills and dry debris inside your vehicle.
+  A '
 pubDate: 2025-11-17
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-wet-dry-vacuum-for-car-detailing&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Detailing Equipment
+heroImage: https://tse1.mm.bing.net/th?q=best-wet-dry-vacuum-for-car-detailing&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best wet dry vacuum for car detailing makes cleaning easier and faster. These vacuums handle both wet spills and dry debris inside your vehicle.**

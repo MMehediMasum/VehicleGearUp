@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Honda Civic Tire Pressure: Quick & Easy Guide"
-description: "Your Honda Civic’s tire pressure plays a big role in your safety and fuel efficiency. If your tire pressure light comes on, it can be confusing and even stressf"
+title: 'How to Reset Honda Civic Tire Pressure: Quick & Easy Guide'
+description: Your Honda Civic’s tire pressure plays a big role in your safety and
+  fuel efficiency. If your tire pressure light comes on, it can be confusing and even
+  stressf
 pubDate: 2026-02-16
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-honda-civic-tire-pressure&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Checking Tire Pressure
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-honda-civic-tire-pressure&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Your Honda Civic’s tire pressure plays a big role in your safety and fuel efficiency. If your tire pressure light comes on, it can be confusing and even stressful.**

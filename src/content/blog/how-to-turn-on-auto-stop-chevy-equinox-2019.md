@@ -1,10 +1,14 @@
 ---
-title: "How to Turn on Auto Stop Chevy Equinox 2019: Easy Step-by-Step Guide"
-description: "If you drive a 2019 Chevy Equinox, you’ve probably noticed the Auto Stop feature. It helps save fuel by turning off the engine when you’re stopped. But did you "
+title: 'How to Turn on Auto Stop Chevy Equinox 2019: Easy Step-by-Step Guide'
+description: 'If you drive a 2019 Chevy Equinox, you’ve probably noticed the Auto
+  Stop feature. It helps save fuel by turning off the engine when you’re stopped.
+  But did you '
 pubDate: 2026-03-13
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-on-auto-stop-chevy-equinox-2019&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Disabling Auto Start Stop
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-on-auto-stop-chevy-equinox-2019&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If you drive a 2019 Chevy Equinox, you’ve probably noticed the Auto Stop feature. It helps save fuel by turning off the engine when you’re stopped.**

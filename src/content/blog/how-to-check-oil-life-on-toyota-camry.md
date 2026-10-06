@@ -1,10 +1,14 @@
 ---
-title: "How to Check Oil Life on Toyota Camry: Easy Steps to Save Engine"
-description: "You rely on your Toyota Camry every day, so keeping it in top shape is important. One key part of that is knowing when to change your oil. But how do you check "
+title: 'How to Check Oil Life on Toyota Camry: Easy Steps to Save Engine'
+description: 'You rely on your Toyota Camry every day, so keeping it in top shape
+  is important. One key part of that is knowing when to change your oil. But how do
+  you check '
 pubDate: 2025-10-28
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-check-oil-life-on-toyota-camry&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ram and Dodge Oil Life
+heroImage: https://tse1.mm.bing.net/th?q=how-to-check-oil-life-on-toyota-camry&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **You rely on your Toyota Camry every day, so keeping it in top shape is important. One key part of that is knowing when to change your oil.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Safely Charge a Car Battery: Expert Tips & Tricks"
-description: "Is your car battery acting up? Knowing how to safely charge your car battery can save you time, money, and a lot of frustration. But charging a battery isn’t so"
+title: 'How to Safely Charge a Car Battery: Expert Tips & Tricks'
+description: Is your car battery acting up? Knowing how to safely charge your car
+  battery can save you time, money, and a lot of frustration. But charging a battery
+  isn’t so
 pubDate: 2026-04-18
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-safely-charge-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Charging a Car Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-safely-charge-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your car battery acting up? Knowing how to safely charge your car battery can save you time, money, and a lot of frustration.**

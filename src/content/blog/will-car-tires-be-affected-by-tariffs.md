@@ -1,10 +1,14 @@
 ---
-title: "Will Car Tires Be Affected by Tariffs? Key Insights Revealed"
-description: "Are you worried about how tariffs might impact the price and availability of your car tires? You’re not alone. Tariffs can change the cost of imported goods, an"
+title: Will Car Tires Be Affected by Tariffs? Key Insights Revealed
+description: Are you worried about how tariffs might impact the price and availability
+  of your car tires? You’re not alone. Tariffs can change the cost of imported goods,
+  an
 pubDate: 2025-09-05
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=will-car-tires-be-affected-by-tariffs&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tire Construction and Origin
+heroImage: https://tse1.mm.bing.net/th?q=will-car-tires-be-affected-by-tariffs&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Are you worried about how tariffs might impact the price and availability of your car tires? You’re not alone.**

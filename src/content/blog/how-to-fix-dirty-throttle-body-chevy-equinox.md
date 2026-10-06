@@ -1,10 +1,14 @@
 ---
-title: "How to Fix Dirty Throttle Body Chevy Equinox: Easy Step-by-Step Guide"
-description: "Is your Chevy Equinox feeling sluggish or struggling to accelerate smoothly? A dirty throttle body could be the hidden culprit behind these issues. When grime a"
+title: 'How to Fix Dirty Throttle Body Chevy Equinox: Easy Step-by-Step Guide'
+description: Is your Chevy Equinox feeling sluggish or struggling to accelerate smoothly?
+  A dirty throttle body could be the hidden culprit behind these issues. When grime
+  a
 pubDate: 2025-09-04
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-dirty-throttle-body-chevy-equinox&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Chevy Engine Tuning
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-dirty-throttle-body-chevy-equinox&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Is your Chevy Equinox feeling sluggish or struggling to accelerate smoothly? A dirty throttle body could be the hidden culprit behind these issues.**

@@ -1,10 +1,14 @@
 ---
-title: "Can I Flat Tow Mt 2010 F150 Harley: Essential Tips & Expert Guide"
-description: "Are you wondering if you can flat tow your 2010 Ford F-150 Harley? If you’ve ever thought about towing your truck behind another vehicle, you know it’s not as s"
+title: 'Can I Flat Tow Mt 2010 F150 Harley: Essential Tips & Expert Guide'
+description: Are you wondering if you can flat tow your 2010 Ford F-150 Harley? If
+  you’ve ever thought about towing your truck behind another vehicle, you know it’s
+  not as s
 pubDate: 2025-09-25
-author: "herbertlangham"
-categories: ["Towing & Hauling"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-i-flat-tow-mt-2010-f150-harley&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hauling Motorcycles in Trucks
+heroImage: https://tse1.mm.bing.net/th?q=can-i-flat-tow-mt-2010-f150-harley&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you wondering if you can flat tow your 2010 Ford F-150 Harley? If you’ve ever thought about towing your truck behind another vehicle, you know it’s not as simple as just hooking it up.**

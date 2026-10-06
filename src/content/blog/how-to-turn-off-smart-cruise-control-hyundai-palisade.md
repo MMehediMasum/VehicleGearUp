@@ -1,10 +1,14 @@
 ---
-title: "How to Turn off Smart Cruise Control Hyundai Palisade: Easy Steps"
-description: "If you own a Hyundai Palisade, you’ve likely experienced the convenience of Smart Cruise Control. But what if you want to turn it off quickly and safely? Knowin"
+title: 'How to Turn off Smart Cruise Control Hyundai Palisade: Easy Steps'
+description: If you own a Hyundai Palisade, you’ve likely experienced the convenience
+  of Smart Cruise Control. But what if you want to turn it off quickly and safely?
+  Knowin
 pubDate: 2026-01-21
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-smart-cruise-control-hyundai-palisade&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Turning Off Dash Beeps
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-smart-cruise-control-hyundai-palisade&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If you own a Hyundai Palisade, you’ve likely experienced the convenience of Smart Cruise Control. But what if you want to turn it off quickly and safely?**

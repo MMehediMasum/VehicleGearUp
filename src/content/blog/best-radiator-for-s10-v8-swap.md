@@ -1,10 +1,14 @@
 ---
-title: "Best Radiator for S10 V8 Swap: Top Aluminum Cooling Solutions Reviewed"
-description: "Choosing the best radiator for your S10 V8 swap is crucial for engine cooling and performance. A quality radiator keeps your engine running cooler and prevents "
+title: 'Best Radiator for S10 V8 Swap: Top Aluminum Cooling Solutions Reviewed'
+description: 'Choosing the best radiator for your S10 V8 swap is crucial for engine
+  cooling and performance. A quality radiator keeps your engine running cooler and
+  prevents '
 pubDate: 2026-06-04
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-radiator-for-s10-v8-swap&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Chevy Engine Tuning
+heroImage: https://tse1.mm.bing.net/th?q=best-radiator-for-s10-v8-swap&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best radiator for your S10 V8 swap is crucial for engine cooling and performance. A quality radiator keeps your engine running cooler and prevents overheating.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Hyundai Santa Fe Sport: Top Picks for Ultimate Performance"
-description: "Choosing the best tires for your 2017 Hyundai Santa Fe Sport ensures safety and smooth driving. The right tires improve grip, comfort, and fuel efficiency. Tire"
+title: 'Best Tires for Hyundai Santa Fe Sport: Top Picks for Ultimate Performance'
+description: Choosing the best tires for your 2017 Hyundai Santa Fe Sport ensures
+  safety and smooth driving. The right tires improve grip, comfort, and fuel efficiency.
+  Tire
 pubDate: 2026-01-12
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-2017-hyundai-santa-fe-sport&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Sport Model Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-2017-hyundai-santa-fe-sport&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your 2017 Hyundai Santa Fe Sport ensures safety and smooth driving. The right tires improve grip, comfort, and fuel efficiency.**

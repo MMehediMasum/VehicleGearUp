@@ -1,10 +1,14 @@
 ---
-title: "What Do You Need to Change Your Car Headlight Bulb: Essential Tools & Tips"
-description: "Are you staring at your car’s dim or broken headlight and wondering what you need to change it yourself? Replacing a headlight bulb might seem tricky, but with "
+title: 'What Do You Need to Change Your Car Headlight Bulb: Essential Tools & Tips'
+description: 'Are you staring at your car’s dim or broken headlight and wondering
+  what you need to change it yourself? Replacing a headlight bulb might seem tricky,
+  but with '
 pubDate: 2026-05-26
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-do-you-need-to-change-your-car-headlight-bulb&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Headlight Bulbs
+heroImage: https://tse1.mm.bing.net/th?q=what-do-you-need-to-change-your-car-headlight-bulb&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are you staring at your car’s dim or broken headlight and wondering what you need to change it yourself? Replacing a headlight bulb might seem tricky, but with the right tools and a little know-how, you can do it quickly and save time and money.**

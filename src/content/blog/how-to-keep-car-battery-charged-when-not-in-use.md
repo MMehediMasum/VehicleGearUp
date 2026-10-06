@@ -1,10 +1,14 @@
 ---
-title: "How to Keep Car Battery Charged When Not in Use: Essential Tips"
-description: "Your car battery is the heart of your vehicle’s electrical system. When your car sits unused for days or weeks, the battery can lose its charge, leaving you str"
+title: 'How to Keep Car Battery Charged When Not in Use: Essential Tips'
+description: Your car battery is the heart of your vehicle’s electrical system. When
+  your car sits unused for days or weeks, the battery can lose its charge, leaving
+  you str
 pubDate: 2026-04-16
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-keep-car-battery-charged-when-not-in-use&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Selling Old Car Batteries
+heroImage: https://tse1.mm.bing.net/th?q=how-to-keep-car-battery-charged-when-not-in-use&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Your car battery is the heart of your vehicle’s electrical system. When your car sits unused for days or weeks, the battery can lose its charge, leaving you stranded at the worst possible moment.**

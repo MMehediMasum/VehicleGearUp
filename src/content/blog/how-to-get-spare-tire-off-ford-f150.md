@@ -1,10 +1,14 @@
 ---
-title: "How to Get Spare Tire off Ford F150: Quick & Easy Steps"
-description: "Have you ever needed to change a tire on your Ford F150 but struggled to get the spare tire off? It can be frustrating when you’re in a hurry or stuck on the si"
+title: 'How to Get Spare Tire off Ford F150: Quick & Easy Steps'
+description: Have you ever needed to change a tire on your Ford F150 but struggled
+  to get the spare tire off? It can be frustrating when you’re in a hurry or stuck
+  on the si
 pubDate: 2026-01-20
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-get-spare-tire-off-ford-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spare Tires and Tire Changing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-get-spare-tire-off-ford-f150&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Have you ever needed to change a tire on your Ford F150 but struggled to get the spare tire off? It can be frustrating when you’re in a hurry or stuck on the side of the road.**

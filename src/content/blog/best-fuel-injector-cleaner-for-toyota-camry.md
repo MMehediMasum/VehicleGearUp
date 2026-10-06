@@ -1,10 +1,14 @@
 ---
-title: "Best Fuel Injector Cleaner for Toyota Camry: Top Picks for Optimal Performance"
-description: "Choosing the best fuel injector cleaner for your Toyota Camry helps keep the engine running smoothly. Clean injectors improve fuel efficiency and reduce emissio"
+title: 'Best Fuel Injector Cleaner for Toyota Camry: Top Picks for Optimal Performance'
+description: Choosing the best fuel injector cleaner for your Toyota Camry helps keep
+  the engine running smoothly. Clean injectors improve fuel efficiency and reduce
+  emissio
 pubDate: 2025-09-23
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-fuel-injector-cleaner-for-toyota-camry&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Fuel Injector Cleaner Picks
+heroImage: https://tse1.mm.bing.net/th?q=best-fuel-injector-cleaner-for-toyota-camry&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best fuel injector cleaner for your Toyota Camry helps keep the engine running smoothly. Clean injectors improve fuel efficiency and reduce emissions.**

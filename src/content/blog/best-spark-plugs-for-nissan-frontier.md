@@ -1,10 +1,14 @@
 ---
-title: "Best Spark Plugs for Nissan Frontier: Top Picks for Superior Performance"
-description: "Choosing the right spark plugs helps your Nissan Frontier run smoothly and efficiently. Quality plugs improve engine performance and fuel economy. Nissan Fronti"
+title: 'Best Spark Plugs for Nissan Frontier: Top Picks for Superior Performance'
+description: Choosing the right spark plugs helps your Nissan Frontier run smoothly
+  and efficiently. Quality plugs improve engine performance and fuel economy. Nissan
+  Fronti
 pubDate: 2026-06-01
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-spark-plugs-for-nissan-frontier&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spark Plug Maintenance
+heroImage: https://tse1.mm.bing.net/th?q=best-spark-plugs-for-nissan-frontier&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the right spark plugs helps your Nissan Frontier run smoothly and efficiently. Quality plugs improve engine performance and fuel economy.**

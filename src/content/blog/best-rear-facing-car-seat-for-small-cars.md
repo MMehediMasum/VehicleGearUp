@@ -1,10 +1,13 @@
 ---
-title: "Best Rear Facing Car Seat for Small Cars: Top Slim Fit Picks"
-description: "Choosing the best rear facing car seat for small cars can be challenging. Space is tight, but safety remains the top priority. Small cars need compact, easy-to-"
+title: 'Best Rear Facing Car Seat for Small Cars: Top Slim Fit Picks'
+description: Choosing the best rear facing car seat for small cars can be challenging.
+  Space is tight, but safety remains the top priority. Small cars need compact, easy-to-
 pubDate: 2026-07-24
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rear-facing-car-seat-for-small-cars&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Seat Accessories
+heroImage: https://tse1.mm.bing.net/th?q=best-rear-facing-car-seat-for-small-cars&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best rear facing car seat for small cars can be challenging. Space is tight, but safety remains the top priority.**

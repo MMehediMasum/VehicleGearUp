@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Toyota Tacoma 2Wd: Top Picks for Ultimate Performance"
-description: "Choosing the best tires for your Toyota Tacoma 2WD improves performance and safety on the road. Quality tires ensure better grip, handling, and comfort. The Toy"
+title: 'Best Tires for Toyota Tacoma 2Wd: Top Picks for Ultimate Performance'
+description: Choosing the best tires for your Toyota Tacoma 2WD improves performance
+  and safety on the road. Quality tires ensure better grip, handling, and comfort.
+  The Toy
 pubDate: 2025-12-21
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-toyota-tacoma-2wd&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Trim Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-toyota-tacoma-2wd&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your Toyota Tacoma 2WD improves performance and safety on the road. Quality tires ensure better grip, handling, and comfort.**

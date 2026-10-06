@@ -1,10 +1,14 @@
 ---
-title: "Best Dash Camera for Car Front And Rear: Top Dual 4K Models Reviewed"
-description: "Choosing the best dash camera for both front and rear views improves your driving safety. These cameras record clear videos day and night, protecting you from a"
+title: 'Best Dash Camera for Car Front And Rear: Top Dual 4K Models Reviewed'
+description: Choosing the best dash camera for both front and rear views improves
+  your driving safety. These cameras record clear videos day and night, protecting
+  you from a
 pubDate: 2026-07-30
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-dash-camera-for-car-front-and-rear&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Dash Cams and Backup Cameras
+heroImage: https://tse1.mm.bing.net/th?q=best-dash-camera-for-car-front-and-rear&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Choosing the best dash camera for both front and rear views improves your driving safety. These cameras record clear videos day and night, protecting you from accidents and disputes.**

@@ -1,10 +1,13 @@
 ---
-title: "Best Odor Eliminator for Car Interior to Keep Your Ride Fresh"
-description: "Bad smells in your car can ruin every drive. Finding the best odor eliminator for your car interior helps keep it fresh and clean. Car odors come from food, pet"
+title: Best Odor Eliminator for Car Interior to Keep Your Ride Fresh
+description: Bad smells in your car can ruin every drive. Finding the best odor eliminator
+  for your car interior helps keep it fresh and clean. Car odors come from food, pet
 pubDate: 2026-06-16
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-odor-eliminator-for-car-interior&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Air Fresheners and Odors
+heroImage: https://tse1.mm.bing.net/th?q=best-odor-eliminator-for-car-interior&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Bad smells in your car can ruin every drive. Finding the best odor eliminator for your car interior helps keep it fresh and clean.**

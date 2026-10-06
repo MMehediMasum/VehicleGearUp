@@ -1,10 +1,14 @@
 ---
-title: "Do Electric Car Batteries Explode When Wet? Myth or Danger Revealed"
-description: "Have you ever wondered if electric car batteries can explode when they get wet? It’s a question that sparks concern for many people thinking about switching to "
+title: Do Electric Car Batteries Explode When Wet? Myth or Danger Revealed
+description: 'Have you ever wondered if electric car batteries can explode when they
+  get wet? It’s a question that sparks concern for many people thinking about switching
+  to '
 pubDate: 2025-11-10
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-electric-car-batteries-explode-when-wet&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hybrid Battery and Braking
+heroImage: https://tse1.mm.bing.net/th?q=do-electric-car-batteries-explode-when-wet&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Have you ever wondered if electric car batteries can explode when they get wet? It’s a question that sparks concern for many people thinking about switching to an electric vehicle.**

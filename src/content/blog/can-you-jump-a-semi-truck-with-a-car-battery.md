@@ -1,10 +1,14 @@
 ---
-title: "Can You Jump a Semi Truck With a Car Battery: Essential Tips"
-description: "Can You Jump a Semi Truck With a Car Battery? Are you stranded on the side of the road with a dead semi truck battery? You're not alone. Thousands of truck driv"
+title: 'Can You Jump a Semi Truck With a Car Battery: Essential Tips'
+description: Can You Jump a Semi Truck With a Car Battery? Are you stranded on the
+  side of the road with a dead semi truck battery? You're not alone. Thousands of
+  truck driv
 pubDate: 2026-03-29
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-jump-a-semi-truck-with-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jump Starting Special Cases
+heroImage: https://tse1.mm.bing.net/th?q=can-you-jump-a-semi-truck-with-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Can You Jump a Semi Truck With a Car Battery? Are you stranded on the side of the road with a dead semi truck battery?**

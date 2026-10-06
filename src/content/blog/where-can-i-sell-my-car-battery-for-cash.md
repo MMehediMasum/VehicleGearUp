@@ -1,10 +1,14 @@
 ---
-title: "Where Can I Sell My Car Battery for Cash: Top Places to Get Paid Fast"
-description: "Are you wondering, \"Where can I sell my car battery for cash?\" You’re not alone. Many people have old or used car batteries sitting around, taking up space and "
+title: 'Where Can I Sell My Car Battery for Cash: Top Places to Get Paid Fast'
+description: 'Are you wondering, "Where can I sell my car battery for cash?" You’re
+  not alone. Many people have old or used car batteries sitting around, taking up
+  space and '
 pubDate: 2026-04-10
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-sell-my-car-battery-for-cash&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Choosing the Best Battery
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-sell-my-car-battery-for-cash&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you wondering, "Where can I sell my car battery for cash?" You’re not alone.**

@@ -1,10 +1,14 @@
 ---
-title: "What is the Running Temperature of a Car Engine: Essential Facts"
-description: "Have you ever wondered what the ideal running temperature of your car engine should be? Knowing this can save you from unexpected breakdowns and costly repairs."
+title: 'What is the Running Temperature of a Car Engine: Essential Facts'
+description: Have you ever wondered what the ideal running temperature of your car
+  engine should be? Knowing this can save you from unexpected breakdowns and costly
+  repairs.
 pubDate: 2026-04-24
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-running-temperature-of-a-car-engine&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- How Car Engines Work
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-running-temperature-of-a-car-engine&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you ever wondered what the ideal running temperature of your car engine should be? Knowing this can save you from unexpected breakdowns and costly repairs.**

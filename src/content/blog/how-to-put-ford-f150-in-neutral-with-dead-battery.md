@@ -1,10 +1,14 @@
 ---
-title: "How to Put Ford F150 in Neutral With Dead Battery: Quick Guide"
-description: "Have you ever been stuck with your Ford F150 because the battery died and you couldn’t shift into neutral? It’s a frustrating situation, especially when you nee"
+title: 'How to Put Ford F150 in Neutral With Dead Battery: Quick Guide'
+description: Have you ever been stuck with your Ford F150 because the battery died
+  and you couldn’t shift into neutral? It’s a frustrating situation, especially when
+  you nee
 pubDate: 2026-04-15
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-put-ford-f150-in-neutral-with-dead-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Neutral With Dead Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-put-ford-f150-in-neutral-with-dead-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever been stuck with your Ford F150 because the battery died and you couldn’t shift into neutral? It’s a frustrating situation, especially when you need to move your truck quickly.**

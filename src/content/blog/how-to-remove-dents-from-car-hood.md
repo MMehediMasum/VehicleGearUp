@@ -1,10 +1,13 @@
 ---
-title: "How to Remove Dents from Car Hood: Easy DIY Fixes That Work"
-description: "Have you noticed a dent on your car hood and wondered how to fix it without spending a fortune? That small dent might seem like just a blemish, but it can affec"
+title: 'How to Remove Dents from Car Hood: Easy DIY Fixes That Work'
+description: Have you noticed a dent on your car hood and wondered how to fix it without
+  spending a fortune? That small dent might seem like just a blemish, but it can affec
 pubDate: 2026-02-11
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-remove-dents-from-car-hood&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hood Dents and Chips
+heroImage: https://tse1.mm.bing.net/th?q=how-to-remove-dents-from-car-hood&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you noticed a dent on your car hood and wondered how to fix it without spending a fortune? That small dent might seem like just a blemish, but it can affect your car’s look and value more than you think.**

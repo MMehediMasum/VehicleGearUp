@@ -1,10 +1,14 @@
 ---
-title: "Which Cable to Disconnect on Car Battery: Expert Guide for Safety"
-description: "If you need to disconnect your car battery, knowing which cable to unplug first is crucial. Choosing the wrong cable can cause sparks, damage your vehicle’s ele"
+title: 'Which Cable to Disconnect on Car Battery: Expert Guide for Safety'
+description: If you need to disconnect your car battery, knowing which cable to unplug
+  first is crucial. Choosing the wrong cable can cause sparks, damage your vehicle’s
+  ele
 pubDate: 2026-04-03
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=which-cable-to-disconnect-on-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Disconnect Order
+heroImage: https://tse1.mm.bing.net/th?q=which-cable-to-disconnect-on-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **If you need to disconnect your car battery, knowing which cable to unplug first is crucial. Choosing the wrong cable can cause sparks, damage your vehicle’s electrical system, or even harm you.**

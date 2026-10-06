@@ -1,10 +1,14 @@
 ---
-title: "Is the Hyundai Sonata All Wheel Drive? Ultimate AWD Guide"
-description: "Are you wondering if the Hyundai Sonata comes with all-wheel drive? If you’re looking for a car that handles well in different weather and road conditions, this"
+title: Is the Hyundai Sonata All Wheel Drive? Ultimate AWD Guide
+description: Are you wondering if the Hyundai Sonata comes with all-wheel drive? If
+  you’re looking for a car that handles well in different weather and road conditions,
+  this
 pubDate: 2025-11-07
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-the-hyundai-sonata-all-wheel-drive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- All Wheel Drive Questions
+heroImage: https://tse1.mm.bing.net/th?q=is-the-hyundai-sonata-all-wheel-drive&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you wondering if the Hyundai Sonata comes with all-wheel drive? If you’re looking for a car that handles well in different weather and road conditions, this question matters a lot.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Tire Brand for Jeep Grand Cherokee: Top Picks for Ultimate Performance"
-description: "Choosing the best tire brand for your Jeep Grand Cherokee is essential for safety and performance. The right tires improve handling, comfort, and durability on "
+title: 'Best Tire Brand for Jeep Grand Cherokee: Top Picks for Ultimate Performance'
+description: 'Choosing the best tire brand for your Jeep Grand Cherokee is essential
+  for safety and performance. The right tires improve handling, comfort, and durability
+  on '
 pubDate: 2026-01-08
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tire-brand-for-jeep-grand-cherokee&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Choosing Tire Brands
+heroImage: https://tse1.mm.bing.net/th?q=best-tire-brand-for-jeep-grand-cherokee&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tire brand for your Jeep Grand Cherokee is essential for safety and performance. The right tires improve handling, comfort, and durability on all road types.**

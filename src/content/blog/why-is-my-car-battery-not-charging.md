@@ -1,10 +1,14 @@
 ---
-title: "Why is My Car Battery Not Charging: Top Causes & Quick Fixes"
-description: "Is your car battery not charging, leaving you stranded or worried about when it might fail completely? You’re not alone, and understanding why this happens can "
+title: 'Why is My Car Battery Not Charging: Top Causes & Quick Fixes'
+description: 'Is your car battery not charging, leaving you stranded or worried about
+  when it might fail completely? You’re not alone, and understanding why this happens
+  can '
 pubDate: 2025-11-19
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-is-my-car-battery-not-charging&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Charging While Idling
+heroImage: https://tse1.mm.bing.net/th?q=why-is-my-car-battery-not-charging&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your car battery not charging, leaving you stranded or worried about when it might fail completely? You’re not alone, and understanding why this happens can save you time, money, and frustration.**

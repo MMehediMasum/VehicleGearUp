@@ -1,10 +1,14 @@
 ---
-title: "How to Tell How Old My Car Battery is: Quick & Easy Guide"
-description: "Wondering how old your car battery is? Knowing your battery’s age can save you from unexpected breakdowns and costly repairs. If your car is acting sluggish or "
+title: 'How to Tell How Old My Car Battery is: Quick & Easy Guide'
+description: 'Wondering how old your car battery is? Knowing your battery’s age can
+  save you from unexpected breakdowns and costly repairs. If your car is acting sluggish
+  or '
 pubDate: 2026-04-09
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-tell-how-old-my-car-battery-is&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Types and Specs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-tell-how-old-my-car-battery-is&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Wondering how old your car battery is? Knowing your battery’s age can save you from unexpected breakdowns and costly repairs.**

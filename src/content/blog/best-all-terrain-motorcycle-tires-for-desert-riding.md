@@ -1,10 +1,14 @@
 ---
-title: "Best All Terrain Motorcycle Tires for Desert Riding: Top Durable Picks"
-description: "Choosing the right all-terrain motorcycle tires makes desert riding safer and more enjoyable. These tires handle sand, rocks, and rough surfaces with ease. Dese"
+title: 'Best All Terrain Motorcycle Tires for Desert Riding: Top Durable Picks'
+description: Choosing the right all-terrain motorcycle tires makes desert riding safer
+  and more enjoyable. These tires handle sand, rocks, and rough surfaces with ease.
+  Dese
 pubDate: 2026-01-11
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-all-terrain-motorcycle-tires-for-desert-riding&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-all-terrain-motorcycle-tires-for-desert-riding&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the right all-terrain motorcycle tires makes desert riding safer and more enjoyable. These tires handle sand, rocks, and rough surfaces with ease.**

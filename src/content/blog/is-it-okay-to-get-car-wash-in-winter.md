@@ -1,10 +1,14 @@
 ---
-title: "Is It Okay to Get Car Wash in Winter: Essential Tips Revealed"
-description: "Have you ever wondered if it’s really okay to get your car washed during winter? You might think that washing your car when it’s freezing outside could do more "
+title: 'Is It Okay to Get Car Wash in Winter: Essential Tips Revealed'
+description: 'Have you ever wondered if it’s really okay to get your car washed during
+  winter? You might think that washing your car when it’s freezing outside could do
+  more '
 pubDate: 2026-03-20
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-it-okay-to-get-car-wash-in-winter&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Winter Car Wash Questions
+heroImage: https://tse1.mm.bing.net/th?q=is-it-okay-to-get-car-wash-in-winter&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever wondered if it’s really okay to get your car washed during winter? You might think that washing your car when it’s freezing outside could do more harm than good.**

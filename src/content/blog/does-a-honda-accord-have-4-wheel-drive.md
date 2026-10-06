@@ -1,10 +1,14 @@
 ---
-title: "Does a Honda Accord Have 4 Wheel Drive: Truth Revealed!"
-description: "Are you wondering if the Honda Accord comes with 4-wheel drive? You’re not alone. Many drivers want to know if this popular sedan offers the extra traction and "
+title: 'Does a Honda Accord Have 4 Wheel Drive: Truth Revealed!'
+description: 'Are you wondering if the Honda Accord comes with 4-wheel drive? You’re
+  not alone. Many drivers want to know if this popular sedan offers the extra traction
+  and '
 pubDate: 2025-12-16
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-a-honda-accord-have-4-wheel-drive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota 4WD Questions
+heroImage: https://tse1.mm.bing.net/th?q=does-a-honda-accord-have-4-wheel-drive&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you wondering if the Honda Accord comes with 4-wheel drive? You’re not alone.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Size Wheels And Tires for Jeep Wrangler: Ultimate 17-Inch Combo Guide"
-description: "Choosing the best size wheels and tires for your Jeep Wrangler improves both performance and style. The right fit ensures better handling on and off the road. J"
+title: 'Best Size Wheels And Tires for Jeep Wrangler: Ultimate 17-Inch Combo Guide'
+description: Choosing the best size wheels and tires for your Jeep Wrangler improves
+  both performance and style. The right fit ensures better handling on and off the
+  road. J
 pubDate: 2026-01-10
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-size-wheels-and-tires-for-jeep-wrangler&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jeep Wheels and Rims
+heroImage: https://tse1.mm.bing.net/th?q=best-size-wheels-and-tires-for-jeep-wrangler&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best size wheels and tires for your Jeep Wrangler improves both performance and style. The right fit ensures better handling on and off the road.**

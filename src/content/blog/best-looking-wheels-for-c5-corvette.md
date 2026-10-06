@@ -1,10 +1,14 @@
 ---
-title: "Best Looking Wheels for C5 Corvette: Top OE Wheels for Style & Performance"
-description: "Choosing the best looking wheels can greatly improve your C5 Corvette’s style and performance. The right rims add personality and enhance the car’s classic desi"
+title: 'Best Looking Wheels for C5 Corvette: Top OE Wheels for Style & Performance'
+description: Choosing the best looking wheels can greatly improve your C5 Corvette’s
+  style and performance. The right rims add personality and enhance the car’s classic
+  desi
 pubDate: 2025-12-31
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-looking-wheels-for-c5-corvette&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jeep Wheels and Rims
+heroImage: https://tse1.mm.bing.net/th?q=best-looking-wheels-for-c5-corvette&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best looking wheels can greatly improve your C5 Corvette’s style and performance. The right rims add personality and enhance the car’s classic design.**

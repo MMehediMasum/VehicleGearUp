@@ -1,10 +1,14 @@
 ---
-title: "Best Car Wash for Ceramic Coating: Top Products for Ultimate Shine"
-description: "Choosing the best car wash for ceramic coating protects your vehicle’s finish and enhances its shine. Using the right product keeps the coating strong and water"
+title: 'Best Car Wash for Ceramic Coating: Top Products for Ultimate Shine'
+description: Choosing the best car wash for ceramic coating protects your vehicle’s
+  finish and enhances its shine. Using the right product keeps the coating strong
+  and water
 pubDate: 2026-07-03
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-wash-for-ceramic-coating&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Washing Ceramic Coated Cars
+heroImage: https://tse1.mm.bing.net/th?q=best-car-wash-for-ceramic-coating&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best car wash for ceramic coating protects your vehicle’s finish and enhances its shine. Using the right product keeps the coating strong and water-repellent.**

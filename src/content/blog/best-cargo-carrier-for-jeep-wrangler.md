@@ -1,10 +1,14 @@
 ---
-title: "Best Cargo Carrier for Jeep Wrangler: Top Durable Hitch Mount Options"
-description: "Finding the best cargo carrier for your Jeep Wrangler boosts storage space and convenience on every trip. These carriers offer strong, reliable hauling for all "
+title: 'Best Cargo Carrier for Jeep Wrangler: Top Durable Hitch Mount Options'
+description: 'Finding the best cargo carrier for your Jeep Wrangler boosts storage
+  space and convenience on every trip. These carriers offer strong, reliable hauling
+  for all '
 pubDate: 2025-11-16
-author: "herbertlangham"
-categories: ["Towing & Hauling"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cargo-carrier-for-jeep-wrangler&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Truck Caps and Bed Liners
+heroImage: https://tse1.mm.bing.net/th?q=best-cargo-carrier-for-jeep-wrangler&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Finding the best cargo carrier for your Jeep Wrangler boosts storage space and convenience on every trip. These carriers offer strong, reliable hauling for all your gear.**

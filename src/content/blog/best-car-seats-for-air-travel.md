@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Car Seats for Air Travel: Lightweight, Portable, and Kid-Friendly Choices"
 description: "Choosing the best car seat for air travel ensures your child’s safety and comfort on the go. Compact, lightweight, and portable options make flying with kids ea"
 pubDate: 2026-07-24

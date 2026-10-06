@@ -1,10 +1,14 @@
 ---
-title: "How to Check Car Battery Health Without Multimeter: Easy Tips"
-description: "Is your car acting a little sluggish lately? You might be wondering if your battery is the problem. But what if you don’t have a multimeter handy to check its h"
+title: 'How to Check Car Battery Health Without Multimeter: Easy Tips'
+description: Is your car acting a little sluggish lately? You might be wondering if
+  your battery is the problem. But what if you don’t have a multimeter handy to check
+  its h
 pubDate: 2026-04-20
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-check-car-battery-health-without-multimeter&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Types and Specs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-check-car-battery-health-without-multimeter&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your car acting a little sluggish lately? You might be wondering if your battery is the problem.**

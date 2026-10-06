@@ -1,10 +1,14 @@
 ---
-title: "How Do You Install a New Car Battery: Step-by-Step Guide"
-description: "Is your car struggling to start or showing signs of a weak battery? Replacing your car battery might be the quick fix you need, and guess what? You don’t have t"
+title: 'How Do You Install a New Car Battery: Step-by-Step Guide'
+description: Is your car struggling to start or showing signs of a weak battery? Replacing
+  your car battery might be the quick fix you need, and guess what? You don’t have
+  t
 pubDate: 2025-09-27
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-install-a-new-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Price and Installation
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-install-a-new-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your car struggling to start or showing signs of a weak battery? Replacing your car battery might be the quick fix you need, and guess what?**

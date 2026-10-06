@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Seat Memory in Jeep Grand Cherokee: Easy Step-by-Step Guide"
-description: "Have you ever settled into your Jeep Grand Cherokee, only to find your seat position isn’t quite right? Maybe someone else adjusted it, or the memory settings g"
+title: 'How to Reset Seat Memory in Jeep Grand Cherokee: Easy Step-by-Step Guide'
+description: Have you ever settled into your Jeep Grand Cherokee, only to find your
+  seat position isn’t quite right? Maybe someone else adjusted it, or the memory settings
+  g
 pubDate: 2025-09-06
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-seat-memory-in-jeep-grand-cherokee&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jeep Grand Cherokee Resets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-seat-memory-in-jeep-grand-cherokee&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Have you ever settled into your Jeep Grand Cherokee, only to find your seat position isn’t quite right? Maybe someone else adjusted it, or the memory settings got mixed up.**

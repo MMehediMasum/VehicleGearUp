@@ -1,10 +1,14 @@
 ---
-title: "How to Avoid Rats in Car Engine: Effective Tips to Protect Your Ride"
-description: "Imagine starting your car only to find strange noises coming from the engine or discovering chewed wires under the hood. Rats in your car engine can cause serio"
+title: 'How to Avoid Rats in Car Engine: Effective Tips to Protect Your Ride'
+description: Imagine starting your car only to find strange noises coming from the
+  engine or discovering chewed wires under the hood. Rats in your car engine can cause
+  serio
 pubDate: 2026-05-08
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-avoid-rats-in-car-engine&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Keeping Pests Out of Engines
+heroImage: https://tse1.mm.bing.net/th?q=how-to-avoid-rats-in-car-engine&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Imagine starting your car only to find strange noises coming from the engine or discovering chewed wires under the hood. Rats in your car engine can cause serious damage and costly repairs.**

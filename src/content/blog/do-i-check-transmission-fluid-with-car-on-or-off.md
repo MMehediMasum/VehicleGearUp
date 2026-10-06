@@ -1,10 +1,14 @@
 ---
-title: "Do I Check Transmission Fluid With Car on Or off: Expert Guide"
-description: "Are you unsure whether to check your car’s transmission fluid with the engine on or off? You’re not alone. Getting this small step right can save you from costl"
+title: 'Do I Check Transmission Fluid With Car on Or off: Expert Guide'
+description: Are you unsure whether to check your car’s transmission fluid with the
+  engine on or off? You’re not alone. Getting this small step right can save you from
+  costl
 pubDate: 2026-05-05
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-i-check-transmission-fluid-with-car-on-or-off&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Transmission Fluid Checks
+heroImage: https://tse1.mm.bing.net/th?q=do-i-check-transmission-fluid-with-car-on-or-off&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Are you unsure whether to check your car’s transmission fluid with the engine on or off? You’re not alone.**

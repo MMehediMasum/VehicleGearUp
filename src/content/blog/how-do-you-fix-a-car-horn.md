@@ -1,10 +1,14 @@
 ---
-title: "How Do You Fix a Car Horn: Quick & Easy DIY Solutions"
-description: "Is your car horn suddenly silent when you need it most? A faulty horn can be more than just an annoyance—it’s a safety risk that you shouldn’t ignore. You might"
+title: 'How Do You Fix a Car Horn: Quick & Easy DIY Solutions'
+description: Is your car horn suddenly silent when you need it most? A faulty horn
+  can be more than just an annoyance—it’s a safety risk that you shouldn’t ignore.
+  You might
 pubDate: 2025-10-24
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-fix-a-car-horn&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Horn Problems
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-fix-a-car-horn&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your car horn suddenly silent when you need it most? A faulty horn can be more than just an annoyance—it’s a safety risk that you shouldn’t ignore.**

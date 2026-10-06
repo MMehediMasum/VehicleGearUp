@@ -1,10 +1,14 @@
 ---
-title: "How to Connect Trailer Lights to Car Without Adapter: Easy Guide"
-description: "Are you ready to tow your trailer but don’t have an adapter for the lights? Don’t worry—connecting trailer lights to your car without an adapter is simpler than"
+title: 'How to Connect Trailer Lights to Car Without Adapter: Easy Guide'
+description: Are you ready to tow your trailer but don’t have an adapter for the lights?
+  Don’t worry—connecting trailer lights to your car without an adapter is simpler
+  than
 pubDate: 2025-11-01
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-connect-trailer-lights-to-car-without-adapter&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Trailer Gear and Accessories
+heroImage: https://tse1.mm.bing.net/th?q=how-to-connect-trailer-lights-to-car-without-adapter&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Are you ready to tow your trailer but don’t have an adapter for the lights? Don’t worry—connecting trailer lights to your car without an adapter is simpler than you think.**

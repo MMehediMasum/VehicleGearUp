@@ -1,10 +1,14 @@
 ---
-title: "Why is the Tesla Cybertruck So Ugly: Shocking Design Truths Revealed"
-description: "You’ve probably seen the Tesla Cybertruck and wondered, “Why is it so ugly?” Its sharp angles and unusual shape break all the rules of traditional truck design."
+title: 'Why is the Tesla Cybertruck So Ugly: Shocking Design Truths Revealed'
+description: You’ve probably seen the Tesla Cybertruck and wondered, “Why is it so
+  ugly?” Its sharp angles and unusual shape break all the rules of traditional truck
+  design.
 pubDate: 2026-02-09
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-is-the-tesla-cybertruck-so-ugly&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Model Y Features
+heroImage: https://tse1.mm.bing.net/th?q=why-is-the-tesla-cybertruck-so-ugly&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **You’ve probably seen the Tesla Cybertruck and wondered, “Why is it so ugly?” Its sharp angles and unusual shape break all the rules of traditional truck design. But there’s more to this bold look than just being different.**

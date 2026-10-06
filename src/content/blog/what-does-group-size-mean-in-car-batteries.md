@@ -1,10 +1,14 @@
 ---
-title: "What Does Group Size Mean in Car Batteries: Ultimate Guide Explained"
-description: "When it comes to choosing the right car battery, you might have seen the term \"group size\" and wondered what it actually means. Understanding group size is cruc"
+title: 'What Does Group Size Mean in Car Batteries: Ultimate Guide Explained'
+description: When it comes to choosing the right car battery, you might have seen
+  the term "group size" and wondered what it actually means. Understanding group size
+  is cruc
 pubDate: 2025-12-09
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-does-group-size-mean-in-car-batteries&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Types and Specs
+heroImage: https://tse1.mm.bing.net/th?q=what-does-group-size-mean-in-car-batteries&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **When it comes to choosing the right car battery, you might have seen the term "group size" and wondered what it actually means. Understanding group size is crucial because it affects how well the battery fits your vehicle and performs under different conditions.**

@@ -1,10 +1,14 @@
 ---
-title: "Is a Ford Explorer All Wheel Drive: Ultimate Traction Uncovered"
-description: "Are you curious about whether the Ford Explorer comes with all-wheel drive? If you want a vehicle that handles well in different road conditions, this question "
+title: 'Is a Ford Explorer All Wheel Drive: Ultimate Traction Uncovered'
+description: 'Are you curious about whether the Ford Explorer comes with all-wheel
+  drive? If you want a vehicle that handles well in different road conditions, this
+  question '
 pubDate: 2025-11-12
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-a-ford-explorer-all-wheel-drive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- All Wheel Drive Questions
+heroImage: https://tse1.mm.bing.net/th?q=is-a-ford-explorer-all-wheel-drive&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you curious about whether the Ford Explorer comes with all-wheel drive? If you want a vehicle that handles well in different road conditions, this question matters a lot.**

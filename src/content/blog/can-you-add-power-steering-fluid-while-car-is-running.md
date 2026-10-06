@@ -1,10 +1,14 @@
 ---
-title: "Can You Add Power Steering Fluid While Car is Running? Essential Tips"
-description: "Have you ever noticed your steering feeling stiff or making strange noises? If so, you might be wondering, \"Can you add power steering fluid while your car is r"
+title: Can You Add Power Steering Fluid While Car is Running? Essential Tips
+description: Have you ever noticed your steering feeling stiff or making strange noises?
+  If so, you might be wondering, "Can you add power steering fluid while your car
+  is r
 pubDate: 2026-05-14
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-add-power-steering-fluid-while-car-is-running&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Power Steering Fluid and Additives
+heroImage: https://tse1.mm.bing.net/th?q=can-you-add-power-steering-fluid-while-car-is-running&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever noticed your steering feeling stiff or making strange noises? If so, you might be wondering, "Can you add power steering fluid while your car is running?"**

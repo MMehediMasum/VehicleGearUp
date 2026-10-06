@@ -1,10 +1,13 @@
 ---
-title: "Best Tires for 22 Inch Rims on Truck: Top Picks for Performance and Durability"
-description: "Choosing the best tires for 22 inch rims on your truck can improve safety and performance. The right tires fit well and handle different road conditions smoothl"
+title: 'Best Tires for 22 Inch Rims on Truck: Top Picks for Performance and Durability'
+description: Choosing the best tires for 22 inch rims on your truck can improve safety
+  and performance. The right tires fit well and handle different road conditions smoothl
 pubDate: 2026-01-09
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-22-inch-rims-on-truck&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jeep Wheels and Rims
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-22-inch-rims-on-truck&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for 22 inch rims on your truck can improve safety and performance. The right tires fit well and handle different road conditions smoothly.**

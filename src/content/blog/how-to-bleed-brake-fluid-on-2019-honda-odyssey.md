@@ -1,10 +1,14 @@
 ---
-title: "How to Bleed Brake Fluid on 2019 Honda Odyssey: Easy Step-by-Step Guide"
-description: "If you’ve noticed your brake pedal feeling soft or less responsive in your 2019 Honda Odyssey, it might be time to bleed the brake fluid. Bleeding your brakes i"
+title: 'How to Bleed Brake Fluid on 2019 Honda Odyssey: Easy Step-by-Step Guide'
+description: If you’ve noticed your brake pedal feeling soft or less responsive in
+  your 2019 Honda Odyssey, it might be time to bleed the brake fluid. Bleeding your
+  brakes i
 pubDate: 2026-04-25
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-bleed-brake-fluid-on-2019-honda-odyssey&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Brake and Washer Fluids
+heroImage: https://tse1.mm.bing.net/th?q=how-to-bleed-brake-fluid-on-2019-honda-odyssey&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you’ve noticed your brake pedal feeling soft or less responsive in your 2019 Honda Odyssey, it might be time to bleed the brake fluid. Bleeding your brakes is a simple but crucial step to keep your vehicle safe and performing at its best.**

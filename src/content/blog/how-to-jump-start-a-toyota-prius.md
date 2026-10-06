@@ -1,10 +1,14 @@
 ---
-title: "How to Jump Start a Toyota Prius: Quick & Easy Step-by-Step Guide"
-description: "Your Toyota Prius won’t start, and you need a quick fix. Knowing how to jump start your Prius can save you time, stress, and an expensive tow. But hybrid cars l"
+title: 'How to Jump Start a Toyota Prius: Quick & Easy Step-by-Step Guide'
+description: Your Toyota Prius won’t start, and you need a quick fix. Knowing how
+  to jump start your Prius can save you time, stress, and an expensive tow. But hybrid
+  cars l
 pubDate: 2025-12-06
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-jump-start-a-toyota-prius&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hybrid Battery and Braking
+heroImage: https://tse1.mm.bing.net/th?q=how-to-jump-start-a-toyota-prius&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Your Toyota Prius won’t start, and you need a quick fix. Knowing how to jump start your Prius can save you time, stress, and an expensive tow.**

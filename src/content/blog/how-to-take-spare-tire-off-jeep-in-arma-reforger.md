@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Take Spare Tire off Jeep in Arma Reforger: Easy Steps Revealed"
 description: "Have you ever found yourself stuck with a spare tire on your Jeep in Arma Reforger and didn’t know how to remove it? You’re not alone. Knowing how to take the s"
 pubDate: 2026-03-14

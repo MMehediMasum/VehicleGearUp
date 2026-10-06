@@ -1,10 +1,14 @@
 ---
-title: "How Do You Know When Your Car Needs Transmission Fluid: Key Signs Revealed"
-description: "Have you ever wondered if your car’s transmission fluid needs a check? Ignoring this simple step could lead to costly repairs and leave you stranded. Knowing th"
+title: 'How Do You Know When Your Car Needs Transmission Fluid: Key Signs Revealed'
+description: Have you ever wondered if your car’s transmission fluid needs a check?
+  Ignoring this simple step could lead to costly repairs and leave you stranded. Knowing
+  th
 pubDate: 2026-05-17
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-know-when-your-car-needs-transmission-fluid&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Adding Transmission Fluid
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-know-when-your-car-needs-transmission-fluid&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever wondered if your car’s transmission fluid needs a check? Ignoring this simple step could lead to costly repairs and leave you stranded.**

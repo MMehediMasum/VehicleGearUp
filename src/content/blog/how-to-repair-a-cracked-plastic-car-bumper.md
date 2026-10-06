@@ -1,10 +1,14 @@
 ---
-title: "How to Repair a Cracked Plastic Car Bumper: Easy DIY Fixes"
-description: "Have you noticed a crack on your plastic car bumper and wondered if you can fix it yourself? A cracked bumper not only looks bad but can also affect your car’s "
+title: 'How to Repair a Cracked Plastic Car Bumper: Easy DIY Fixes'
+description: 'Have you noticed a crack on your plastic car bumper and wondered if
+  you can fix it yourself? A cracked bumper not only looks bad but can also affect
+  your car’s '
 pubDate: 2025-09-29
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-repair-a-cracked-plastic-car-bumper&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Bumper Dent and Scratch Repair
+heroImage: https://tse1.mm.bing.net/th?q=how-to-repair-a-cracked-plastic-car-bumper&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you noticed a crack on your plastic car bumper and wondered if you can fix it yourself? A cracked bumper not only looks bad but can also affect your car’s safety.**

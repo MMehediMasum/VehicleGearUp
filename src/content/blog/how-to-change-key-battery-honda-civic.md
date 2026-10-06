@@ -1,10 +1,14 @@
 ---
-title: "How to Change Key Battery Honda Civic: Easy Step-by-Step Guide"
-description: "Is your Honda Civic key fob acting up or not working at all? It might be time to change the battery. Knowing how to replace your key battery yourself can save y"
+title: 'How to Change Key Battery Honda Civic: Easy Step-by-Step Guide'
+description: Is your Honda Civic key fob acting up or not working at all? It might
+  be time to change the battery. Knowing how to replace your key battery yourself
+  can save y
 pubDate: 2026-03-29
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-key-battery-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Key Batteries
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-key-battery-honda-civic&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **Is your Honda Civic key fob acting up or not working at all? It might be time to change the battery.**

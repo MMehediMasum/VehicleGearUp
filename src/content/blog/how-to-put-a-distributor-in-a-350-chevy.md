@@ -1,10 +1,14 @@
 ---
-title: "How to Put a Distributor in a 350 Chevy: Step-by-Step Guide"
-description: "If you’re working on your 350 Chevy engine, putting in the distributor might seem tricky at first. But don’t worry—once you know the steps, it’s a job you can h"
+title: 'How to Put a Distributor in a 350 Chevy: Step-by-Step Guide'
+description: If you’re working on your 350 Chevy engine, putting in the distributor
+  might seem tricky at first. But don’t worry—once you know the steps, it’s a job
+  you can h
 pubDate: 2025-12-14
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-put-a-distributor-in-a-350-chevy&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Chevy Engine Tuning
+heroImage: https://tse1.mm.bing.net/th?q=how-to-put-a-distributor-in-a-350-chevy&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **If you’re working on your 350 Chevy engine, putting in the distributor might seem tricky at first. But don’t worry—once you know the steps, it’s a job you can handle yourself.**

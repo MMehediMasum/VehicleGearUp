@@ -1,10 +1,14 @@
 ---
-title: "How to Use a Scissor Car Jack: Easy Steps for Safe Lifting"
-description: "Have you ever found yourself stuck with a flat tire and no idea how to change it? Knowing how to use a scissor car jack can save you time, money, and stress whe"
+title: 'How to Use a Scissor Car Jack: Easy Steps for Safe Lifting'
+description: Have you ever found yourself stuck with a flat tire and no idea how to
+  change it? Knowing how to use a scissor car jack can save you time, money, and stress
+  whe
 pubDate: 2025-12-06
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-use-a-scissor-car-jack&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Jacks and Jack Stands
+heroImage: https://tse1.mm.bing.net/th?q=how-to-use-a-scissor-car-jack&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Have you ever found yourself stuck with a flat tire and no idea how to change it? Knowing how to use a scissor car jack can save you time, money, and stress when you need it most.**

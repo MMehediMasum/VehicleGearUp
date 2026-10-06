@@ -1,10 +1,14 @@
 ---
-title: "Does Drive Thru Car Wash Damage Paint? Shocking Truth Revealed!"
-description: "Are you worried that a quick trip through a drive-thru car wash might harm your car’s paint? You’re not alone. Many car owners wonder if these convenient washes"
+title: Does Drive Thru Car Wash Damage Paint? Shocking Truth Revealed!
+description: Are you worried that a quick trip through a drive-thru car wash might
+  harm your car’s paint? You’re not alone. Many car owners wonder if these convenient
+  washes
 pubDate: 2026-03-23
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-drive-thru-car-wash-damage-paint&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wash Costs and Etiquette
+heroImage: https://tse1.mm.bing.net/th?q=does-drive-thru-car-wash-damage-paint&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Are you worried that a quick trip through a drive-thru car wash might harm your car’s paint? You’re not alone.**

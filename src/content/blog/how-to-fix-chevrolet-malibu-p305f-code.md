@@ -1,10 +1,13 @@
 ---
-title: "How to Fix Chevrolet Malibu P305F Code: Easy Steps to Solve Fast"
-description: "If your Chevrolet Malibu is showing the P305F code, you’re probably wondering what it means and how to fix it fast. This error can affect your car’s performance"
+title: 'How to Fix Chevrolet Malibu P305F Code: Easy Steps to Solve Fast'
+description: If your Chevrolet Malibu is showing the P305F code, you’re probably wondering
+  what it means and how to fix it fast. This error can affect your car’s performance
 pubDate: 2025-10-30
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-chevrolet-malibu-p305f-code&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Warning Light Fixes
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-chevrolet-malibu-p305f-code&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If your Chevrolet Malibu is showing the P305F code, you’re probably wondering what it means and how to fix it fast. This error can affect your car’s performance and cause frustration if left unchecked.**

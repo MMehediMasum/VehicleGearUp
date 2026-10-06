@@ -1,10 +1,14 @@
 ---
-title: "How to Start Hyundai Tucson Without Key Fob: Quick & Easy Guide"
-description: "Have you ever found yourself locked out of your Hyundai Tucson because your key fob isn’t working? It’s frustrating, right? Whether the battery died or the fob "
+title: 'How to Start Hyundai Tucson Without Key Fob: Quick & Easy Guide'
+description: 'Have you ever found yourself locked out of your Hyundai Tucson because
+  your key fob isn’t working? It’s frustrating, right? Whether the battery died or
+  the fob '
 pubDate: 2026-02-15
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-start-hyundai-tucson-without-key-fob&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Starting Without Key Fob
+heroImage: https://tse1.mm.bing.net/th?q=how-to-start-hyundai-tucson-without-key-fob&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **Have you ever found yourself locked out of your Hyundai Tucson because your key fob isn’t working? It’s frustrating, right?**

@@ -1,10 +1,13 @@
 ---
-title: "Best Electric Fuel Pump for Carb: Top Reliable Low Pressure Picks"
-description: "Choosing the best electric fuel pump for carburetors ensures steady fuel flow and smooth engine performance. A reliable pump prevents engine stalls and improves"
+title: 'Best Electric Fuel Pump for Carb: Top Reliable Low Pressure Picks'
+description: Choosing the best electric fuel pump for carburetors ensures steady fuel
+  flow and smooth engine performance. A reliable pump prevents engine stalls and improves
 pubDate: 2026-06-14
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-electric-fuel-pump-for-carb&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Diesel Fuel Filters and Additives
+heroImage: https://tse1.mm.bing.net/th?q=best-electric-fuel-pump-for-carb&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best electric fuel pump for carburetors ensures steady fuel flow and smooth engine performance. A reliable pump prevents engine stalls and improves fuel efficiency.**

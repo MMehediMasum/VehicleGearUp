@@ -1,10 +1,14 @@
 ---
-title: "Best Spark Plug Wires for Performance: Top High-Quality Ignition Sets Reviewed"
-description: "Choosing the best spark plug wires can boost your engine’s performance and reliability. Quality wires deliver strong ignition and reduce energy loss. Spark plug"
+title: 'Best Spark Plug Wires for Performance: Top High-Quality Ignition Sets Reviewed'
+description: Choosing the best spark plug wires can boost your engine’s performance
+  and reliability. Quality wires deliver strong ignition and reduce energy loss. Spark
+  plug
 pubDate: 2026-06-20
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-spark-plug-wires-for-performance&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Chevy and GMC Spark Plugs
+heroImage: https://tse1.mm.bing.net/th?q=best-spark-plug-wires-for-performance&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best spark plug wires can boost your engine’s performance and reliability. Quality wires deliver strong ignition and reduce energy loss.**

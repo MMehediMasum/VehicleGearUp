@@ -1,10 +1,14 @@
 ---
-title: "Do You Turn Your Car off in a Car Wash: Essential Safety Tips"
-description: "Have you ever wondered whether you should turn your car off in a car wash? It might seem like a simple question, but the answer can actually affect your safety "
+title: 'Do You Turn Your Car off in a Car Wash: Essential Safety Tips'
+description: 'Have you ever wondered whether you should turn your car off in a car
+  wash? It might seem like a simple question, but the answer can actually affect your
+  safety '
 pubDate: 2026-03-23
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-you-turn-your-car-off-in-a-car-wash&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wash Basics
+heroImage: https://tse1.mm.bing.net/th?q=do-you-turn-your-car-off-in-a-car-wash&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever wondered whether you should turn your car off in a car wash? It might seem like a simple question, but the answer can actually affect your safety and your car’s performance.**

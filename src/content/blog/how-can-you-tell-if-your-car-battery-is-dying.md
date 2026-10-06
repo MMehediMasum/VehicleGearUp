@@ -1,10 +1,14 @@
 ---
-title: "How Can You Tell If Your Car Battery is Dying: Key Warning Signs"
-description: "Have you ever been stuck with a car that just won’t start? It’s frustrating, especially when you’re in a hurry. Most of the time, the culprit is a dying car bat"
+title: 'How Can You Tell If Your Car Battery is Dying: Key Warning Signs'
+description: Have you ever been stuck with a car that just won’t start? It’s frustrating,
+  especially when you’re in a hurry. Most of the time, the culprit is a dying car
+  bat
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-can-you-tell-if-your-car-battery-is-dying&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Signs of a Failing Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-can-you-tell-if-your-car-battery-is-dying&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever been stuck with a car that just won’t start? It’s frustrating, especially when you’re in a hurry.**

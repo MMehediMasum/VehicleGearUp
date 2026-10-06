@@ -1,10 +1,14 @@
 ---
-title: "How to Replace Key Battery Honda Accord: Quick & Easy Guide"
-description: "Is your Honda Accord’s key fob acting up? Maybe the buttons don’t respond, or the lock won’t work from a distance. The likely culprit is a dead key battery. But"
+title: 'How to Replace Key Battery Honda Accord: Quick & Easy Guide'
+description: Is your Honda Accord’s key fob acting up? Maybe the buttons don’t respond,
+  or the lock won’t work from a distance. The likely culprit is a dead key battery.
+  But
 pubDate: 2025-10-12
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-replace-key-battery-honda-accord&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Key Batteries
+heroImage: https://tse1.mm.bing.net/th?q=how-to-replace-key-battery-honda-accord&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **Is your Honda Accord’s key fob acting up? Maybe the buttons don’t respond, or the lock won’t work from a distance.**

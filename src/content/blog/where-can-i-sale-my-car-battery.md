@@ -1,10 +1,14 @@
 ---
-title: "Where Can I Sale My Car Battery: Top Places for Quick Cash"
-description: "Are you wondering, “Where can I sale my car battery?” You’re not alone. Whether your battery is old, damaged, or just no longer needed, finding the right place "
+title: 'Where Can I Sale My Car Battery: Top Places for Quick Cash'
+description: 'Are you wondering, “Where can I sale my car battery?” You’re not alone.
+  Whether your battery is old, damaged, or just no longer needed, finding the right
+  place '
 pubDate: 2026-04-10
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-sale-my-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Selling Old Car Batteries
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-sale-my-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you wondering, “Where can I sale my car battery?” You’re not alone. Whether your battery is old, damaged, or just no longer needed, finding the right place to sell it can be tricky.**

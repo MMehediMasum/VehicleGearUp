@@ -1,10 +1,14 @@
 ---
-title: "How to Test Car Battery With Voltmeter: Quick & Easy Guide"
-description: "Is your car having trouble starting, or do you suspect your battery might be weak? Knowing how to test your car battery with a voltmeter can save you time, mone"
+title: 'How to Test Car Battery With Voltmeter: Quick & Easy Guide'
+description: Is your car having trouble starting, or do you suspect your battery might
+  be weak? Knowing how to test your car battery with a voltmeter can save you time,
+  mone
 pubDate: 2026-04-12
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-test-car-battery-with-voltmeter&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Selling Old Car Batteries
+heroImage: https://tse1.mm.bing.net/th?q=how-to-test-car-battery-with-voltmeter&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your car having trouble starting, or do you suspect your battery might be weak? Knowing how to test your car battery with a voltmeter can save you time, money, and frustration.**

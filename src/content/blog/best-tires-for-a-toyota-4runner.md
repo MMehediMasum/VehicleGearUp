@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for a Toyota 4Runner: Top All-Terrain and All-Season Picks"
-description: "Choosing the best tires for your Toyota 4Runner is key to safe and smooth driving. The right tires improve grip, comfort, and durability on all roads. Toyota 4R"
+title: 'Best Tires for a Toyota 4Runner: Top All-Terrain and All-Season Picks'
+description: Choosing the best tires for your Toyota 4Runner is key to safe and smooth
+  driving. The right tires improve grip, comfort, and durability on all roads. Toyota
+  4R
 pubDate: 2025-11-03
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-a-toyota-4runner&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-a-toyota-4runner&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your Toyota 4Runner is key to safe and smooth driving. The right tires improve grip, comfort, and durability on all roads.**

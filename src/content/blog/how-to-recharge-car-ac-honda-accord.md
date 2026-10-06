@@ -1,10 +1,14 @@
 ---
-title: "How to Recharge Car Ac Honda Accord: Quick & Easy Guide"
-description: "Is your Honda Accord’s car AC not cooling like it used to? You’re not alone. Over time, your car’s air conditioning system can lose its chill, leaving you uncom"
+title: 'How to Recharge Car Ac Honda Accord: Quick & Easy Guide'
+description: Is your Honda Accord’s car AC not cooling like it used to? You’re not
+  alone. Over time, your car’s air conditioning system can lose its chill, leaving
+  you uncom
 pubDate: 2026-02-09
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-recharge-car-ac-honda-accord&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Coolant and AC Recharge
+heroImage: https://tse1.mm.bing.net/th?q=how-to-recharge-car-ac-honda-accord&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your Honda Accord’s car AC not cooling like it used to? You’re not alone.**

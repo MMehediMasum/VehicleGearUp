@@ -1,10 +1,14 @@
 ---
-title: "How Do You Build a Car Engine: Step-by-Step Guide for Beginners"
-description: "Have you ever wondered what it takes to build a car engine from scratch? Imagine turning a pile of metal parts into a powerful machine that can make your car ro"
+title: 'How Do You Build a Car Engine: Step-by-Step Guide for Beginners'
+description: Have you ever wondered what it takes to build a car engine from scratch?
+  Imagine turning a pile of metal parts into a powerful machine that can make your
+  car ro
 pubDate: 2026-04-23
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-build-a-car-engine&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- How Car Engines Work
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-build-a-car-engine&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you ever wondered what it takes to build a car engine from scratch? Imagine turning a pile of metal parts into a powerful machine that can make your car roar down the road.**

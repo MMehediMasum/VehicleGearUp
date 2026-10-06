@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Ford Maverick Hybrid: Top Valve Caps and Wheel Protectors"
-description: "Choosing the best tires for your Ford Maverick Hybrid improves safety and saves fuel. Quality tires fit well and last longer. The Ford Maverick Hybrid needs tir"
+title: 'Best Tires for Ford Maverick Hybrid: Top Valve Caps and Wheel Protectors'
+description: Choosing the best tires for your Ford Maverick Hybrid improves safety
+  and saves fuel. Quality tires fit well and last longer. The Ford Maverick Hybrid
+  needs tir
 pubDate: 2025-12-21
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-ford-maverick-hybrid&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hybrid Battery and Braking
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-ford-maverick-hybrid&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best tires for your Ford Maverick Hybrid improves safety and saves fuel. Quality tires fit well and last longer.**

@@ -1,10 +1,13 @@
 ---
-title: "Is the Ford Explorer Front Wheel Drive: Ultimate Guide Revealed"
-description: "Are you considering a Ford Explorer and wondering if it comes with front-wheel drive? Knowing the drive type can make a big difference in how your vehicle handl"
+title: 'Is the Ford Explorer Front Wheel Drive: Ultimate Guide Revealed'
+description: Are you considering a Ford Explorer and wondering if it comes with front-wheel
+  drive? Knowing the drive type can make a big difference in how your vehicle handl
 pubDate: 2025-11-12
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-the-ford-explorer-front-wheel-drive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford 4WD Questions
+heroImage: https://tse1.mm.bing.net/th?q=is-the-ford-explorer-front-wheel-drive&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you considering a Ford Explorer and wondering if it comes with front-wheel drive? Knowing the drive type can make a big difference in how your vehicle handles on the road, especially in different weather conditions.**

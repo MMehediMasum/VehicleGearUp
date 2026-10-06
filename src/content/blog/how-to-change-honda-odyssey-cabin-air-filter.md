@@ -1,10 +1,14 @@
 ---
-title: "How to Change Honda Odyssey Cabin Air Filter: Easy Step-by-Step Guide"
-description: "If you want fresh air inside your Honda Odyssey and better cabin comfort, changing the cabin air filter is key. You might not realize it, but a dirty filter can"
+title: 'How to Change Honda Odyssey Cabin Air Filter: Easy Step-by-Step Guide'
+description: If you want fresh air inside your Honda Odyssey and better cabin comfort,
+  changing the cabin air filter is key. You might not realize it, but a dirty filter
+  can
 pubDate: 2026-02-24
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-honda-odyssey-cabin-air-filter&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Cabin Air Filters
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-honda-odyssey-cabin-air-filter&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you want fresh air inside your Honda Odyssey and better cabin comfort, changing the cabin air filter is key. You might not realize it, but a dirty filter can make your car smell musty and reduce air flow.**

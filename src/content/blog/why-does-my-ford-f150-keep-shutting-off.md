@@ -1,10 +1,14 @@
 ---
-title: "Why Does My Ford F150 Keep Shutting Off: Top Causes Revealed"
-description: "Is your Ford F150 suddenly shutting off while you’re driving or idling? It’s frustrating, confusing, and can even feel dangerous. You want to know why this keep"
+title: 'Why Does My Ford F150 Keep Shutting Off: Top Causes Revealed'
+description: Is your Ford F150 suddenly shutting off while you’re driving or idling?
+  It’s frustrating, confusing, and can even feel dangerous. You want to know why this
+  keep
 pubDate: 2026-01-31
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-does-my-ford-f150-keep-shutting-off&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Not Starting Causes
+heroImage: https://tse1.mm.bing.net/th?q=why-does-my-ford-f150-keep-shutting-off&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your Ford F150 suddenly shutting off while you’re driving or idling? It’s frustrating, confusing, and can even feel dangerous.**

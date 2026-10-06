@@ -1,10 +1,14 @@
 ---
-title: "Can a Car Wash Scratch Your Car? Shocking Truth Revealed!"
-description: "Have you ever wondered if a simple trip to the car wash could actually damage your car’s paint? You take your vehicle there to keep it clean and shiny, but what"
+title: Can a Car Wash Scratch Your Car? Shocking Truth Revealed!
+description: Have you ever wondered if a simple trip to the car wash could actually
+  damage your car’s paint? You take your vehicle there to keep it clean and shiny,
+  but what
 pubDate: 2026-03-20
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-a-car-wash-scratch-your-car&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wash Costs and Etiquette
+heroImage: https://tse1.mm.bing.net/th?q=can-a-car-wash-scratch-your-car&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever wondered if a simple trip to the car wash could actually damage your car’s paint? You take your vehicle there to keep it clean and shiny, but what if the process leaves tiny scratches behind?**

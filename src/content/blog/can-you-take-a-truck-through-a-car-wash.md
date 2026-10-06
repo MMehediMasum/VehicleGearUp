@@ -1,10 +1,14 @@
 ---
-title: "Can You Take a Truck Through a Car Wash? Essential Tips Revealed"
-description: "Have you ever wondered if you can take your truck through a car wash without causing damage? If you’re like many truck owners, you want your vehicle to shine bu"
+title: Can You Take a Truck Through a Car Wash? Essential Tips Revealed
+description: Have you ever wondered if you can take your truck through a car wash
+  without causing damage? If you’re like many truck owners, you want your vehicle
+  to shine bu
 pubDate: 2026-03-23
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-take-a-truck-through-a-car-wash&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Going Through Car Washes
+heroImage: https://tse1.mm.bing.net/th?q=can-you-take-a-truck-through-a-car-wash&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever wondered if you can take your truck through a car wash without causing damage? If you’re like many truck owners, you want your vehicle to shine but worry about whether automatic car washes are safe or even practical for larger vehicles.**

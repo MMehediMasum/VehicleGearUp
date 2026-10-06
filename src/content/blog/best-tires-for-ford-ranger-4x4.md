@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Ford Ranger 4X4: Top All-Terrain Picks for Ultimate Performance"
-description: "Choosing the best tires for your Ford Ranger 4X4 improves safety and performance on all terrains. Quality tires handle rough roads and tough weather with ease. "
+title: 'Best Tires for Ford Ranger 4X4: Top All-Terrain Picks for Ultimate Performance'
+description: 'Choosing the best tires for your Ford Ranger 4X4 improves safety and
+  performance on all terrains. Quality tires handle rough roads and tough weather
+  with ease. '
 pubDate: 2025-12-29
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-ford-ranger-4x4&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford 4x4 Truck Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-ford-ranger-4x4&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your Ford Ranger 4X4 improves safety and performance on all terrains. Quality tires handle rough roads and tough weather with ease.**

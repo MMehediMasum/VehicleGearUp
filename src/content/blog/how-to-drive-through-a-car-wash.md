@@ -1,10 +1,14 @@
 ---
-title: "How to Drive Through a Car Wash: Easy Steps for a Sparkling Clean"
-description: "Have you ever felt unsure about what to do when you drive into a car wash? You’re not alone. Many people hesitate, worried about whether they’ll follow the righ"
+title: 'How to Drive Through a Car Wash: Easy Steps for a Sparkling Clean'
+description: Have you ever felt unsure about what to do when you drive into a car
+  wash? You’re not alone. Many people hesitate, worried about whether they’ll follow
+  the righ
 pubDate: 2026-03-22
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-drive-through-a-car-wash&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Going Through Car Washes
+heroImage: https://tse1.mm.bing.net/th?q=how-to-drive-through-a-car-wash&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever felt unsure about what to do when you drive into a car wash? You’re not alone.**

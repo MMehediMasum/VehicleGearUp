@@ -1,10 +1,14 @@
 ---
-title: "Best Off Road Tires for Jeep: Top Durable Picks for Rugged Trails"
-description: "Choosing the best off-road tires for your Jeep improves traction and safety on rough terrain. Durable tires handle mud, rocks, and sand with ease. Off-road tire"
+title: 'Best Off Road Tires for Jeep: Top Durable Picks for Rugged Trails'
+description: Choosing the best off-road tires for your Jeep improves traction and
+  safety on rough terrain. Durable tires handle mud, rocks, and sand with ease. Off-road
+  tire
 pubDate: 2025-12-23
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-off-road-tires-for-jeep&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jeep Off Road Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-off-road-tires-for-jeep&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best off-road tires for your Jeep improves traction and safety on rough terrain. Durable tires handle mud, rocks, and sand with ease.**

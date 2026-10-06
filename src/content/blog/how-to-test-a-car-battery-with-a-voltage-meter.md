@@ -1,10 +1,13 @@
 ---
-title: "How to Test a Car Battery With a Voltage Meter: Easy Step-by-Step Guide"
-description: "Is your car having trouble starting? It could be your battery. Knowing how to test a car battery with a voltage meter can save you time, money, and frustration."
+title: 'How to Test a Car Battery With a Voltage Meter: Easy Step-by-Step Guide'
+description: Is your car having trouble starting? It could be your battery. Knowing
+  how to test a car battery with a voltage meter can save you time, money, and frustration.
 pubDate: 2025-08-30
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-test-a-car-battery-with-a-voltage-meter&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Testing Battery With Multimeter
+heroImage: https://tse1.mm.bing.net/th?q=how-to-test-a-car-battery-with-a-voltage-meter&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your car having trouble starting? It could be your battery.**

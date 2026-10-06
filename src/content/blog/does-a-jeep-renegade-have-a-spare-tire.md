@@ -1,10 +1,14 @@
 ---
-title: "Does a Jeep Renegade Have a Spare Tire? Essential Facts Revealed"
-description: "Have you ever wondered if your Jeep Renegade comes with a spare tire? Whether you’re planning a weekend adventure or just want peace of mind on your daily drive"
+title: Does a Jeep Renegade Have a Spare Tire? Essential Facts Revealed
+description: Have you ever wondered if your Jeep Renegade comes with a spare tire?
+  Whether you’re planning a weekend adventure or just want peace of mind on your daily
+  drive
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-a-jeep-renegade-have-a-spare-tire&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spare Tires and Tire Changing
+heroImage: https://tse1.mm.bing.net/th?q=does-a-jeep-renegade-have-a-spare-tire&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Have you ever wondered if your Jeep Renegade comes with a spare tire? Whether you’re planning a weekend adventure or just want peace of mind on your daily drive, knowing this detail can make a big difference.**

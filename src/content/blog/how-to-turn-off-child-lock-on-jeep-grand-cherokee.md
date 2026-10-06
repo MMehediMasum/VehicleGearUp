@@ -1,10 +1,14 @@
 ---
-title: "How to Turn off Child Lock on Jeep Grand Cherokee: Quick Guide"
-description: "If you’ve ever struggled with the child lock on your Jeep Grand Cherokee, you know how frustrating it can be when the door won’t open from the inside. Maybe you"
+title: 'How to Turn off Child Lock on Jeep Grand Cherokee: Quick Guide'
+description: If you’ve ever struggled with the child lock on your Jeep Grand Cherokee,
+  you know how frustrating it can be when the door won’t open from the inside. Maybe
+  you
 pubDate: 2026-02-01
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-child-lock-on-jeep-grand-cherokee&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Unlocking With a Key
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-child-lock-on-jeep-grand-cherokee&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **If you’ve ever struggled with the child lock on your Jeep Grand Cherokee, you know how frustrating it can be when the door won’t open from the inside. Maybe you want to let your kids open the door themselves or simply need to turn off the lock quickly.**

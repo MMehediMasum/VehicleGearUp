@@ -1,10 +1,13 @@
 ---
-title: "Best Tires for Ford F150 Lariat: Top Picks for Ultimate Performance"
-description: "Choosing the best tires for your Ford F150 Lariat ensures safety, performance, and comfort on any road. Proper tires improve handling, fuel efficiency, and dura"
+title: 'Best Tires for Ford F150 Lariat: Top Picks for Ultimate Performance'
+description: Choosing the best tires for your Ford F150 Lariat ensures safety, performance,
+  and comfort on any road. Proper tires improve handling, fuel efficiency, and dura
 pubDate: 2025-12-31
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-ford-f150-lariat&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Car and Truck Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-ford-f150-lariat&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your Ford F150 Lariat ensures safety, performance, and comfort on any road. Proper tires improve handling, fuel efficiency, and durability.**

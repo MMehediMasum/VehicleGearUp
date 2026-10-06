@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for 2019 Toyota Highlander XLE: Top All-Season Picks Reviewed"
-description: "Choosing the best tires for your 2019 Toyota Highlander XLE boosts safety and driving comfort. The right tires improve handling, fuel efficiency, and ride quali"
+title: 'Best Tires for 2019 Toyota Highlander XLE: Top All-Season Picks Reviewed'
+description: Choosing the best tires for your 2019 Toyota Highlander XLE boosts safety
+  and driving comfort. The right tires improve handling, fuel efficiency, and ride
+  quali
 pubDate: 2026-01-05
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-2019-toyota-highlander-xle&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-2019-toyota-highlander-xle&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your 2019 Toyota Highlander XLE boosts safety and driving comfort. The right tires improve handling, fuel efficiency, and ride quality.**

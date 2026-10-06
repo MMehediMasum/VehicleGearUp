@@ -1,10 +1,14 @@
 ---
-title: "Best Weight Distribution Hitch for Half Ton Truck: Top Picks for Smooth Towing"
-description: "Choosing the best weight distribution hitch for a half ton truck improves towing safety and stability. It helps balance the trailer’s weight evenly across the t"
+title: 'Best Weight Distribution Hitch for Half Ton Truck: Top Picks for Smooth Towing'
+description: Choosing the best weight distribution hitch for a half ton truck improves
+  towing safety and stability. It helps balance the trailer’s weight evenly across
+  the t
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Towing & Hauling"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-weight-distribution-hitch-for-half-ton-truck&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Best Trucks for Towing
+heroImage: https://tse1.mm.bing.net/th?q=best-weight-distribution-hitch-for-half-ton-truck&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Choosing the best weight distribution hitch for a half ton truck improves towing safety and stability. It helps balance the trailer’s weight evenly across the truck and trailer axles.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Keep Mice Out of Car Engine Compartment: Proven Tips"
-description: "Have you ever turned the key in your car only to find it won’t start? Sometimes, the culprit is hiding right under your hood—mice. These tiny invaders can chew "
+title: 'How to Keep Mice Out of Car Engine Compartment: Proven Tips'
+description: 'Have you ever turned the key in your car only to find it won’t start?
+  Sometimes, the culprit is hiding right under your hood—mice. These tiny invaders
+  can chew '
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-keep-mice-out-of-car-engine-compartment&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Keeping Pests Out of Engines
+heroImage: https://tse1.mm.bing.net/th?q=how-to-keep-mice-out-of-car-engine-compartment&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever turned the key in your car only to find it won’t start? Sometimes, the culprit is hiding right under your hood—mice.**

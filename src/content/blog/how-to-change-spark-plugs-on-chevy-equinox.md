@@ -1,10 +1,14 @@
 ---
-title: "How to Change Spark Plugs on Chevy Equinox: Easy Step-by-Step Guide"
-description: "If your Chevy Equinox is not running as smoothly as it used to, the spark plugs might be the reason. Changing spark plugs can boost your engine’s performance an"
+title: 'How to Change Spark Plugs on Chevy Equinox: Easy Step-by-Step Guide'
+description: If your Chevy Equinox is not running as smoothly as it used to, the spark
+  plugs might be the reason. Changing spark plugs can boost your engine’s performance
+  an
 pubDate: 2025-12-05
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-spark-plugs-on-chevy-equinox&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Chevy and GMC Spark Plugs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-spark-plugs-on-chevy-equinox&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **If your Chevy Equinox is not running as smoothly as it used to, the spark plugs might be the reason. Changing spark plugs can boost your engine’s performance and improve fuel efficiency.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Battery Charger for Diesel Trucks: Top Heavy-Duty Picks Reviewed"
-description: "Choosing the best battery charger for diesel trucks ensures reliable starts and longer battery life. Diesel engines need powerful, durable chargers that handle "
+title: 'Best Battery Charger for Diesel Trucks: Top Heavy-Duty Picks Reviewed'
+description: 'Choosing the best battery charger for diesel trucks ensures reliable
+  starts and longer battery life. Diesel engines need powerful, durable chargers that
+  handle '
 pubDate: 2026-07-10
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-battery-charger-for-diesel-trucks&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Using Battery Chargers
+heroImage: https://tse1.mm.bing.net/th?q=best-battery-charger-for-diesel-trucks&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Choosing the best battery charger for diesel trucks ensures reliable starts and longer battery life. Diesel engines need powerful, durable chargers that handle large batteries effectively.**

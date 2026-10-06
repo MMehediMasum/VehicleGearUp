@@ -1,10 +1,14 @@
 ---
-title: "Do Front Wheel Drive Cars Have a Drive Shaft: Explained Clearly"
-description: "Have you ever wondered how your front wheel drive car actually moves? You might think the wheels are powered directly without extra parts, but there’s more goin"
+title: 'Do Front Wheel Drive Cars Have a Drive Shaft: Explained Clearly'
+description: Have you ever wondered how your front wheel drive car actually moves?
+  You might think the wheels are powered directly without extra parts, but there’s
+  more goin
 pubDate: 2025-12-16
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-front-wheel-drive-cars-have-a-drive-shaft&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota 4WD Questions
+heroImage: https://tse1.mm.bing.net/th?q=do-front-wheel-drive-cars-have-a-drive-shaft&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Have you ever wondered how your front wheel drive car actually moves? You might think the wheels are powered directly without extra parts, but there’s more going on beneath the surface.**

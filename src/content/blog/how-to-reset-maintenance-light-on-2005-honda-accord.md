@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Maintenance Light on 2005 Honda Accord: Quick Guide"
-description: "Is the maintenance light on your 2005 Honda Accord still glowing after you’ve taken care of your car? It can be frustrating to see that reminder when you’re sur"
+title: 'How to Reset Maintenance Light on 2005 Honda Accord: Quick Guide'
+description: Is the maintenance light on your 2005 Honda Accord still glowing after
+  you’ve taken care of your car? It can be frustrating to see that reminder when you’re
+  sur
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-maintenance-light-on-2005-honda-accord&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Maintenance Light Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-maintenance-light-on-2005-honda-accord&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is the maintenance light on your 2005 Honda Accord still glowing after you’ve taken care of your car? It can be frustrating to see that reminder when you’re sure everything is in good shape.**

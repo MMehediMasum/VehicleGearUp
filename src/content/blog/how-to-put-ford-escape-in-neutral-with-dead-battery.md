@@ -1,10 +1,14 @@
 ---
-title: "How to Put Ford Escape in Neutral With Dead Battery: Easy Steps"
-description: "Have you ever found yourself stuck because your Ford Escape’s battery died, and you needed to move your car but didn’t know how? It’s frustrating when your vehi"
+title: 'How to Put Ford Escape in Neutral With Dead Battery: Easy Steps'
+description: Have you ever found yourself stuck because your Ford Escape’s battery
+  died, and you needed to move your car but didn’t know how? It’s frustrating when
+  your vehi
 pubDate: 2026-04-20
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-put-ford-escape-in-neutral-with-dead-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Neutral With Dead Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-put-ford-escape-in-neutral-with-dead-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever found yourself stuck because your Ford Escape’s battery died, and you needed to move your car but didn’t know how? It’s frustrating when your vehicle won’t start, and you need to put it in neutral to push or tow it safely.**

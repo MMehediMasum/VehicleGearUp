@@ -1,10 +1,14 @@
 ---
-title: "Can Extreme Cold Kill a Car Battery? Shocking Truth Revealed!"
-description: "Have you ever struggled to start your car on a freezing winter morning? You might wonder, can extreme cold actually kill your car battery? The answer could save"
+title: Can Extreme Cold Kill a Car Battery? Shocking Truth Revealed!
+description: Have you ever struggled to start your car on a freezing winter morning?
+  You might wonder, can extreme cold actually kill your car battery? The answer could
+  save
 pubDate: 2026-03-25
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-extreme-cold-kill-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Cold Weather Battery Drain
+heroImage: https://tse1.mm.bing.net/th?q=can-extreme-cold-kill-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever struggled to start your car on a freezing winter morning? You might wonder, can extreme cold actually kill your car battery?**

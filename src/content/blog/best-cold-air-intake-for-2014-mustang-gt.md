@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for Mustang GT to Boost Power and Performance"
-description: "Finding the best cold air intake for your 2014 Mustang GT can boost its power and sound. A quality intake improves airflow and helps your engine breathe better."
+title: Best Cold Air Intake for Mustang GT to Boost Power and Performance
+description: Finding the best cold air intake for your 2014 Mustang GT can boost its
+  power and sound. A quality intake improves airflow and helps your engine breathe
+  better.
 pubDate: 2026-06-10
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-2014-mustang-gt&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-2014-mustang-gt&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Finding the best cold air intake for your 2014 Mustang GT can boost its power and sound. A quality intake improves airflow and helps your engine breathe better.**

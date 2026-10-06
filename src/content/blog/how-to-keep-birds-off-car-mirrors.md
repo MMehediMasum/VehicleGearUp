@@ -1,10 +1,14 @@
 ---
-title: "How to Keep Birds off Car Mirrors: Effective Tips That Work"
-description: "Are you tired of finding bird droppings all over your car mirrors? It’s frustrating, messy, and can even damage the paint if left unchecked. You want your car t"
+title: 'How to Keep Birds off Car Mirrors: Effective Tips That Work'
+description: Are you tired of finding bird droppings all over your car mirrors? It’s
+  frustrating, messy, and can even damage the paint if left unchecked. You want your
+  car t
 pubDate: 2026-03-16
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-keep-birds-off-car-mirrors&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Mirrors and Trim Adhesives
+heroImage: https://tse1.mm.bing.net/th?q=how-to-keep-birds-off-car-mirrors&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Are you tired of finding bird droppings all over your car mirrors? It’s frustrating, messy, and can even damage the paint if left unchecked.**

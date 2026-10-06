@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for 6.2 Denali Yukon: Top Performance Kits Reviewed"
-description: "Choosing the best cold air intake for your 6.2 Denali Yukon boosts engine power and improves fuel efficiency. A quality intake kit helps your engine breathe coo"
+title: 'Best Cold Air Intake for 6.2 Denali Yukon: Top Performance Kits Reviewed'
+description: Choosing the best cold air intake for your 6.2 Denali Yukon boosts engine
+  power and improves fuel efficiency. A quality intake kit helps your engine breathe
+  coo
 pubDate: 2026-06-09
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-62-denali-yukon&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- GM Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-62-denali-yukon&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best cold air intake for your 6.2 Denali Yukon boosts engine power and improves fuel efficiency. A quality intake kit helps your engine breathe cooler, denser air for better performance.**

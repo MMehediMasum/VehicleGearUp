@@ -1,10 +1,14 @@
 ---
-title: "Best Fuel Injector Cleaner for Motorcycle: Top Picks for Peak Performance"
-description: "Keeping your motorcycle’s fuel system clean improves engine performance and fuel efficiency. The best fuel injector cleaner removes deposits that cause rough id"
+title: 'Best Fuel Injector Cleaner for Motorcycle: Top Picks for Peak Performance'
+description: Keeping your motorcycle’s fuel system clean improves engine performance
+  and fuel efficiency. The best fuel injector cleaner removes deposits that cause
+  rough id
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-fuel-injector-cleaner-for-motorcycle&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Fuel and Exhaust
+heroImage: https://tse1.mm.bing.net/th?q=best-fuel-injector-cleaner-for-motorcycle&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Keeping your motorcycle’s fuel system clean improves engine performance and fuel efficiency. The best fuel injector cleaner removes deposits that cause rough idling and poor acceleration.**

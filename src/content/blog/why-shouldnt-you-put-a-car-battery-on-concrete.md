@@ -1,10 +1,14 @@
 ---
-title: "Why Shouldn'T You Put a Car Battery on Concrete: Shocking Truths Revealed"
-description: "Have you ever wondered if placing your car battery directly on the concrete floor could cause problems? It might seem harmless, but this common practice can act"
+title: 'Why Shouldn''T You Put a Car Battery on Concrete: Shocking Truths Revealed'
+description: Have you ever wondered if placing your car battery directly on the concrete
+  floor could cause problems? It might seem harmless, but this common practice can
+  act
 pubDate: 2026-03-26
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-shouldnt-you-put-a-car-battery-on-concrete&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Warranty and Storage
+heroImage: https://tse1.mm.bing.net/th?q=why-shouldnt-you-put-a-car-battery-on-concrete&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if placing your car battery directly on the concrete floor could cause problems? It might seem harmless, but this common practice can actually shorten your battery’s life and lead to unexpected issues.**

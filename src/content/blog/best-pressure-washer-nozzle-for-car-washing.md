@@ -1,10 +1,13 @@
 ---
-title: "Best Pressure Washer Nozzle for Car Washing: Top Picks for Sparkling Results"
-description: "Choosing the best pressure washer nozzle for car washing improves cleaning power and protects your vehicle’s paint. Different nozzles offer varying spray angles"
+title: 'Best Pressure Washer Nozzle for Car Washing: Top Picks for Sparkling Results'
+description: Choosing the best pressure washer nozzle for car washing improves cleaning
+  power and protects your vehicle’s paint. Different nozzles offer varying spray angles
 pubDate: 2025-11-06
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-pressure-washer-nozzle-for-car-washing&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Detailing Equipment
+heroImage: https://tse1.mm.bing.net/th?q=best-pressure-washer-nozzle-for-car-washing&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best pressure washer nozzle for car washing improves cleaning power and protects your vehicle’s paint. Different nozzles offer varying spray angles and pressures for specific cleaning needs.**

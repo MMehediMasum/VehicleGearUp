@@ -1,10 +1,14 @@
 ---
-title: "What Liquid is in a Car Battery: Unveiling the Power Source"
-description: "Have you ever wondered what liquid is inside your car battery? Understanding this simple yet powerful component can help you take better care of your vehicle an"
+title: 'What Liquid is in a Car Battery: Unveiling the Power Source'
+description: Have you ever wondered what liquid is inside your car battery? Understanding
+  this simple yet powerful component can help you take better care of your vehicle
+  an
 pubDate: 2026-04-15
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-liquid-is-in-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Polarity and Acid
+heroImage: https://tse1.mm.bing.net/th?q=what-liquid-is-in-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered what liquid is inside your car battery? Understanding this simple yet powerful component can help you take better care of your vehicle and avoid unexpected breakdowns.**

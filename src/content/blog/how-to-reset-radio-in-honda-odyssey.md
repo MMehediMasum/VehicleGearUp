@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Radio in Honda Odyssey: Quick & Easy Guide"
-description: "If your Honda Odyssey’s radio is acting up or refusing to work, you’re not alone. A quick reset can often fix the problem and get your music, news, or podcasts "
+title: 'How to Reset Radio in Honda Odyssey: Quick & Easy Guide'
+description: 'If your Honda Odyssey’s radio is acting up or refusing to work, you’re
+  not alone. A quick reset can often fix the problem and get your music, news, or
+  podcasts '
 pubDate: 2026-03-01
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-radio-in-honda-odyssey&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Radio Codes and Resets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-radio-in-honda-odyssey&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If your Honda Odyssey’s radio is acting up or refusing to work, you’re not alone. A quick reset can often fix the problem and get your music, news, or podcasts back on track.**

@@ -1,10 +1,14 @@
 ---
-title: "Where to Buy First Place Finish Car Care System: Top Trusted Stores"
-description: "Looking to give your car the ultimate shine and protection? You’ve probably heard about the First Place Finish Car Care System and wondered where you can get yo"
+title: 'Where to Buy First Place Finish Car Care System: Top Trusted Stores'
+description: Looking to give your car the ultimate shine and protection? You’ve probably
+  heard about the First Place Finish Car Care System and wondered where you can get
+  yo
 pubDate: 2025-09-10
-author: "herbertlangham"
-categories: ["Car Buying & Ownership"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-buy-first-place-finish-car-care-system&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Everyday Car Questions
+heroImage: https://tse1.mm.bing.net/th?q=where-to-buy-first-place-finish-car-care-system&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Looking to give your car the ultimate shine and protection? You’ve probably heard about the First Place Finish Car Care System and wondered where you can get your hands on it.**

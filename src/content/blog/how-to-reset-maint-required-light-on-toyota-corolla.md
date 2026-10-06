@@ -1,10 +1,13 @@
 ---
-title: "How to Reset Maint Required Light on Toyota Corolla: Easy Steps"
-description: "Is the \"Maint Required\" light on your Toyota Corolla flashing and you’re not sure what to do next? That little warning can be confusing and even a bit stressful"
+title: 'How to Reset Maint Required Light on Toyota Corolla: Easy Steps'
+description: Is the "Maint Required" light on your Toyota Corolla flashing and you’re
+  not sure what to do next? That little warning can be confusing and even a bit stressful
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-maint-required-light-on-toyota-corolla&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Maint Reqd Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-maint-required-light-on-toyota-corolla&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is the "Maint Required" light on your Toyota Corolla flashing and you’re not sure what to do next? That little warning can be confusing and even a bit stressful.**

@@ -1,10 +1,14 @@
 ---
-title: "What Oil Does a Volkswagen Tiguan Take: Ultimate Guide for Peak Performance"
-description: "If you own a Volkswagen Tiguan, knowing the right oil to use is key to keeping your engine running smoothly. Using the wrong oil can cause problems that may cos"
+title: 'What Oil Does a Volkswagen Tiguan Take: Ultimate Guide for Peak Performance'
+description: If you own a Volkswagen Tiguan, knowing the right oil to use is key to
+  keeping your engine running smoothly. Using the wrong oil can cause problems that
+  may cos
 pubDate: 2026-05-11
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-oil-does-a-volkswagen-tiguan-take&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- What Oil to Use
+heroImage: https://tse1.mm.bing.net/th?q=what-oil-does-a-volkswagen-tiguan-take&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a Volkswagen Tiguan, knowing the right oil to use is key to keeping your engine running smoothly. Using the wrong oil can cause problems that may cost you time and money.**

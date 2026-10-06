@@ -1,10 +1,13 @@
 ---
-title: "Best Tires for 2021 Nissan Rogue: Top All-Season SUV Picks"
-description: "Choosing the best tires for your 2021 Nissan Rogue improves safety and driving comfort. The right tires fit your vehicle and suit your driving needs perfectly. "
+title: 'Best Tires for 2021 Nissan Rogue: Top All-Season SUV Picks'
+description: 'Choosing the best tires for your 2021 Nissan Rogue improves safety and
+  driving comfort. The right tires fit your vehicle and suit your driving needs perfectly. '
 pubDate: 2025-12-24
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-2021-nissan-rogue&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Mud Street and RV Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-2021-nissan-rogue&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your 2021 Nissan Rogue improves safety and driving comfort. The right tires fit your vehicle and suit your driving needs perfectly.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Use a Trickle Charger on a Car Battery: Easy Step-by-Step Guide"
-description: "Is your car battery often running low or dying when you least expect it? You’re not alone. Keeping your battery charged is key to avoiding those frustrating mom"
+title: 'How to Use a Trickle Charger on a Car Battery: Easy Step-by-Step Guide'
+description: Is your car battery often running low or dying when you least expect
+  it? You’re not alone. Keeping your battery charged is key to avoiding those frustrating
+  mom
 pubDate: 2026-04-11
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-use-a-trickle-charger-on-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Using Battery Chargers
+heroImage: https://tse1.mm.bing.net/th?q=how-to-use-a-trickle-charger-on-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your car battery often running low or dying when you least expect it? You’re not alone.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Running Boards for Toyota Tundra: Top Durable Side Steps Reviewed"
-description: "Choosing the best running boards for your Toyota Tundra improves safety and style. These boards help you get in and out easily while protecting your truck’s sid"
+title: 'Best Running Boards for Toyota Tundra: Top Durable Side Steps Reviewed'
+description: Choosing the best running boards for your Toyota Tundra improves safety
+  and style. These boards help you get in and out easily while protecting your truck’s
+  sid
 pubDate: 2026-06-14
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-running-boards-for-toyota-tundra&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Running Boards
+heroImage: https://tse1.mm.bing.net/th?q=best-running-boards-for-toyota-tundra&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Choosing the best running boards for your Toyota Tundra improves safety and style. These boards help you get in and out easily while protecting your truck’s sides.**

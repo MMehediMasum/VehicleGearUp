@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Where Can I Rent a Mercedes Sprinter Van: Top Trusted Rentals"
 description: "Are you looking for the perfect vehicle to handle your next big trip or project? A Mercedes Sprinter van might be exactly what you need. Known for its spacious "
 pubDate: 2025-10-08

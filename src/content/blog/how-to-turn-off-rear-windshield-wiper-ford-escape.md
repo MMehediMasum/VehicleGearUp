@@ -1,10 +1,14 @@
 ---
-title: "How to Turn off Rear Windshield Wiper Ford Escape: Quick Guide"
-description: "If you own a Ford Escape, you’ve probably noticed how handy the rear windshield wiper can be during rainy or snowy days. But what if it keeps running when you d"
+title: 'How to Turn off Rear Windshield Wiper Ford Escape: Quick Guide'
+description: If you own a Ford Escape, you’ve probably noticed how handy the rear
+  windshield wiper can be during rainy or snowy days. But what if it keeps running
+  when you d
 pubDate: 2026-03-21
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-rear-windshield-wiper-ford-escape&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Windshield Wipers
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-rear-windshield-wiper-ford-escape&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a Ford Escape, you’ve probably noticed how handy the rear windshield wiper can be during rainy or snowy days. But what if it keeps running when you don’t want it to?**

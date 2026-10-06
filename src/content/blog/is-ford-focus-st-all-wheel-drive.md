@@ -1,10 +1,14 @@
 ---
-title: "Is Ford Focus St All Wheel Drive? Unveiling the Truth"
-description: "Are you curious if the Ford Focus ST comes with all-wheel drive? Knowing this can help you decide if it’s the right car for your needs—whether you’re driving in"
+title: Is Ford Focus St All Wheel Drive? Unveiling the Truth
+description: Are you curious if the Ford Focus ST comes with all-wheel drive? Knowing
+  this can help you decide if it’s the right car for your needs—whether you’re driving
+  in
 pubDate: 2025-10-29
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-ford-focus-st-all-wheel-drive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- All Wheel Drive Questions
+heroImage: https://tse1.mm.bing.net/th?q=is-ford-focus-st-all-wheel-drive&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you curious if the Ford Focus ST comes with all-wheel drive? Knowing this can help you decide if it’s the right car for your needs—whether you’re driving in tough weather or want better handling on winding roads.**

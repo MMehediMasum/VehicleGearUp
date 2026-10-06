@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Light on Ford Focus: Quick & Easy Guide"
-description: "Your Ford Focus just showed the oil light, and now you’re wondering what to do next. Don’t worry—it’s a common alert, and resetting it is easier than you might "
+title: 'How to Reset Oil Light on Ford Focus: Quick & Easy Guide'
+description: 'Your Ford Focus just showed the oil light, and now you’re wondering
+  what to do next. Don’t worry—it’s a common alert, and resetting it is easier than
+  you might '
 pubDate: 2026-05-08
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-light-on-ford-focus&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Oil Light Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-light-on-ford-focus&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Your Ford Focus just showed the oil light, and now you’re wondering what to do next. Don’t worry—it’s a common alert, and resetting it is easier than you might think.**

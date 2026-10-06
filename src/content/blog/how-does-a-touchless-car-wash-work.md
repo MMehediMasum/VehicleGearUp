@@ -1,10 +1,13 @@
 ---
-title: "How Does a Touchless Car Wash Work: Ultimate Guide to Spotless Shine"
-description: "Have you ever wondered how a touchless car wash cleans your car without a single brush or cloth touching it? If you’re looking for a quick, safe, and scratch-fr"
+title: 'How Does a Touchless Car Wash Work: Ultimate Guide to Spotless Shine'
+description: Have you ever wondered how a touchless car wash cleans your car without
+  a single brush or cloth touching it? If you’re looking for a quick, safe, and scratch-fr
 pubDate: 2025-11-11
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-does-a-touchless-car-wash-work&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wash Costs and Etiquette
+heroImage: https://tse1.mm.bing.net/th?q=how-does-a-touchless-car-wash-work&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever wondered how a touchless car wash cleans your car without a single brush or cloth touching it? If you’re looking for a quick, safe, and scratch-free way to keep your car spotless, understanding how this technology works can make all the difference.**

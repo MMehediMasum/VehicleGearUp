@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Tesla Model 3 Long Range: Top Picks and Spare Kit Essentials"
-description: "Choosing the best tires for your Tesla Model 3 Long Range ensures safety, performance, and efficiency. The right tires improve handling, ride comfort, and batte"
+title: 'Best Tires for Tesla Model 3 Long Range: Top Picks and Spare Kit Essentials'
+description: Choosing the best tires for your Tesla Model 3 Long Range ensures safety,
+  performance, and efficiency. The right tires improve handling, ride comfort, and
+  batte
 pubDate: 2026-01-10
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-tesla-model-3-long-range&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Tires and Accessories
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-tesla-model-3-long-range&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best tires for your Tesla Model 3 Long Range ensures safety, performance, and efficiency. The right tires improve handling, ride comfort, and battery range.**

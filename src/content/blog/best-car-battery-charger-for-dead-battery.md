@@ -1,10 +1,14 @@
 ---
-title: "Best Car Battery Charger for Dead Battery: Top Reliable Chargers Reviewed"
-description: "A dead car battery can leave you stranded anytime. Choosing the best car battery charger helps restore power quickly and safely. Car batteries lose charge over "
+title: 'Best Car Battery Charger for Dead Battery: Top Reliable Chargers Reviewed'
+description: 'A dead car battery can leave you stranded anytime. Choosing the best
+  car battery charger helps restore power quickly and safely. Car batteries lose charge
+  over '
 pubDate: 2025-11-05
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-battery-charger-for-dead-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Using Battery Chargers
+heroImage: https://tse1.mm.bing.net/th?q=best-car-battery-charger-for-dead-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **A dead car battery can leave you stranded anytime. Choosing the best car battery charger helps restore power quickly and safely.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for a Toyota Camry: Top All-Season Radial Picks Reviewed"
-description: "Choosing the best tires for a Toyota Camry ensures safety, comfort, and better fuel efficiency. This guide covers top tire options that fit various Camry models"
+title: 'Best Tires for a Toyota Camry: Top All-Season Radial Picks Reviewed'
+description: Choosing the best tires for a Toyota Camry ensures safety, comfort, and
+  better fuel efficiency. This guide covers top tire options that fit various Camry
+  models
 pubDate: 2025-12-31
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-a-toyota-camry&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-a-toyota-camry&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for a Toyota Camry ensures safety, comfort, and better fuel efficiency. This guide covers top tire options that fit various Camry models and driving needs.**

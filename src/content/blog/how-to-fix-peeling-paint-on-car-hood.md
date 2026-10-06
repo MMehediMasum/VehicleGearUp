@@ -1,10 +1,14 @@
 ---
-title: "How to Fix Peeling Paint on Car Hood: Easy Steps for a Flawless Finish"
-description: "Is your car hood looking worn out with peeling paint? It’s frustrating to see your vehicle lose its shine and style because of this common problem. But don’t wo"
+title: 'How to Fix Peeling Paint on Car Hood: Easy Steps for a Flawless Finish'
+description: Is your car hood looking worn out with peeling paint? It’s frustrating
+  to see your vehicle lose its shine and style because of this common problem. But
+  don’t wo
 pubDate: 2026-04-27
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-peeling-paint-on-car-hood&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hood Dents and Chips
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-peeling-paint-on-car-hood&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Is your car hood looking worn out with peeling paint? It’s frustrating to see your vehicle lose its shine and style because of this common problem.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Take F150 Out of Brake Service Mode: Easy Step-by-Step Guide"
-description: "Is your Ford F150 stuck in brake service mode? It can be frustrating when your truck won’t respond the way it should. You might feel unsure about what to do nex"
+title: 'How to Take F150 Out of Brake Service Mode: Easy Step-by-Step Guide'
+description: Is your Ford F150 stuck in brake service mode? It can be frustrating
+  when your truck won’t respond the way it should. You might feel unsure about what
+  to do nex
 pubDate: 2026-05-11
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-take-f150-out-of-brake-service-mode&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hill Start and Brake Assist
+heroImage: https://tse1.mm.bing.net/th?q=how-to-take-f150-out-of-brake-service-mode&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your Ford F150 stuck in brake service mode? It can be frustrating when your truck won’t respond the way it should.**

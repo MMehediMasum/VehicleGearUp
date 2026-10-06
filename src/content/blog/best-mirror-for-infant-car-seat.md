@@ -1,10 +1,13 @@
 ---
-title: "Best Mirror for Infant Car Seat: Top Safety Mirrors with 360° Rotation"
-description: "Choosing the best mirror for an infant car seat helps parents keep an eye on their baby safely. A good mirror offers a clear, wide view and easy adjustability. "
+title: 'Best Mirror for Infant Car Seat: Top Safety Mirrors with 360° Rotation'
+description: 'Choosing the best mirror for an infant car seat helps parents keep an
+  eye on their baby safely. A good mirror offers a clear, wide view and easy adjustability. '
 pubDate: 2026-07-19
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-mirror-for-infant-car-seat&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Seat Accessories
+heroImage: https://tse1.mm.bing.net/th?q=best-mirror-for-infant-car-seat&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best mirror for an infant car seat helps parents keep an eye on their baby safely. A good mirror offers a clear, wide view and easy adjustability.**

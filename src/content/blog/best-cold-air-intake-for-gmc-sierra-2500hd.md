@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for GMC Sierra 2500HD to Boost Power & Performance"
-description: "Choosing the best cold air intake for your GMC Sierra 2500HD can boost engine power and fuel efficiency. A quality intake improves airflow and helps your truck "
+title: Best Cold Air Intake for GMC Sierra 2500HD to Boost Power & Performance
+description: 'Choosing the best cold air intake for your GMC Sierra 2500HD can boost
+  engine power and fuel efficiency. A quality intake improves airflow and helps your
+  truck '
 pubDate: 2026-06-09
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-gmc-sierra-2500hd&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- GM Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-gmc-sierra-2500hd&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best cold air intake for your GMC Sierra 2500HD can boost engine power and fuel efficiency. A quality intake improves airflow and helps your truck perform better.**

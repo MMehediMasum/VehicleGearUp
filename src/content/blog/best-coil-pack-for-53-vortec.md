@@ -1,10 +1,14 @@
 ---
-title: "Best Coil Pack for 5.3 Vortec: Top Ignition Coils for Chevy GMC"
-description: "Finding the best coil pack for your 5.3 Vortec engine ensures smooth ignition and better performance. Quality coil packs fit Chevy, GMC, Cadillac, and more. The"
+title: 'Best Coil Pack for 5.3 Vortec: Top Ignition Coils for Chevy GMC'
+description: Finding the best coil pack for your 5.3 Vortec engine ensures smooth
+  ignition and better performance. Quality coil packs fit Chevy, GMC, Cadillac, and
+  more. The
 pubDate: 2025-10-20
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-coil-pack-for-53-vortec&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Coil Packs and Ignition
+heroImage: https://tse1.mm.bing.net/th?q=best-coil-pack-for-53-vortec&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Finding the best coil pack for your 5.3 Vortec engine ensures smooth ignition and better performance. Quality coil packs fit Chevy, GMC, Cadillac, and more.**

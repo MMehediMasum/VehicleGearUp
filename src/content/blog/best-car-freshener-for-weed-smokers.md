@@ -1,10 +1,14 @@
 ---
-title: "Best Car Freshener for Weed Smokers: Top Odor Eliminators Reviewed"
-description: "Finding the best car freshener for weed smokers can be a challenge. It needs to mask odors well and leave a pleasant scent behind. Weed smoke often leaves a str"
+title: 'Best Car Freshener for Weed Smokers: Top Odor Eliminators Reviewed'
+description: Finding the best car freshener for weed smokers can be a challenge. It
+  needs to mask odors well and leave a pleasant scent behind. Weed smoke often leaves
+  a str
 pubDate: 2026-06-11
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-freshener-for-weed-smokers&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Air Fresheners and Odors
+heroImage: https://tse1.mm.bing.net/th?q=best-car-freshener-for-weed-smokers&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Finding the best car freshener for weed smokers can be a challenge. It needs to mask odors well and leave a pleasant scent behind.**

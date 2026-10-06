@@ -1,10 +1,14 @@
 ---
-title: "How to Calibrate Tire Pressure Honda Accord: Easy Step-by-Step Guide"
-description: "Keeping your Honda Accord’s tires at the right pressure is more important than you might think. It affects your safety, fuel efficiency, and how smoothly your c"
+title: 'How to Calibrate Tire Pressure Honda Accord: Easy Step-by-Step Guide'
+description: Keeping your Honda Accord’s tires at the right pressure is more important
+  than you might think. It affects your safety, fuel efficiency, and how smoothly
+  your c
 pubDate: 2026-02-15
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-calibrate-tire-pressure-honda-accord&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Checking Tire Pressure
+heroImage: https://tse1.mm.bing.net/th?q=how-to-calibrate-tire-pressure-honda-accord&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Keeping your Honda Accord’s tires at the right pressure is more important than you might think. It affects your safety, fuel efficiency, and how smoothly your car drives.**

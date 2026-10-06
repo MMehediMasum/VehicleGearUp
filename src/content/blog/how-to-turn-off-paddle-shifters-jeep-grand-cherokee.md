@@ -1,10 +1,14 @@
 ---
-title: "How to Turn off Paddle Shifters Jeep Grand Cherokee: Easy Guide"
-description: "If you own a Jeep Grand Cherokee, you might have noticed the paddle shifters behind your steering wheel. They can be fun to use but sometimes, you may want to t"
+title: 'How to Turn off Paddle Shifters Jeep Grand Cherokee: Easy Guide'
+description: If you own a Jeep Grand Cherokee, you might have noticed the paddle shifters
+  behind your steering wheel. They can be fun to use but sometimes, you may want to
+  t
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-paddle-shifters-jeep-grand-cherokee&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Drive Modes and Buttons
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-paddle-shifters-jeep-grand-cherokee&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If you own a Jeep Grand Cherokee, you might have noticed the paddle shifters behind your steering wheel. They can be fun to use but sometimes, you may want to turn them off for a smoother, more relaxed drive.**

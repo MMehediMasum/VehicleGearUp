@@ -1,10 +1,14 @@
 ---
-title: "How Does 2019 F150 Hill Decent Controll Work: Ultimate Guide"
-description: "If you’ve ever faced a steep, slippery hill in your 2019 F150, you know how tricky controlling your speed can be. That’s where Hill Descent Control comes in. Th"
+title: 'How Does 2019 F150 Hill Decent Controll Work: Ultimate Guide'
+description: If you’ve ever faced a steep, slippery hill in your 2019 F150, you know
+  how tricky controlling your speed can be. That’s where Hill Descent Control comes
+  in. Th
 pubDate: 2025-08-29
-author: "herbertlangham"
-categories: ["Car Technology & Features"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-does-2019-f150-hill-decent-controll-work&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Model Questions
+heroImage: https://tse1.mm.bing.net/th?q=how-does-2019-f150-hill-decent-controll-work&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **If you’ve ever faced a steep, slippery hill in your 2019 F150, you know how tricky controlling your speed can be. That’s where Hill Descent Control comes in.**

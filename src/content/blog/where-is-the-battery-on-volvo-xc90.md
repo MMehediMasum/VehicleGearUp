@@ -1,10 +1,14 @@
 ---
-title: "Where is the Battery on Volvo XC90: Easy Location Guide"
-description: "If you own a Volvo XC90, knowing exactly where the battery is can save you time and hassle when your car won’t start or needs a jump. You might be wondering, “W"
+title: 'Where is the Battery on Volvo XC90: Easy Location Guide'
+description: If you own a Volvo XC90, knowing exactly where the battery is can save
+  you time and hassle when your car won’t start or needs a jump. You might be wondering,
+  “W
 pubDate: 2026-04-21
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-is-the-battery-on-volvo-xc90&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Finding the Battery Location
+heroImage: https://tse1.mm.bing.net/th?q=where-is-the-battery-on-volvo-xc90&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **If you own a Volvo XC90, knowing exactly where the battery is can save you time and hassle when your car won’t start or needs a jump. You might be wondering, “Where is the battery on my Volvo XC90?” Finding it isn’t always as simple as you think.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Check Tire Pressure on Honda Accord 2025: Easy Step-by-Step Guide"
-description: "Keeping your Honda Accord 2022 running smoothly starts with one simple habit: checking your tire pressure. You might think it’s a small task, but the truth is, "
+title: 'How to Check Tire Pressure on Honda Accord 2025: Easy Step-by-Step Guide'
+description: 'Keeping your Honda Accord 2022 running smoothly starts with one simple
+  habit: checking your tire pressure. You might think it’s a small task, but the truth
+  is, '
 pubDate: 2026-02-02
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-check-tire-pressure-on-honda-accord-2022&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Checking Tire Pressure
+heroImage: https://tse1.mm.bing.net/th?q=how-to-check-tire-pressure-on-honda-accord-2022&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Keeping your Honda Accord 2022 running smoothly starts with one simple habit: checking your tire pressure. You might think it’s a small task, but the truth is, the right tire pressure can save you money, improve your safety, and boost your car’s performance.**

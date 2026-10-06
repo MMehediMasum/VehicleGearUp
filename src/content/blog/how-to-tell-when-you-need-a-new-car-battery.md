@@ -1,10 +1,14 @@
 ---
-title: "How to Tell When You Need a New Car Battery: Key Signs Revealed"
-description: "Have you ever turned the key in your car, only to hear a weak click or nothing at all? That’s often the first sign your car battery is struggling. Knowing when "
+title: 'How to Tell When You Need a New Car Battery: Key Signs Revealed'
+description: 'Have you ever turned the key in your car, only to hear a weak click
+  or nothing at all? That’s often the first sign your car battery is struggling. Knowing
+  when '
 pubDate: 2026-05-01
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-tell-when-you-need-a-new-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- When to Replace a Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-tell-when-you-need-a-new-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever turned the key in your car, only to hear a weak click or nothing at all? That’s often the first sign your car battery is struggling.**

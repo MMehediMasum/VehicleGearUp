@@ -1,10 +1,14 @@
 ---
-title: "What Do You Need for a Car Wash: Essential Tools for a Sparkling Shine"
-description: "Are you ready to make your car shine like new? Knowing exactly what you need for a car wash can save you time, money, and frustration. Whether you want a quick "
+title: 'What Do You Need for a Car Wash: Essential Tools for a Sparkling Shine'
+description: 'Are you ready to make your car shine like new? Knowing exactly what
+  you need for a car wash can save you time, money, and frustration. Whether you want
+  a quick '
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-do-you-need-for-a-car-wash&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wash Basics
+heroImage: https://tse1.mm.bing.net/th?q=what-do-you-need-for-a-car-wash&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Are you ready to make your car shine like new? Knowing exactly what you need for a car wash can save you time, money, and frustration.**

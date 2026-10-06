@@ -1,10 +1,14 @@
 ---
-title: "How to Charge a Car Battery Without Charger: Easy DIY Methods"
-description: "Have you ever found yourself stuck with a dead car battery and no charger in sight? It’s frustrating, stressful, and can ruin your plans in an instant. But what"
+title: 'How to Charge a Car Battery Without Charger: Easy DIY Methods'
+description: Have you ever found yourself stuck with a dead car battery and no charger
+  in sight? It’s frustrating, stressful, and can ruin your plans in an instant. But
+  what
 pubDate: 2026-04-05
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-charge-a-car-battery-without-charger&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Charging a Car Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-charge-a-car-battery-without-charger&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever found yourself stuck with a dead car battery and no charger in sight? It’s frustrating, stressful, and can ruin your plans in an instant.**

@@ -1,10 +1,13 @@
 ---
-title: "How to Reset Service Light on Honda Accord: Easy Step-by-Step Guide"
-description: "Is your Honda Accord’s service light on, and you’re not sure what to do next? You’re not alone. That little warning can be confusing and even a bit frustrating."
+title: 'How to Reset Service Light on Honda Accord: Easy Step-by-Step Guide'
+description: Is your Honda Accord’s service light on, and you’re not sure what to
+  do next? You’re not alone. That little warning can be confusing and even a bit frustrating.
 pubDate: 2025-10-07
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-service-light-on-honda-accord&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Maintenance Light Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-service-light-on-honda-accord&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your Honda Accord’s service light on, and you’re not sure what to do next? You’re not alone.**

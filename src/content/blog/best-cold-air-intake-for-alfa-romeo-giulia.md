@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for Alfa Romeo Giulia: Top Performance Upgrades Reviewed"
-description: "Choosing the best cold air intake for your Alfa Romeo Giulia improves engine performance and efficiency. This guide covers top air intake systems designed for y"
+title: 'Best Cold Air Intake for Alfa Romeo Giulia: Top Performance Upgrades Reviewed'
+description: Choosing the best cold air intake for your Alfa Romeo Giulia improves
+  engine performance and efficiency. This guide covers top air intake systems designed
+  for y
 pubDate: 2026-06-07
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-alfa-romeo-giulia&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Engine Specific Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-alfa-romeo-giulia&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best cold air intake for your Alfa Romeo Giulia improves engine performance and efficiency. This guide covers top air intake systems designed for your model's needs.**

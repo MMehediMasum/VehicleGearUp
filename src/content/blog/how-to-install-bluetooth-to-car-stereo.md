@@ -1,10 +1,14 @@
 ---
-title: "How to Install Bluetooth to Car Stereo: Easy Step-by-Step Guide"
-description: "Want to enjoy hands-free calls and wireless music in your car without buying a new stereo? Installing Bluetooth to your car stereo is easier than you think. Ima"
+title: 'How to Install Bluetooth to Car Stereo: Easy Step-by-Step Guide'
+description: Want to enjoy hands-free calls and wireless music in your car without
+  buying a new stereo? Installing Bluetooth to your car stereo is easier than you
+  think. Ima
 pubDate: 2026-05-28
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-install-bluetooth-to-car-stereo&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Stereo Installation Help
+heroImage: https://tse1.mm.bing.net/th?q=how-to-install-bluetooth-to-car-stereo&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Want to enjoy hands-free calls and wireless music in your car without buying a new stereo? Installing Bluetooth to your car stereo is easier than you think.**

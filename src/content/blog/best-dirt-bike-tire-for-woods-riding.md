@@ -1,10 +1,14 @@
 ---
-title: "Best Dirt Bike Tire for Woods Riding: Top Picks for Tough Terrain"
-description: "Choosing the best dirt bike tire for woods riding improves your grip and control on rough trails. Tires built for off-road use handle mud, roots, and rocks bett"
+title: 'Best Dirt Bike Tire for Woods Riding: Top Picks for Tough Terrain'
+description: Choosing the best dirt bike tire for woods riding improves your grip
+  and control on rough trails. Tires built for off-road use handle mud, roots, and
+  rocks bett
 pubDate: 2026-01-04
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-dirt-bike-tire-for-woods-riding&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-dirt-bike-tire-for-woods-riding&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best dirt bike tire for woods riding improves your grip and control on rough trails. Tires built for off-road use handle mud, roots, and rocks better than regular tires.**

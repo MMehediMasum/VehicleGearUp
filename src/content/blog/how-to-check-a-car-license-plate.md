@@ -1,10 +1,14 @@
 ---
-title: "How to Check a Car License Plate: Quick & Easy Guide"
-description: "Have you ever seen a car on the road and wondered who it belongs to or if it’s registered properly? Knowing how to check a car license plate can give you quick "
+title: 'How to Check a Car License Plate: Quick & Easy Guide'
+description: 'Have you ever seen a car on the road and wondered who it belongs to
+  or if it’s registered properly? Knowing how to check a car license plate can give
+  you quick '
 pubDate: 2025-12-10
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-check-a-car-license-plate&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- License Plate Questions
+heroImage: https://tse1.mm.bing.net/th?q=how-to-check-a-car-license-plate&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Have you ever seen a car on the road and wondered who it belongs to or if it’s registered properly? Knowing how to check a car license plate can give you quick answers and peace of mind.**

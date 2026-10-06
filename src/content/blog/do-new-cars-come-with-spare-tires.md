@@ -1,10 +1,14 @@
 ---
-title: "Do New Cars Come With Spare Tires: What You Need to Know Today"
-description: "Have you ever wondered if your brand-new car comes with a spare tire? It’s a question many drivers overlook until they face a flat tire on the road. Knowing whe"
+title: 'Do New Cars Come With Spare Tires: What You Need to Know Today'
+description: Have you ever wondered if your brand-new car comes with a spare tire?
+  It’s a question many drivers overlook until they face a flat tire on the road. Knowing
+  whe
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-new-cars-come-with-spare-tires&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spare Tires and Tire Changing
+heroImage: https://tse1.mm.bing.net/th?q=do-new-cars-come-with-spare-tires&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Have you ever wondered if your brand-new car comes with a spare tire? It’s a question many drivers overlook until they face a flat tire on the road.**

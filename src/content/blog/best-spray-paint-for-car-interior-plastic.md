@@ -1,10 +1,14 @@
 ---
-title: "Best Spray Paint for Car Interior Plastic: Top Durable & Protective Picks"
-description: "Choosing the best spray paint for car interior plastic improves your vehicle’s look and feel. Quality spray paint protects and refreshes plastic parts like dash"
+title: 'Best Spray Paint for Car Interior Plastic: Top Durable & Protective Picks'
+description: Choosing the best spray paint for car interior plastic improves your
+  vehicle’s look and feel. Quality spray paint protects and refreshes plastic parts
+  like dash
 pubDate: 2026-07-08
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-spray-paint-for-car-interior-plastic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spray Paint and Scratch Repair
+heroImage: https://tse1.mm.bing.net/th?q=best-spray-paint-for-car-interior-plastic&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best spray paint for car interior plastic improves your vehicle’s look and feel. Quality spray paint protects and refreshes plastic parts like dashboards and trims.**

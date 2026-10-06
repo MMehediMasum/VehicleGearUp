@@ -1,10 +1,14 @@
 ---
-title: "What is the Best Portable Car Battery Charger: Top Picks 2025"
-description: "Have you ever been stuck with a dead car battery at the worst possible moment? It’s frustrating, stressful, and can completely ruin your plans. That’s why havin"
+title: 'What is the Best Portable Car Battery Charger: Top Picks 2025'
+description: Have you ever been stuck with a dead car battery at the worst possible
+  moment? It’s frustrating, stressful, and can completely ruin your plans. That’s
+  why havin
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-best-portable-car-battery-charger&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Using Battery Chargers
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-best-portable-car-battery-charger&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever been stuck with a dead car battery at the worst possible moment? It’s frustrating, stressful, and can completely ruin your plans.**

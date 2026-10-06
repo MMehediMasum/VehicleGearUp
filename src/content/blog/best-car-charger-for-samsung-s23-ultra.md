@@ -1,10 +1,14 @@
 ---
-title: "Best Car Charger for Samsung S23 Ultra: Ultimate Fast Charging Solution"
-description: "Finding the best car charger for your Samsung S23 Ultra ensures fast, reliable charging on the go. Choose a charger that matches your phone’s power needs and fi"
+title: 'Best Car Charger for Samsung S23 Ultra: Ultimate Fast Charging Solution'
+description: Finding the best car charger for your Samsung S23 Ultra ensures fast,
+  reliable charging on the go. Choose a charger that matches your phone’s power needs
+  and fi
 pubDate: 2026-07-10
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-charger-for-samsung-s23-ultra&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Connecting Phones to Cars
+heroImage: https://tse1.mm.bing.net/th?q=best-car-charger-for-samsung-s23-ultra&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Finding the best car charger for your Samsung S23 Ultra ensures fast, reliable charging on the go. Choose a charger that matches your phone’s power needs and fits your car setup.**

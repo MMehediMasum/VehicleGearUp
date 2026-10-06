@@ -1,10 +1,14 @@
 ---
-title: "Does BMW X5 Have 3Rd Row Seating? Ultimate Family SUV Guide"
-description: "Are you wondering if the BMW X5 can comfortably fit your whole family or group? If you need extra seats for those weekend trips or daily rides, knowing whether "
+title: Does BMW X5 Have 3Rd Row Seating? Ultimate Family SUV Guide
+description: 'Are you wondering if the BMW X5 can comfortably fit your whole family
+  or group? If you need extra seats for those weekend trips or daily rides, knowing
+  whether '
 pubDate: 2026-05-24
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-bmw-x5-have-3rd-row-seating&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- All Wheel Drive Questions
+heroImage: https://tse1.mm.bing.net/th?q=does-bmw-x5-have-3rd-row-seating&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you wondering if the BMW X5 can comfortably fit your whole family or group? If you need extra seats for those weekend trips or daily rides, knowing whether the X5 offers a third row is crucial.**

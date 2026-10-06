@@ -1,10 +1,14 @@
 ---
-title: "How to Put Ford Fusion in Neutral With Dead Battery: Quick Guide"
-description: "Have you ever found yourself stuck with a dead battery in your Ford Fusion and wondered how to shift it into neutral? It can be frustrating when you need to mov"
+title: 'How to Put Ford Fusion in Neutral With Dead Battery: Quick Guide'
+description: Have you ever found yourself stuck with a dead battery in your Ford Fusion
+  and wondered how to shift it into neutral? It can be frustrating when you need to
+  mov
 pubDate: 2025-10-27
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-put-ford-fusion-in-neutral-with-dead-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Neutral With Dead Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-put-ford-fusion-in-neutral-with-dead-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever found yourself stuck with a dead battery in your Ford Fusion and wondered how to shift it into neutral? It can be frustrating when you need to move your car but the usual methods won’t work.**

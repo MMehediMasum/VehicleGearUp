@@ -1,10 +1,14 @@
 ---
-title: "Best All Weather Tires for Small SUV: Top Durable Picks for Every Season"
-description: "Choosing the best all-weather tires for your small SUV ensures safety and performance all year round. These tires handle rain, snow, and dry roads with ease. Sm"
+title: 'Best All Weather Tires for Small SUV: Top Durable Picks for Every Season'
+description: Choosing the best all-weather tires for your small SUV ensures safety
+  and performance all year round. These tires handle rain, snow, and dry roads with
+  ease. Sm
 pubDate: 2026-01-05
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-all-weather-tires-for-small-suv&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- All Season SUV Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-all-weather-tires-for-small-suv&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best all-weather tires for your small SUV ensures safety and performance all year round. These tires handle rain, snow, and dry roads with ease.**

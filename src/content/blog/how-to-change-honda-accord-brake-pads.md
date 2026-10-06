@@ -1,10 +1,14 @@
 ---
-title: "How to Change Honda Accord Brake Pads: Easy DIY Guide"
-description: "If your Honda Accord's brakes are making noise or not responding as well as they used to, it’s time to change the brake pads. You might think this is a job only"
+title: 'How to Change Honda Accord Brake Pads: Easy DIY Guide'
+description: If your Honda Accord's brakes are making noise or not responding as well
+  as they used to, it’s time to change the brake pads. You might think this is a job
+  only
 pubDate: 2025-10-16
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-honda-accord-brake-pads&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Best Brake Pads
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-honda-accord-brake-pads&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If your Honda Accord's brakes are making noise or not responding as well as they used to, it’s time to change the brake pads. You might think this is a job only a mechanic can handle, but with the right steps, you can do it yourself and save money.**

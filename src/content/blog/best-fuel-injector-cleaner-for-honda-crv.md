@@ -1,10 +1,14 @@
 ---
-title: "Best Fuel Injector Cleaner for Honda CRV to Boost Engine Performance"
-description: "Keeping your Honda CR-V’s fuel system clean improves performance and saves fuel. The best fuel injector cleaner removes buildup and keeps engines running smooth"
+title: Best Fuel Injector Cleaner for Honda CRV to Boost Engine Performance
+description: Keeping your Honda CR-V’s fuel system clean improves performance and
+  saves fuel. The best fuel injector cleaner removes buildup and keeps engines running
+  smooth
 pubDate: 2026-07-06
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-fuel-injector-cleaner-for-honda-crv&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Import Fuel Injector Cleaners
+heroImage: https://tse1.mm.bing.net/th?q=best-fuel-injector-cleaner-for-honda-crv&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Keeping your Honda CR-V’s fuel system clean improves performance and saves fuel. The best fuel injector cleaner removes buildup and keeps engines running smoothly.**

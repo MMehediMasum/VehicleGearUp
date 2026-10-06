@@ -1,10 +1,14 @@
 ---
-title: "How to Turn off Traction Control Tesla Model 3: Quick & Easy Guide"
-description: "If you drive a Tesla Model 3, you might have wondered how to turn off the traction control. Maybe you want more control during certain driving conditions or are"
+title: 'How to Turn off Traction Control Tesla Model 3: Quick & Easy Guide'
+description: If you drive a Tesla Model 3, you might have wondered how to turn off
+  the traction control. Maybe you want more control during certain driving conditions
+  or are
 pubDate: 2025-12-18
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-traction-control-tesla-model-3&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Summon and Dog Mode
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-traction-control-tesla-model-3&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **If you drive a Tesla Model 3, you might have wondered how to turn off the traction control. Maybe you want more control during certain driving conditions or are curious about how your car handles without it.**

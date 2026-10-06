@@ -1,10 +1,14 @@
 ---
-title: "Best Suspension Lift for Jeep Wrangler: Top Rough Country Lift Kits Reviewed"
-description: "Choosing the best suspension lift for your Jeep Wrangler improves off-road ability and enhances its look. This guide covers top Rough Country and KSP lift kits "
+title: 'Best Suspension Lift for Jeep Wrangler: Top Rough Country Lift Kits Reviewed'
+description: 'Choosing the best suspension lift for your Jeep Wrangler improves off-road
+  ability and enhances its look. This guide covers top Rough Country and KSP lift
+  kits '
 pubDate: 2026-01-02
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-suspension-lift-for-jeep-wrangler&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Truck Suspension Upgrades
+heroImage: https://tse1.mm.bing.net/th?q=best-suspension-lift-for-jeep-wrangler&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Choosing the best suspension lift for your Jeep Wrangler improves off-road ability and enhances its look. This guide covers top Rough Country and KSP lift kits for different Wrangler models and years.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Fuel Injector Cleaner for Dodge Charger: Top Picks for Peak Performance"
-description: "Keeping your Dodge Charger’s engine running smoothly depends on clean fuel injectors. Choosing the right fuel injector cleaner helps improve performance and fue"
+title: 'Best Fuel Injector Cleaner for Dodge Charger: Top Picks for Peak Performance'
+description: Keeping your Dodge Charger’s engine running smoothly depends on clean
+  fuel injectors. Choosing the right fuel injector cleaner helps improve performance
+  and fue
 pubDate: 2025-10-24
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-fuel-injector-cleaner-for-dodge-charger&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Fuel Injector Cleaner Picks
+heroImage: https://tse1.mm.bing.net/th?q=best-fuel-injector-cleaner-for-dodge-charger&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Keeping your Dodge Charger’s engine running smoothly depends on clean fuel injectors. Choosing the right fuel injector cleaner helps improve performance and fuel efficiency.**

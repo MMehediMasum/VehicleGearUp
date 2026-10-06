@@ -1,10 +1,14 @@
 ---
-title: "Do Tesla Model 3 Floor Mats Fit Model Y: Ultimate Fit Guide"
-description: "Are you wondering if Tesla Model 3 floor mats will fit your Model Y? You’re not alone. Many Tesla owners want to keep their cars clean and stylish without spend"
+title: 'Do Tesla Model 3 Floor Mats Fit Model Y: Ultimate Fit Guide'
+description: Are you wondering if Tesla Model 3 floor mats will fit your Model Y?
+  You’re not alone. Many Tesla owners want to keep their cars clean and stylish without
+  spend
 pubDate: 2026-05-24
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-tesla-model-3-floor-mats-fit-model-y&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Model Y Features
+heroImage: https://tse1.mm.bing.net/th?q=do-tesla-model-3-floor-mats-fit-model-y&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you wondering if Tesla Model 3 floor mats will fit your Model Y? You’re not alone.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Check Charge System Honda Accord: Easy Step-by-Step Guide"
-description: "Is your Honda Accord’s check charge light on, and you’re not sure what to do next? Don’t worry—you’re in the right place. Knowing how to reset the check charge "
+title: 'How to Reset Check Charge System Honda Accord: Easy Step-by-Step Guide'
+description: 'Is your Honda Accord’s check charge light on, and you’re not sure what
+  to do next? Don’t worry—you’re in the right place. Knowing how to reset the check
+  charge '
 pubDate: 2025-12-18
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-check-charge-system-honda-accord&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jeep Grand Cherokee Resets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-check-charge-system-honda-accord&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your Honda Accord’s check charge light on, and you’re not sure what to do next? Don’t worry—you’re in the right place.**

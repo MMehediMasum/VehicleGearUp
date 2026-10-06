@@ -1,10 +1,14 @@
 ---
-title: "How to Put Windshield Wipers Up Toyota Camry: Quick & Easy Guide"
-description: "Are you wondering how to put the windshield wipers up on your Toyota Camry? Whether you need to clean them, protect them from ice, or replace the blades, knowin"
+title: 'How to Put Windshield Wipers Up Toyota Camry: Quick & Easy Guide'
+description: Are you wondering how to put the windshield wipers up on your Toyota
+  Camry? Whether you need to clean them, protect them from ice, or replace the blades,
+  knowin
 pubDate: 2026-03-17
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-put-windshield-wipers-up-toyota-camry&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Windshield Wipers
+heroImage: https://tse1.mm.bing.net/th?q=how-to-put-windshield-wipers-up-toyota-camry&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Are you wondering how to put the windshield wipers up on your Toyota Camry? Whether you need to clean them, protect them from ice, or replace the blades, knowing the right steps can save you time and hassle.**

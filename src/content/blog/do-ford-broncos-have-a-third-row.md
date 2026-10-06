@@ -1,10 +1,14 @@
 ---
-title: "Do Ford Broncos Have a Third Row? Unveiling the Truth"
-description: "Are you curious if the Ford Bronco has enough space for your whole crew? Whether you’re planning family trips or weekend adventures, knowing if the Bronco offer"
+title: Do Ford Broncos Have a Third Row? Unveiling the Truth
+description: Are you curious if the Ford Bronco has enough space for your whole crew?
+  Whether you’re planning family trips or weekend adventures, knowing if the Bronco
+  offer
 pubDate: 2026-02-12
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-ford-broncos-have-a-third-row&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Third Row and Mileage
+heroImage: https://tse1.mm.bing.net/th?q=do-ford-broncos-have-a-third-row&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you curious if the Ford Bronco has enough space for your whole crew? Whether you’re planning family trips or weekend adventures, knowing if the Bronco offers a third row can make a big difference.**

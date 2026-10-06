@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Maintenance Required on Toyota Camry: Quick & Easy Guide"
-description: "If you own a Toyota Camry, you’ve probably seen the \"Maintenance Required\" light pop up on your dashboard. It’s a reminder that your car needs a service, but on"
+title: 'How to Reset Maintenance Required on Toyota Camry: Quick & Easy Guide'
+description: If you own a Toyota Camry, you’ve probably seen the "Maintenance Required"
+  light pop up on your dashboard. It’s a reminder that your car needs a service, but
+  on
 pubDate: 2025-12-04
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-maintenance-required-on-toyota-camry&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Maintenance Required Message
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-maintenance-required-on-toyota-camry&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a Toyota Camry, you’ve probably seen the "Maintenance Required" light pop up on your dashboard. It’s a reminder that your car needs a service, but once you’ve taken care of it, that light can be annoying if it won’t turn off.**

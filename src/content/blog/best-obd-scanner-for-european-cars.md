@@ -1,10 +1,14 @@
 ---
-title: "Best Obd Scanner for European Cars: Top Reliable Diagnostic Tools Reviewed"
-description: "Choosing the best OBD scanner for European cars helps you diagnose issues quickly and save money on repairs. These tools read error codes from your vehicle’s co"
+title: 'Best Obd Scanner for European Cars: Top Reliable Diagnostic Tools Reviewed'
+description: Choosing the best OBD scanner for European cars helps you diagnose issues
+  quickly and save money on repairs. These tools read error codes from your vehicle’s
+  co
 pubDate: 2026-06-14
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-obd-scanner-for-european-cars&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Scan Tools and Code Readers
+heroImage: https://tse1.mm.bing.net/th?q=best-obd-scanner-for-european-cars&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best OBD scanner for European cars helps you diagnose issues quickly and save money on repairs. These tools read error codes from your vehicle’s computer, guiding you to the problem’s source.**

@@ -1,10 +1,13 @@
 ---
-title: "Best Bed Liner Paint for Whole Truck: Top Durable Coatings Reviewed"
-description: "Choosing the best bed liner paint protects your entire truck from scratches, rust, and wear. It also improves your truck’s look and durability. A good bed liner"
+title: 'Best Bed Liner Paint for Whole Truck: Top Durable Coatings Reviewed'
+description: Choosing the best bed liner paint protects your entire truck from scratches,
+  rust, and wear. It also improves your truck’s look and durability. A good bed liner
 pubDate: 2025-10-11
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-bed-liner-paint-for-whole-truck&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spray Paint and Scratch Repair
+heroImage: https://tse1.mm.bing.net/th?q=best-bed-liner-paint-for-whole-truck&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best bed liner paint protects your entire truck from scratches, rust, and wear. It also improves your truck’s look and durability.**

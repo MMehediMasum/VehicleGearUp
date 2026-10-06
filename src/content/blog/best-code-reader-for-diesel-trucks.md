@@ -1,10 +1,14 @@
 ---
-title: "Best Code Reader for Diesel Trucks: Top Heavy Duty Diagnostic Tools Reviewed"
-description: "Finding the best code reader for diesel trucks helps keep engines running smoothly. These tools diagnose engine problems quickly and clearly. Diesel trucks need"
+title: 'Best Code Reader for Diesel Trucks: Top Heavy Duty Diagnostic Tools Reviewed'
+description: Finding the best code reader for diesel trucks helps keep engines running
+  smoothly. These tools diagnose engine problems quickly and clearly. Diesel trucks
+  need
 pubDate: 2026-06-18
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-code-reader-for-diesel-trucks&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Scan Tools and Code Readers
+heroImage: https://tse1.mm.bing.net/th?q=best-code-reader-for-diesel-trucks&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Finding the best code reader for diesel trucks helps keep engines running smoothly. These tools diagnose engine problems quickly and clearly.**

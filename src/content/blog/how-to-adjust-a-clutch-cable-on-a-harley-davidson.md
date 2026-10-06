@@ -1,10 +1,14 @@
 ---
-title: "How to Adjust a Clutch Cable on a Harley Davidson: Quick & Easy Guide"
-description: "If you ride a Harley Davidson, you know how important it is to have smooth clutch control. But what happens when your clutch feels loose, stiff, or just not rig"
+title: 'How to Adjust a Clutch Cable on a Harley Davidson: Quick & Easy Guide'
+description: If you ride a Harley Davidson, you know how important it is to have smooth
+  clutch control. But what happens when your clutch feels loose, stiff, or just not
+  rig
 pubDate: 2025-11-03
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-adjust-a-clutch-cable-on-a-harley-davidson&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Ownership Questions
+heroImage: https://tse1.mm.bing.net/th?q=how-to-adjust-a-clutch-cable-on-a-harley-davidson&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **If you ride a Harley Davidson, you know how important it is to have smooth clutch control. But what happens when your clutch feels loose, stiff, or just not right?**

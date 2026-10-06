@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Car Headlights from Inside: Easy Steps for Crystal Clear Lights"
-description: "Are your car headlights looking foggy or dim, even after cleaning the outside? You might be surprised to learn that the inside of your headlights can get dirty "
+title: 'How to Clean Car Headlights from Inside: Easy Steps for Crystal Clear Lights'
+description: 'Are your car headlights looking foggy or dim, even after cleaning the
+  outside? You might be surprised to learn that the inside of your headlights can
+  get dirty '
 pubDate: 2026-03-17
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-car-headlights-from-inside&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Headlight Cleaning and Upgrades
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-car-headlights-from-inside&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are your car headlights looking foggy or dim, even after cleaning the outside? You might be surprised to learn that the inside of your headlights can get dirty too, affecting how well you see the road at night.**

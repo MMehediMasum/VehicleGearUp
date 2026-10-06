@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for GMC Sierra 1500 to Boost Power & Performance"
-description: "Choosing the best cold air intake boosts your GMC Sierra 1500’s engine power and efficiency. A quality system improves airflow, increasing horsepower and towing"
+title: Best Cold Air Intake for GMC Sierra 1500 to Boost Power & Performance
+description: Choosing the best cold air intake boosts your GMC Sierra 1500’s engine
+  power and efficiency. A quality system improves airflow, increasing horsepower and
+  towing
 pubDate: 2026-06-03
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-gmc-sierra-1500&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- GM Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-gmc-sierra-1500&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best cold air intake boosts your GMC Sierra 1500’s engine power and efficiency. A quality system improves airflow, increasing horsepower and towing ability.**

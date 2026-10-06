@@ -1,10 +1,14 @@
 ---
-title: "Best Seat Covers for Toyota Tundra: Top Waterproof Leather Picks"
-description: "Protecting your Toyota Tundra’s seats keeps your truck looking fresh and clean. Choosing the best seat covers adds comfort and durability. Toyota Tundra seat co"
+title: 'Best Seat Covers for Toyota Tundra: Top Waterproof Leather Picks'
+description: Protecting your Toyota Tundra’s seats keeps your truck looking fresh
+  and clean. Choosing the best seat covers adds comfort and durability. Toyota Tundra
+  seat co
 pubDate: 2026-07-19
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-seat-covers-for-toyota-tundra&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota and Lexus Seat Covers
+heroImage: https://tse1.mm.bing.net/th?q=best-seat-covers-for-toyota-tundra&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Protecting your Toyota Tundra’s seats keeps your truck looking fresh and clean. Choosing the best seat covers adds comfort and durability.**

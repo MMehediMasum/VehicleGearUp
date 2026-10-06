@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Charge a Toy Car Battery: Easy Steps for Fast Power-Up"
 description: "Is your child’s toy car running low on power? Knowing how to charge a toy car battery properly can save you time and keep the fun going longer. You might think "
 pubDate: 2026-03-31

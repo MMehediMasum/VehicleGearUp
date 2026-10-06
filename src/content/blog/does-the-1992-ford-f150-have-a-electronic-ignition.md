@@ -1,10 +1,14 @@
 ---
-title: "Does the 1992 Ford F150 Have a Electronic Ignition? Uncovered!"
-description: "Are you curious about the ignition system in your 1992 Ford F150? Knowing whether your truck has an electronic ignition can save you time and money when it come"
+title: Does the 1992 Ford F150 Have a Electronic Ignition? Uncovered!
+description: Are you curious about the ignition system in your 1992 Ford F150? Knowing
+  whether your truck has an electronic ignition can save you time and money when it
+  come
 pubDate: 2026-03-13
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-the-1992-ford-f150-have-a-electronic-ignition&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Model Questions
+heroImage: https://tse1.mm.bing.net/th?q=does-the-1992-ford-f150-have-a-electronic-ignition&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you curious about the ignition system in your 1992 Ford F150? Knowing whether your truck has an electronic ignition can save you time and money when it comes to repairs and maintenance.**

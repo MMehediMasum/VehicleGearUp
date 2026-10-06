@@ -1,10 +1,14 @@
 ---
-title: "What is the Acid in Car Batteries: Essential Facts You Must Know"
-description: "Have you ever wondered what makes your car battery work so powerfully? The secret lies in a special acid inside it. This acid plays a crucial role in keeping yo"
+title: 'What is the Acid in Car Batteries: Essential Facts You Must Know'
+description: Have you ever wondered what makes your car battery work so powerfully?
+  The secret lies in a special acid inside it. This acid plays a crucial role in keeping
+  yo
 pubDate: 2026-01-19
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-acid-in-car-batteries&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Polarity and Acid
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-acid-in-car-batteries&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered what makes your car battery work so powerfully? The secret lies in a special acid inside it.**

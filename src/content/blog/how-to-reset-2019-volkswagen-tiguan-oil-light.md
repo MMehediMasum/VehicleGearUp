@@ -1,10 +1,14 @@
 ---
-title: "How to Reset 2019 Volkswagen Tiguan Oil Light: Quick & Easy Steps"
-description: "Your 2019 Volkswagen Tiguan’s oil light just came on, and you’re not sure what to do next. Don’t worry—resetting that oil light is easier than you think. If you"
+title: 'How to Reset 2019 Volkswagen Tiguan Oil Light: Quick & Easy Steps'
+description: Your 2019 Volkswagen Tiguan’s oil light just came on, and you’re not
+  sure what to do next. Don’t worry—resetting that oil light is easier than you think.
+  If you
 pubDate: 2026-04-24
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-2019-volkswagen-tiguan-oil-light&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Oil Light Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-2019-volkswagen-tiguan-oil-light&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Your 2019 Volkswagen Tiguan’s oil light just came on, and you’re not sure what to do next. Don’t worry—resetting that oil light is easier than you think.**

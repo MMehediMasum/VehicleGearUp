@@ -1,10 +1,14 @@
 ---
-title: "Best Exhaust System for C5 Corvette: Top Stainless Steel Cat-Back Picks"
-description: "Choosing the best exhaust system for your C5 Corvette can boost performance and sound. A quality exhaust improves airflow and gives your car a sharper tone. The"
+title: 'Best Exhaust System for C5 Corvette: Top Stainless Steel Cat-Back Picks'
+description: Choosing the best exhaust system for your C5 Corvette can boost performance
+  and sound. A quality exhaust improves airflow and gives your car a sharper tone.
+  The
 pubDate: 2026-06-19
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-exhaust-system-for-c5-corvette&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Exhaust Systems
+heroImage: https://tse1.mm.bing.net/th?q=best-exhaust-system-for-c5-corvette&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best exhaust system for your C5 Corvette can boost performance and sound. A quality exhaust improves airflow and gives your car a sharper tone.**

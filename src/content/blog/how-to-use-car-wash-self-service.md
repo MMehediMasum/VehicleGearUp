@@ -1,10 +1,13 @@
 ---
-title: "How to Use Car Wash Self Service: Easy Steps for a Sparkling Car"
-description: "Want to give your car a fresh, spotless shine without paying for a full-service wash? Using a self-service car wash is easier than you think—and it puts you in "
+title: 'How to Use Car Wash Self Service: Easy Steps for a Sparkling Car'
+description: 'Want to give your car a fresh, spotless shine without paying for a full-service
+  wash? Using a self-service car wash is easier than you think—and it puts you in '
 pubDate: 2025-10-23
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-use-car-wash-self-service&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Using Car Wash Vacuums
+heroImage: https://tse1.mm.bing.net/th?q=how-to-use-car-wash-self-service&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Want to give your car a fresh, spotless shine without paying for a full-service wash? Using a self-service car wash is easier than you think—and it puts you in complete control.**

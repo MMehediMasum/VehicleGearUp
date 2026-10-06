@@ -1,10 +1,14 @@
 ---
-title: "Is the Ford Transit All Wheel Drive: Ultimate Traction Tested"
-description: "Are you wondering if the Ford Transit comes with all-wheel drive? If you rely on your vehicle for work, travel, or daily errands, knowing how it handles differe"
+title: 'Is the Ford Transit All Wheel Drive: Ultimate Traction Tested'
+description: Are you wondering if the Ford Transit comes with all-wheel drive? If
+  you rely on your vehicle for work, travel, or daily errands, knowing how it handles
+  differe
 pubDate: 2025-09-14
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-the-ford-transit-all-wheel-drive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- All Wheel Drive Questions
+heroImage: https://tse1.mm.bing.net/th?q=is-the-ford-transit-all-wheel-drive&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you wondering if the Ford Transit comes with all-wheel drive? If you rely on your vehicle for work, travel, or daily errands, knowing how it handles different road conditions is important.**

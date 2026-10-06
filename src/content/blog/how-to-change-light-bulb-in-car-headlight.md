@@ -1,10 +1,14 @@
 ---
-title: "How to Change Light Bulb in Car Headlight: Easy Step-by-Step Guide"
-description: "Is your car’s headlight flickering or completely out? Changing a light bulb in your car’s headlight might seem tricky, but it’s easier than you think. Knowing h"
+title: 'How to Change Light Bulb in Car Headlight: Easy Step-by-Step Guide'
+description: Is your car’s headlight flickering or completely out? Changing a light
+  bulb in your car’s headlight might seem tricky, but it’s easier than you think.
+  Knowing h
 pubDate: 2025-09-20
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-light-bulb-in-car-headlight&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Headlight Bulbs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-light-bulb-in-car-headlight&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your car’s headlight flickering or completely out? Changing a light bulb in your car’s headlight might seem tricky, but it’s easier than you think.**

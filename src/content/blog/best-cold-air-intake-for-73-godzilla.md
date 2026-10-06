@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for 7.3 Godzilla: Top Performance Upgrades Reviewed"
-description: "Choosing the best cold air intake for your 7.3 Godzilla improves engine performance and fuel efficiency. This guide covers top intake systems compatible with Fo"
+title: 'Best Cold Air Intake for 7.3 Godzilla: Top Performance Upgrades Reviewed'
+description: Choosing the best cold air intake for your 7.3 Godzilla improves engine
+  performance and fuel efficiency. This guide covers top intake systems compatible
+  with Fo
 pubDate: 2025-10-19
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-73-godzilla&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Engine Specific Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-73-godzilla&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best cold air intake for your 7.3 Godzilla improves engine performance and fuel efficiency. This guide covers top intake systems compatible with Ford 7.3L Powerstroke diesel engines.**

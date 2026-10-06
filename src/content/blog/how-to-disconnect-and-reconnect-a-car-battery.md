@@ -1,10 +1,14 @@
 ---
-title: "How to Disconnect And Reconnect a Car Battery: Easy Step-by-Step Guide"
-description: "Have you ever needed to disconnect your car battery but felt unsure where to start? Maybe you want to reset your car’s electronics or safely work on your vehicl"
+title: 'How to Disconnect And Reconnect a Car Battery: Easy Step-by-Step Guide'
+description: Have you ever needed to disconnect your car battery but felt unsure where
+  to start? Maybe you want to reset your car’s electronics or safely work on your
+  vehicl
 pubDate: 2026-04-03
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-disconnect-and-reconnect-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Terminal Care
+heroImage: https://tse1.mm.bing.net/th?q=how-to-disconnect-and-reconnect-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever needed to disconnect your car battery but felt unsure where to start? Maybe you want to reset your car’s electronics or safely work on your vehicle without risking a shock.**

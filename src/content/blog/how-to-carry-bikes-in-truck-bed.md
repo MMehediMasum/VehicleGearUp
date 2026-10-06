@@ -1,10 +1,14 @@
 ---
-title: "How to Carry Bikes in Truck Bed: Easy, Safe, and Secure Methods"
-description: "Are you planning to take your bike along for your next adventure but unsure how to carry it safely in your truck bed? You’re not alone. Carrying bikes in a truc"
+title: 'How to Carry Bikes in Truck Bed: Easy, Safe, and Secure Methods'
+description: Are you planning to take your bike along for your next adventure but
+  unsure how to carry it safely in your truck bed? You’re not alone. Carrying bikes
+  in a truc
 pubDate: 2026-01-20
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-carry-bikes-in-truck-bed&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Truck Bed Gear
+heroImage: https://tse1.mm.bing.net/th?q=how-to-carry-bikes-in-truck-bed&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Are you planning to take your bike along for your next adventure but unsure how to carry it safely in your truck bed? You’re not alone.**

@@ -1,10 +1,14 @@
 ---
-title: "What Should a Fully Charged Car Battery Read: Key Voltage Insights"
-description: "Have you ever wondered if your car battery is truly healthy? Knowing what a fully charged car battery should read can save you from unexpected breakdowns and co"
+title: 'What Should a Fully Charged Car Battery Read: Key Voltage Insights'
+description: Have you ever wondered if your car battery is truly healthy? Knowing
+  what a fully charged car battery should read can save you from unexpected breakdowns
+  and co
 pubDate: 2025-09-13
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-should-a-fully-charged-car-battery-read&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Price and Installation
+heroImage: https://tse1.mm.bing.net/th?q=what-should-a-fully-charged-car-battery-read&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if your car battery is truly healthy? Knowing what a fully charged car battery should read can save you from unexpected breakdowns and costly repairs.**

@@ -1,10 +1,14 @@
 ---
-title: "How Fast Does a Nissan Altima Go: Speed, Specs & Performance Facts"
-description: "Are you curious about how fast a Nissan Altima can really go? Whether you're thinking about buying one or just want to know if it can keep up with your driving "
+title: 'How Fast Does a Nissan Altima Go: Speed, Specs & Performance Facts'
+description: 'Are you curious about how fast a Nissan Altima can really go? Whether
+  you''re thinking about buying one or just want to know if it can keep up with your
+  driving '
 pubDate: 2026-02-24
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-fast-does-a-nissan-altima-go&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Speed and Drive
+heroImage: https://tse1.mm.bing.net/th?q=how-fast-does-a-nissan-altima-go&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you curious about how fast a Nissan Altima can really go? Whether you're thinking about buying one or just want to know if it can keep up with your driving style, speed matters.**

@@ -1,10 +1,13 @@
 ---
-title: "Best Portable Air Compressor for Motorcycle Tires: Top Picks for Quick Inflation"
-description: "Maintaining proper tire pressure is vital for motorcycle safety and performance. A portable air compressor makes tire inflation quick and easy on the go. Choosi"
+title: 'Best Portable Air Compressor for Motorcycle Tires: Top Picks for Quick Inflation'
+description: Maintaining proper tire pressure is vital for motorcycle safety and performance.
+  A portable air compressor makes tire inflation quick and easy on the go. Choosi
 pubDate: 2026-01-03
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-portable-air-compressor-for-motorcycle-tires&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-portable-air-compressor-for-motorcycle-tires&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Maintaining proper tire pressure is vital for motorcycle safety and performance. A portable air compressor makes tire inflation quick and easy on the go.**

@@ -1,10 +1,13 @@
 ---
-title: "How to Recharge Car Ac Honda Civic: Easy Steps for Cool Comfort"
-description: "Is your Honda Civic’s air conditioner not as cold as it used to be? You’re not alone. Over time, the AC system can lose its cooling power, leaving you uncomfort"
+title: 'How to Recharge Car Ac Honda Civic: Easy Steps for Cool Comfort'
+description: Is your Honda Civic’s air conditioner not as cold as it used to be? You’re
+  not alone. Over time, the AC system can lose its cooling power, leaving you uncomfort
 pubDate: 2026-02-06
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-recharge-car-ac-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Coolant and AC Recharge
+heroImage: https://tse1.mm.bing.net/th?q=how-to-recharge-car-ac-honda-civic&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your Honda Civic’s air conditioner not as cold as it used to be? You’re not alone.**

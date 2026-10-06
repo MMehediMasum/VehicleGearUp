@@ -1,10 +1,14 @@
 ---
-title: "How to Check Oil Percentage in Nissan Altima on Dashboard: Easy Guide"
-description: "Are you wondering how to check the oil percentage in your Nissan Altima right from the dashboard? Knowing this simple trick can save you from unexpected engine "
+title: 'How to Check Oil Percentage in Nissan Altima on Dashboard: Easy Guide'
+description: 'Are you wondering how to check the oil percentage in your Nissan Altima
+  right from the dashboard? Knowing this simple trick can save you from unexpected
+  engine '
 pubDate: 2025-10-09
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-check-oil-percentage-in-nissan-altima-on-dashboard&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Checking Oil Levels
+heroImage: https://tse1.mm.bing.net/th?q=how-to-check-oil-percentage-in-nissan-altima-on-dashboard&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Are you wondering how to check the oil percentage in your Nissan Altima right from the dashboard? Knowing this simple trick can save you from unexpected engine problems and costly repairs.**

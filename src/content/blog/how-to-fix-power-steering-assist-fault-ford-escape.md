@@ -1,10 +1,14 @@
 ---
-title: "How to Fix Power Steering Assist Fault Ford Escape: Quick Solutions"
-description: "Is your Ford Escape showing a power steering assist fault? This problem can make driving tough and even unsafe. But don’t worry—you’re in the right place to fix"
+title: 'How to Fix Power Steering Assist Fault Ford Escape: Quick Solutions'
+description: Is your Ford Escape showing a power steering assist fault? This problem
+  can make driving tough and even unsafe. But don’t worry—you’re in the right place
+  to fix
 pubDate: 2026-05-13
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-power-steering-assist-fault-ford-escape&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Power Steering Fluid and Additives
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-power-steering-assist-fault-ford-escape&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your Ford Escape showing a power steering assist fault? This problem can make driving tough and even unsafe.**

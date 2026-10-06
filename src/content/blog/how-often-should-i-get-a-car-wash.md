@@ -1,10 +1,14 @@
 ---
-title: "How Often Should I Get a Car Wash: Essential Tips for Shine"
-description: "How often should you get a car wash? It’s a question many car owners wonder about. Keeping your car clean isn’t just about looks—it protects your paint, maintai"
+title: 'How Often Should I Get a Car Wash: Essential Tips for Shine'
+description: How often should you get a car wash? It’s a question many car owners
+  wonder about. Keeping your car clean isn’t just about looks—it protects your paint,
+  maintai
 pubDate: 2026-03-21
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-often-should-i-get-a-car-wash&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Winter Car Wash Questions
+heroImage: https://tse1.mm.bing.net/th?q=how-often-should-i-get-a-car-wash&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **How often should you get a car wash? It’s a question many car owners wonder about.**

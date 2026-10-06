@@ -1,10 +1,14 @@
 ---
-title: "Best Bottle Jack for Lifted Truck: Top Heavy-Duty Lifting Solutions"
-description: "Choosing the best bottle jack for a lifted truck ensures safe and easy lifting. Strong, reliable jacks handle higher clearance and weight with ease. Lifted truc"
+title: 'Best Bottle Jack for Lifted Truck: Top Heavy-Duty Lifting Solutions'
+description: Choosing the best bottle jack for a lifted truck ensures safe and easy
+  lifting. Strong, reliable jacks handle higher clearance and weight with ease. Lifted
+  truc
 pubDate: 2026-06-23
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-bottle-jack-for-lifted-truck&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Jacks and Jack Stands
+heroImage: https://tse1.mm.bing.net/th?q=best-bottle-jack-for-lifted-truck&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best bottle jack for a lifted truck ensures safe and easy lifting. Strong, reliable jacks handle higher clearance and weight with ease.**

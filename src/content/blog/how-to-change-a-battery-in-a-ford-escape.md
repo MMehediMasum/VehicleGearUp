@@ -1,10 +1,14 @@
 ---
-title: "How to Change a Battery in a Ford Escape: Quick & Easy Steps"
-description: "Is your Ford Escape struggling to start or showing signs of a weak battery? Changing the battery might be the simple fix you need. You don’t have to wait for a "
+title: 'How to Change a Battery in a Ford Escape: Quick & Easy Steps'
+description: 'Is your Ford Escape struggling to start or showing signs of a weak battery?
+  Changing the battery might be the simple fix you need. You don’t have to wait for
+  a '
 pubDate: 2025-10-07
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-a-battery-in-a-ford-escape&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing a Car Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-a-battery-in-a-ford-escape&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your Ford Escape struggling to start or showing signs of a weak battery? Changing the battery might be the simple fix you need.**

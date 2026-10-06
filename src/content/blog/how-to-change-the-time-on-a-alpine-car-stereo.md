@@ -1,10 +1,14 @@
 ---
-title: "How to Change the Time on a Alpine Car Stereo: Quick & Easy Guide"
-description: "Have you ever looked at your Alpine car stereo and realized the time is way off? It can be frustrating, especially when you rely on your stereo to keep you on s"
+title: 'How to Change the Time on a Alpine Car Stereo: Quick & Easy Guide'
+description: Have you ever looked at your Alpine car stereo and realized the time
+  is way off? It can be frustrating, especially when you rely on your stereo to keep
+  you on s
 pubDate: 2026-05-21
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-the-time-on-a-alpine-car-stereo&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Setting the Time on Cars
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-the-time-on-a-alpine-car-stereo&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Have you ever looked at your Alpine car stereo and realized the time is way off? It can be frustrating, especially when you rely on your stereo to keep you on schedule.**

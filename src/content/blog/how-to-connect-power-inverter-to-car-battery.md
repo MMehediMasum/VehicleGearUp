@@ -1,10 +1,14 @@
 ---
-title: "How to Connect Power Inverter to Car Battery: Easy Step-by-Step Guide"
-description: "Are you looking to power your devices on the go using your car battery? Connecting a power inverter to your car battery is the key to turning your vehicle into "
+title: 'How to Connect Power Inverter to Car Battery: Easy Step-by-Step Guide'
+description: 'Are you looking to power your devices on the go using your car battery?
+  Connecting a power inverter to your car battery is the key to turning your vehicle
+  into '
 pubDate: 2026-04-08
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-connect-power-inverter-to-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing a Car Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-connect-power-inverter-to-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you looking to power your devices on the go using your car battery? Connecting a power inverter to your car battery is the key to turning your vehicle into a mobile power source.**

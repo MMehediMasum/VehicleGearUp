@@ -1,10 +1,14 @@
 ---
-title: "Best Locking Hitch Pin for 2 Inch Receiver: Secure Your Trailer Today"
-description: "Choosing the best locking hitch pin for a 2-inch receiver ensures your trailer stays secure. A good pin prevents theft and keeps your hitch stable during travel"
+title: 'Best Locking Hitch Pin for 2 Inch Receiver: Secure Your Trailer Today'
+description: Choosing the best locking hitch pin for a 2-inch receiver ensures your
+  trailer stays secure. A good pin prevents theft and keeps your hitch stable during
+  travel
 pubDate: 2025-09-21
-author: "herbertlangham"
-categories: ["Towing & Hauling"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-locking-hitch-pin-for-2-inch-receiver&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hitch Bike Racks
+heroImage: https://tse1.mm.bing.net/th?q=best-locking-hitch-pin-for-2-inch-receiver&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Choosing the best locking hitch pin for a 2-inch receiver ensures your trailer stays secure. A good pin prevents theft and keeps your hitch stable during travel.**

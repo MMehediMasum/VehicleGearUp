@@ -1,10 +1,14 @@
 ---
-title: "Does the Toyota Corolla Have All Wheel Drive: Truth Revealed!"
-description: "Are you thinking about getting a Toyota Corolla but wondering if it comes with all-wheel drive? You want a car that feels safe and steady, no matter the road or"
+title: 'Does the Toyota Corolla Have All Wheel Drive: Truth Revealed!'
+description: Are you thinking about getting a Toyota Corolla but wondering if it comes
+  with all-wheel drive? You want a car that feels safe and steady, no matter the road
+  or
 pubDate: 2025-10-19
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-the-toyota-corolla-have-all-wheel-drive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- All Wheel Drive Questions
+heroImage: https://tse1.mm.bing.net/th?q=does-the-toyota-corolla-have-all-wheel-drive&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you thinking about getting a Toyota Corolla but wondering if it comes with all-wheel drive? You want a car that feels safe and steady, no matter the road or weather.**

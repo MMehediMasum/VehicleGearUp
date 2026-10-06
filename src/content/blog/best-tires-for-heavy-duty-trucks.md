@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Heavy Duty Trucks: Top Durable Picks for Tough Performance"
-description: "Choosing the best tires for heavy duty trucks ensures safety and performance on tough roads. Strong tires handle heavy loads and rough terrain without fail. Hea"
+title: 'Best Tires for Heavy Duty Trucks: Top Durable Picks for Tough Performance'
+description: Choosing the best tires for heavy duty trucks ensures safety and performance
+  on tough roads. Strong tires handle heavy loads and rough terrain without fail.
+  Hea
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-heavy-duty-trucks&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Mud Street and RV Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-heavy-duty-trucks&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for heavy duty trucks ensures safety and performance on tough roads. Strong tires handle heavy loads and rough terrain without fail.**

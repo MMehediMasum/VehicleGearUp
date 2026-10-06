@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Life on Honda Accord 2011: Easy Step-by-Step Guide"
-description: "If you own a 2011 Honda Accord, knowing how to reset your oil life indicator is essential. This simple step helps keep your engine running smoothly and saves yo"
+title: 'How to Reset Oil Life on Honda Accord 2011: Easy Step-by-Step Guide'
+description: If you own a 2011 Honda Accord, knowing how to reset your oil life indicator
+  is essential. This simple step helps keep your engine running smoothly and saves
+  yo
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-life-on-honda-accord-2011&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Oil Life Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-life-on-honda-accord-2011&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a 2011 Honda Accord, knowing how to reset your oil life indicator is essential. This simple step helps keep your engine running smoothly and saves you from unexpected maintenance alerts.**

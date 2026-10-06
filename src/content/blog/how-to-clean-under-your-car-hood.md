@@ -1,10 +1,14 @@
 ---
-title: "How to Clean under Your Car Hood: Easy Steps for a Spotless Engine"
-description: "Have you ever wondered what’s lurking under your car hood? Cleaning this hidden area isn’t just about making your engine look good—it can actually help your car"
+title: 'How to Clean under Your Car Hood: Easy Steps for a Spotless Engine'
+description: Have you ever wondered what’s lurking under your car hood? Cleaning this
+  hidden area isn’t just about making your engine look good—it can actually help your
+  car
 pubDate: 2026-03-18
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-under-your-car-hood&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Windshield and Mirror Repair
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-under-your-car-hood&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever wondered what’s lurking under your car hood? Cleaning this hidden area isn’t just about making your engine look good—it can actually help your car run smoother and last longer.**

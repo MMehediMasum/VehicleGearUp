@@ -1,10 +1,14 @@
 ---
-title: "Can You Power Wash a Car Engine: Essential Tips & Safety Guide"
-description: "Have you ever wondered if you can power wash your car engine safely? You might be curious about how to keep your engine clean without causing damage. Cleaning y"
+title: 'Can You Power Wash a Car Engine: Essential Tips & Safety Guide'
+description: Have you ever wondered if you can power wash your car engine safely?
+  You might be curious about how to keep your engine clean without causing damage.
+  Cleaning y
 pubDate: 2026-05-18
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-power-wash-a-car-engine&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- How Car Engines Work
+heroImage: https://tse1.mm.bing.net/th?q=can-you-power-wash-a-car-engine&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you ever wondered if you can power wash your car engine safely? You might be curious about how to keep your engine clean without causing damage.**

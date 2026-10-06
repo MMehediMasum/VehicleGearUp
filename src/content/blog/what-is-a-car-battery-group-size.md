@@ -1,10 +1,14 @@
 ---
-title: "What is a Car Battery Group Size: Ultimate Guide for Buyers"
-description: "When it comes to your car’s battery, one size does not fit all. Have you ever wondered why your mechanic asks for a specific “group size” before replacing your "
+title: 'What is a Car Battery Group Size: Ultimate Guide for Buyers'
+description: 'When it comes to your car’s battery, one size does not fit all. Have
+  you ever wondered why your mechanic asks for a specific “group size” before replacing
+  your '
 pubDate: 2026-04-19
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-a-car-battery-group-size&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Ratings Explained
+heroImage: https://tse1.mm.bing.net/th?q=what-is-a-car-battery-group-size&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **When it comes to your car’s battery, one size does not fit all. Have you ever wondered why your mechanic asks for a specific “group size” before replacing your battery?**

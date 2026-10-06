@@ -1,10 +1,14 @@
 ---
-title: "Best Light Bar for Dirt Bike: Top 60W LED Headlights Reviewed"
-description: "Choosing the best light bar for a dirt bike improves night riding safety and visibility. Bright, durable lights help riders see the trail clearly. A good dirt b"
+title: 'Best Light Bar for Dirt Bike: Top 60W LED Headlights Reviewed'
+description: Choosing the best light bar for a dirt bike improves night riding safety
+  and visibility. Bright, durable lights help riders see the trail clearly. A good
+  dirt b
 pubDate: 2026-07-20
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-light-bar-for-dirt-bike&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hauling Motorcycles in Trucks
+heroImage: https://tse1.mm.bing.net/th?q=best-light-bar-for-dirt-bike&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best light bar for a dirt bike improves night riding safety and visibility. Bright, durable lights help riders see the trail clearly.**

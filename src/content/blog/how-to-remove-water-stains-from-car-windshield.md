@@ -1,10 +1,14 @@
 ---
-title: "How to Remove Water Stains from Car Windshield: Easy Expert Tips"
-description: "Have you ever noticed those stubborn water stains on your car windshield that just won’t go away? They make it hard to see clearly and ruin the look of your veh"
+title: 'How to Remove Water Stains from Car Windshield: Easy Expert Tips'
+description: Have you ever noticed those stubborn water stains on your car windshield
+  that just won’t go away? They make it hard to see clearly and ruin the look of your
+  veh
 pubDate: 2025-11-05
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-remove-water-stains-from-car-windshield&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Windshield and Mirror Repair
+heroImage: https://tse1.mm.bing.net/th?q=how-to-remove-water-stains-from-car-windshield&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever noticed those stubborn water stains on your car windshield that just won’t go away? They make it hard to see clearly and ruin the look of your vehicle.**

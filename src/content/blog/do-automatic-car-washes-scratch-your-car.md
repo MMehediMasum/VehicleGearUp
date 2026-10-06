@@ -1,10 +1,14 @@
 ---
-title: "Do Automatic Car Washes Scratch Your Car? Shocking Truth Revealed"
-description: "Have you ever wondered if taking your car through an automatic car wash could actually harm its paint? You want your car to look spotless, but the fear of scrat"
+title: Do Automatic Car Washes Scratch Your Car? Shocking Truth Revealed
+description: Have you ever wondered if taking your car through an automatic car wash
+  could actually harm its paint? You want your car to look spotless, but the fear
+  of scrat
 pubDate: 2026-03-17
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-automatic-car-washes-scratch-your-car&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Do Car Washes Damage Paint
+heroImage: https://tse1.mm.bing.net/th?q=do-automatic-car-washes-scratch-your-car&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever wondered if taking your car through an automatic car wash could actually harm its paint? You want your car to look spotless, but the fear of scratches might be holding you back.**

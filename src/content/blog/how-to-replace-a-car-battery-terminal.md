@@ -1,10 +1,14 @@
 ---
-title: "How to Replace a Car Battery Terminal: Easy Step-by-Step Guide"
-description: "Is your car having trouble starting, or do you notice a weak connection under the hood? The problem might be your battery terminal. Knowing how to replace a car"
+title: 'How to Replace a Car Battery Terminal: Easy Step-by-Step Guide'
+description: Is your car having trouble starting, or do you notice a weak connection
+  under the hood? The problem might be your battery terminal. Knowing how to replace
+  a car
 pubDate: 2026-05-04
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-replace-a-car-battery-terminal&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Terminal Care
+heroImage: https://tse1.mm.bing.net/th?q=how-to-replace-a-car-battery-terminal&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your car having trouble starting, or do you notice a weak connection under the hood? The problem might be your battery terminal.**

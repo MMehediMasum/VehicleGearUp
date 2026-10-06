@@ -1,10 +1,14 @@
 ---
-title: "How to Get Rid of Scratches on Car Dashboard: Easy Repair Tips"
-description: "Have you noticed those annoying scratches ruining the look of your car’s dashboard? They can make your interior feel worn out and less enjoyable every time you "
+title: 'How to Get Rid of Scratches on Car Dashboard: Easy Repair Tips'
+description: 'Have you noticed those annoying scratches ruining the look of your car’s
+  dashboard? They can make your interior feel worn out and less enjoyable every time
+  you '
 pubDate: 2026-03-19
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-get-rid-of-scratches-on-car-dashboard&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Leather and Dashboard Care
+heroImage: https://tse1.mm.bing.net/th?q=how-to-get-rid-of-scratches-on-car-dashboard&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you noticed those annoying scratches ruining the look of your car’s dashboard? They can make your interior feel worn out and less enjoyable every time you get behind the wheel.**

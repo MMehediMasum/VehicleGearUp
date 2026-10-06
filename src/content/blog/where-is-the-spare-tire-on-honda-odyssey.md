@@ -1,10 +1,14 @@
 ---
-title: "Where is the Spare Tire on Honda Odyssey: Quick & Easy Guide"
-description: "Have you ever faced a flat tire and struggled to find the spare on your Honda Odyssey? Knowing exactly where your spare tire is can save you time and stress whe"
+title: 'Where is the Spare Tire on Honda Odyssey: Quick & Easy Guide'
+description: Have you ever faced a flat tire and struggled to find the spare on your
+  Honda Odyssey? Knowing exactly where your spare tire is can save you time and stress
+  whe
 pubDate: 2025-10-29
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-is-the-spare-tire-on-honda-odyssey&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spare Tires and Tire Changing
+heroImage: https://tse1.mm.bing.net/th?q=where-is-the-spare-tire-on-honda-odyssey&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Have you ever faced a flat tire and struggled to find the spare on your Honda Odyssey? Knowing exactly where your spare tire is can save you time and stress when you need it most.**

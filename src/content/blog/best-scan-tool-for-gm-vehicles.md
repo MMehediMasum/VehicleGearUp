@@ -1,10 +1,14 @@
 ---
-title: "Best Scan Tool for GM Vehicles: Top Diagnostic Tools Reviewed"
-description: "Choosing the best scan tool for GM vehicles helps you quickly find and fix car problems. A reliable scanner saves time and money on repairs. GM vehicles need sp"
+title: 'Best Scan Tool for GM Vehicles: Top Diagnostic Tools Reviewed'
+description: Choosing the best scan tool for GM vehicles helps you quickly find and
+  fix car problems. A reliable scanner saves time and money on repairs. GM vehicles
+  need sp
 pubDate: 2026-06-22
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-scan-tool-for-gm-vehicles&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Scan Tools and Code Readers
+heroImage: https://tse1.mm.bing.net/th?q=best-scan-tool-for-gm-vehicles&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best scan tool for GM vehicles helps you quickly find and fix car problems. A reliable scanner saves time and money on repairs.**

@@ -1,10 +1,14 @@
 ---
-title: "What Does a Dead Car Battery Sound Like: Clear Signs to Know Now"
-description: "Have you ever turned your key, only to hear strange noises instead of your car starting? That sound could be your dead car battery trying to tell you something "
+title: 'What Does a Dead Car Battery Sound Like: Clear Signs to Know Now'
+description: 'Have you ever turned your key, only to hear strange noises instead of
+  your car starting? That sound could be your dead car battery trying to tell you
+  something '
 pubDate: 2026-04-03
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-does-a-dead-car-battery-sound-like&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Reviving a Dead Battery
+heroImage: https://tse1.mm.bing.net/th?q=what-does-a-dead-car-battery-sound-like&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever turned your key, only to hear strange noises instead of your car starting? That sound could be your dead car battery trying to tell you something important.**

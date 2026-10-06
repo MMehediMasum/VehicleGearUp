@@ -1,10 +1,14 @@
 ---
-title: "How to Jump Start a Hyundai Elantra: Quick and Easy Steps"
-description: "Your Hyundai Elantra won’t start, and you’re stuck wondering what to do next. Don’t worry—you can jump start your car quickly and safely, even if you’ve never d"
+title: 'How to Jump Start a Hyundai Elantra: Quick and Easy Steps'
+description: Your Hyundai Elantra won’t start, and you’re stuck wondering what to
+  do next. Don’t worry—you can jump start your car quickly and safely, even if you’ve
+  never d
 pubDate: 2026-03-13
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-jump-start-a-hyundai-elantra&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jump Starting by Model
+heroImage: https://tse1.mm.bing.net/th?q=how-to-jump-start-a-hyundai-elantra&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Your Hyundai Elantra won’t start, and you’re stuck wondering what to do next. Don’t worry—you can jump start your car quickly and safely, even if you’ve never done it before.**

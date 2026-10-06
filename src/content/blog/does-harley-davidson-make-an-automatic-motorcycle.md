@@ -1,10 +1,14 @@
 ---
-title: "Does Harley Davidson Make an Automatic Motorcycle? Discover Now!"
-description: "Are you curious if Harley Davidson makes an automatic motorcycle? If you’ve ever wanted the thrill of riding a Harley but worried about shifting gears, you’re n"
+title: Does Harley Davidson Make an Automatic Motorcycle? Discover Now!
+description: Are you curious if Harley Davidson makes an automatic motorcycle? If
+  you’ve ever wanted the thrill of riding a Harley but worried about shifting gears,
+  you’re n
 pubDate: 2026-05-29
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-harley-davidson-make-an-automatic-motorcycle&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Maintenance Basics
+heroImage: https://tse1.mm.bing.net/th?q=does-harley-davidson-make-an-automatic-motorcycle&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you curious if Harley Davidson makes an automatic motorcycle? If you’ve ever wanted the thrill of riding a Harley but worried about shifting gears, you’re not alone.**

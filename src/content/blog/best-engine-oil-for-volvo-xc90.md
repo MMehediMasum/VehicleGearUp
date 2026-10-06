@@ -1,10 +1,14 @@
 ---
-title: "Best Engine Oil for Volvo XC90: Top Synthetic Oils and Filters Reviewed"
-description: "Choosing the best engine oil keeps your Volvo XC90 running smoothly and protects its engine. Using the right oil improves performance and extends engine life. V"
+title: 'Best Engine Oil for Volvo XC90: Top Synthetic Oils and Filters Reviewed'
+description: Choosing the best engine oil keeps your Volvo XC90 running smoothly and
+  protects its engine. Using the right oil improves performance and extends engine
+  life. V
 pubDate: 2026-07-12
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-engine-oil-for-volvo-xc90&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Best Engine Oils
+heroImage: https://tse1.mm.bing.net/th?q=best-engine-oil-for-volvo-xc90&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Choosing the best engine oil keeps your Volvo XC90 running smoothly and protects its engine. Using the right oil improves performance and extends engine life.**

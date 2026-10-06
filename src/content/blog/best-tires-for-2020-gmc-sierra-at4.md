@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for 2020 GMC Sierra AT4: Top Picks for Ultimate Performance"
-description: "Choosing the best tires for your 2020 GMC Sierra AT4 improves safety and performance. The right tires handle rough roads and tough weather with ease. The 2020 G"
+title: 'Best Tires for 2020 GMC Sierra AT4: Top Picks for Ultimate Performance'
+description: Choosing the best tires for your 2020 GMC Sierra AT4 improves safety
+  and performance. The right tires handle rough roads and tough weather with ease.
+  The 2020 G
 pubDate: 2026-01-09
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-2020-gmc-sierra-at4&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Chevy and GMC Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-2020-gmc-sierra-at4&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your 2020 GMC Sierra AT4 improves safety and performance. The right tires handle rough roads and tough weather with ease.**

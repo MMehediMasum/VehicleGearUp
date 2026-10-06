@@ -1,10 +1,13 @@
 ---
-title: "Best Spark Plugs for 1200 Sportster: Top Picks for Ultimate Performance"
-description: "Choosing the best spark plugs for your 1200 Sportster boosts engine performance and reliability. Proper plugs ensure smoother starts and better fuel efficiency."
+title: 'Best Spark Plugs for 1200 Sportster: Top Picks for Ultimate Performance'
+description: Choosing the best spark plugs for your 1200 Sportster boosts engine performance
+  and reliability. Proper plugs ensure smoother starts and better fuel efficiency.
 pubDate: 2026-06-17
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-spark-plugs-for-1200-sportster&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hauling Motorcycles in Trucks
+heroImage: https://tse1.mm.bing.net/th?q=best-spark-plugs-for-1200-sportster&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best spark plugs for your 1200 Sportster boosts engine performance and reliability. Proper plugs ensure smoother starts and better fuel efficiency.**

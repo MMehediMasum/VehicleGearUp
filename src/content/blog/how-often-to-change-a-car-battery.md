@@ -1,10 +1,14 @@
 ---
-title: "How Often to Change a Car Battery: Essential Guide for Every Driver"
-description: "Your car battery is the heart of your vehicle’s electrical system. But how often should you change it to avoid unexpected breakdowns? Knowing the right time to "
+title: 'How Often to Change a Car Battery: Essential Guide for Every Driver'
+description: 'Your car battery is the heart of your vehicle’s electrical system. But
+  how often should you change it to avoid unexpected breakdowns? Knowing the right
+  time to '
 pubDate: 2026-04-13
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-often-to-change-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Fixing Battery Drain
+heroImage: https://tse1.mm.bing.net/th?q=how-often-to-change-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Your car battery is the heart of your vehicle’s electrical system. But how often should you change it to avoid unexpected breakdowns?**

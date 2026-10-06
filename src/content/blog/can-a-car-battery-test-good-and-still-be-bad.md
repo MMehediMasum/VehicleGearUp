@@ -1,10 +1,14 @@
 ---
-title: "Can a Car Battery Test Good And Still Be Bad? Shocking Truths Revealed"
-description: "Have you ever had your car battery test come back good, only to find your car still won’t start? It’s confusing and frustrating, right? You might think a good t"
+title: Can a Car Battery Test Good And Still Be Bad? Shocking Truths Revealed
+description: Have you ever had your car battery test come back good, only to find
+  your car still won’t start? It’s confusing and frustrating, right? You might think
+  a good t
 pubDate: 2025-10-18
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-a-car-battery-test-good-and-still-be-bad&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Fixing Battery Drain
+heroImage: https://tse1.mm.bing.net/th?q=can-a-car-battery-test-good-and-still-be-bad&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever had your car battery test come back good, only to find your car still won’t start? It’s confusing and frustrating, right?**

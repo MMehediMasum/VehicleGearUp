@@ -1,10 +1,13 @@
 ---
-title: "Best Fuel Injector Cleaner for Honda Civic to Boost Engine Performance"
-description: "Choosing the best fuel injector cleaner for your Honda Civic keeps the engine running smoothly. It helps improve fuel efficiency and reduces harmful emissions. "
+title: Best Fuel Injector Cleaner for Honda Civic to Boost Engine Performance
+description: 'Choosing the best fuel injector cleaner for your Honda Civic keeps the
+  engine running smoothly. It helps improve fuel efficiency and reduces harmful emissions. '
 pubDate: 2026-07-07
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-fuel-injector-cleaner-for-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Import Fuel Injector Cleaners
+heroImage: https://tse1.mm.bing.net/th?q=best-fuel-injector-cleaner-for-honda-civic&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best fuel injector cleaner for your Honda Civic keeps the engine running smoothly. It helps improve fuel efficiency and reduces harmful emissions.**

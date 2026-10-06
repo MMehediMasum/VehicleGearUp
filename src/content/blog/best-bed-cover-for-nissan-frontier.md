@@ -1,10 +1,14 @@
 ---
-title: "Best Bed Cover for Nissan Frontier: Top Durable Tonneau Covers Reviewed"
-description: "Choosing the best bed cover for your Nissan Frontier protects your truck bed from weather and theft. A good cover fits well and lasts long. Nissan Frontier owne"
+title: 'Best Bed Cover for Nissan Frontier: Top Durable Tonneau Covers Reviewed'
+description: Choosing the best bed cover for your Nissan Frontier protects your truck
+  bed from weather and theft. A good cover fits well and lasts long. Nissan Frontier
+  owne
 pubDate: 2026-07-19
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-bed-cover-for-nissan-frontier&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Truck Caps and Bed Liners
+heroImage: https://tse1.mm.bing.net/th?q=best-bed-cover-for-nissan-frontier&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Choosing the best bed cover for your Nissan Frontier protects your truck bed from weather and theft. A good cover fits well and lasts long.**

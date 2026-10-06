@@ -1,10 +1,14 @@
 ---
-title: "Can You Use Holiday Car Wash Code at Any Location? Find Out Now!"
-description: "Are you wondering if you can use your holiday car wash code at any location? You’re not alone. Many people grab these special deals during the festive season bu"
+title: Can You Use Holiday Car Wash Code at Any Location? Find Out Now!
+description: Are you wondering if you can use your holiday car wash code at any location?
+  You’re not alone. Many people grab these special deals during the festive season
+  bu
 pubDate: 2026-03-21
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-use-holiday-car-wash-code-at-any-location&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Using Car Wash Vacuums
+heroImage: https://tse1.mm.bing.net/th?q=can-you-use-holiday-car-wash-code-at-any-location&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Are you wondering if you can use your holiday car wash code at any location? You’re not alone.**

@@ -1,10 +1,14 @@
 ---
-title: "Best 360 Degree Bird View Camera for Car: Ultimate Parking and Safety Solution"
-description: "A 360 degree bird view camera gives drivers a clear, complete view around their car. It helps park safely and avoid accidents by showing all angles in real time"
+title: 'Best 360 Degree Bird View Camera for Car: Ultimate Parking and Safety Solution'
+description: A 360 degree bird view camera gives drivers a clear, complete view around
+  their car. It helps park safely and avoid accidents by showing all angles in real
+  time
 pubDate: 2025-09-24
-author: "herbertlangham"
-categories: ["Car Technology & Features"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-360-degree-bird-view-camera-for-car&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Dash Cams and Backup Cameras
+heroImage: https://tse1.mm.bing.net/th?q=best-360-degree-bird-view-camera-for-car&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **A 360 degree bird view camera gives drivers a clear, complete view around their car. It helps park safely and avoid accidents by showing all angles in real time.**

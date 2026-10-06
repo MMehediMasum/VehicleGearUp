@@ -1,10 +1,14 @@
 ---
-title: "Best Code Reader for Cars And Trucks: Top OBD2 Scanners Reviewed"
-description: "Finding the best code reader for cars and trucks helps you quickly diagnose vehicle problems. These tools read and clear error codes for many models from 1996 a"
+title: 'Best Code Reader for Cars And Trucks: Top OBD2 Scanners Reviewed'
+description: Finding the best code reader for cars and trucks helps you quickly diagnose
+  vehicle problems. These tools read and clear error codes for many models from 1996
+  a
 pubDate: 2026-05-31
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-code-reader-for-cars-and-trucks&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Scan Tools and Code Readers
+heroImage: https://tse1.mm.bing.net/th?q=best-code-reader-for-cars-and-trucks&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Finding the best code reader for cars and trucks helps you quickly diagnose vehicle problems. These tools read and clear error codes for many models from 1996 and newer.**

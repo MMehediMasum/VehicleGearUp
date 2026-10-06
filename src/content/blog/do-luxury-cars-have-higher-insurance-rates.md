@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Do Luxury Cars Have Higher Insurance Rates? Shocking Truth Revealed"
 description: "Are you thinking about buying a luxury car but worried about the cost of insurance? You’re not alone. Many people wonder if owning a high-end vehicle means payi"
 pubDate: 2025-09-03

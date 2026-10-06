@@ -1,10 +1,14 @@
 ---
-title: "How to Check Coolant Level Honda Civic: Easy Step-by-Step Guide"
-description: "Keeping your Honda Civic running smoothly means paying attention to the little things—like the coolant level. If your engine overheats, it can lead to costly re"
+title: 'How to Check Coolant Level Honda Civic: Easy Step-by-Step Guide'
+description: Keeping your Honda Civic running smoothly means paying attention to the
+  little things—like the coolant level. If your engine overheats, it can lead to costly
+  re
 pubDate: 2026-05-16
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-check-coolant-level-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Coolant and AC Recharge
+heroImage: https://tse1.mm.bing.net/th?q=how-to-check-coolant-level-honda-civic&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Keeping your Honda Civic running smoothly means paying attention to the little things—like the coolant level. If your engine overheats, it can lead to costly repairs that you definitely want to avoid.**

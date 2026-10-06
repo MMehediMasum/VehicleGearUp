@@ -1,10 +1,14 @@
 ---
-title: "Best 3 Inch Lift Kit for Ford F150: Top Suspension Upgrades Reviewed"
-description: "Upgrading your Ford F150 with a 3 inch lift kit improves off-road ability and gives it a tougher look. This guide covers top 3 inch lift kits designed for vario"
+title: 'Best 3 Inch Lift Kit for Ford F150: Top Suspension Upgrades Reviewed'
+description: Upgrading your Ford F150 with a 3 inch lift kit improves off-road ability
+  and gives it a tougher look. This guide covers top 3 inch lift kits designed for
+  vario
 pubDate: 2026-06-07
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-3-inch-lift-kit-for-ford-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Super Duty Shocks and Leveling
+heroImage: https://tse1.mm.bing.net/th?q=best-3-inch-lift-kit-for-ford-f150&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Upgrading your Ford F150 with a 3 inch lift kit improves off-road ability and gives it a tougher look. This guide covers top 3 inch lift kits designed for various F150 models and years.**

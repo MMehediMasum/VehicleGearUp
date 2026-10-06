@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for Mazda 3 to Boost Performance and Acceleration"
-description: "Finding the best cold air intake for your Mazda 3 can boost engine power and improve fuel efficiency. This guide covers top options for various Mazda 3 models f"
+title: Best Cold Air Intake for Mazda 3 to Boost Performance and Acceleration
+description: Finding the best cold air intake for your Mazda 3 can boost engine power
+  and improve fuel efficiency. This guide covers top options for various Mazda 3 models
+  f
 pubDate: 2026-06-04
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-mazda-3&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Engine Specific Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-mazda-3&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Finding the best cold air intake for your Mazda 3 can boost engine power and improve fuel efficiency. This guide covers top options for various Mazda 3 models from 2010 to 2025.**

@@ -1,10 +1,14 @@
 ---
-title: "What Oil Does a Ford Escape Take: Ultimate Guide for Peak Performance"
-description: "If you own a Ford Escape, you know how important it is to keep your engine running smoothly. But do you know exactly what oil your Ford Escape needs? Using the "
+title: 'What Oil Does a Ford Escape Take: Ultimate Guide for Peak Performance'
+description: 'If you own a Ford Escape, you know how important it is to keep your
+  engine running smoothly. But do you know exactly what oil your Ford Escape needs?
+  Using the '
 pubDate: 2026-05-15
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-oil-does-a-ford-escape-take&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- What Oil to Use
+heroImage: https://tse1.mm.bing.net/th?q=what-oil-does-a-ford-escape-take&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a Ford Escape, you know how important it is to keep your engine running smoothly. But do you know exactly what oil your Ford Escape needs?**

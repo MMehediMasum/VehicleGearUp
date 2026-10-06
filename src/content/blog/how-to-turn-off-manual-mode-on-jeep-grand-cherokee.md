@@ -1,10 +1,14 @@
 ---
-title: "How to Turn off Manual Mode on Jeep Grand Cherokee: Quick Guide"
-description: "Are you finding it tricky to switch your Jeep Grand Cherokee out of manual mode? You’re not alone. Many drivers get stuck trying to figure out how to return to "
+title: 'How to Turn off Manual Mode on Jeep Grand Cherokee: Quick Guide'
+description: 'Are you finding it tricky to switch your Jeep Grand Cherokee out of
+  manual mode? You’re not alone. Many drivers get stuck trying to figure out how to
+  return to '
 pubDate: 2026-01-29
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-manual-mode-on-jeep-grand-cherokee&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Turning Off Dash Beeps
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-manual-mode-on-jeep-grand-cherokee&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are you finding it tricky to switch your Jeep Grand Cherokee out of manual mode? You’re not alone.**

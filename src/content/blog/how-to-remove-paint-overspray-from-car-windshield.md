@@ -1,10 +1,14 @@
 ---
-title: "How to Remove Paint Overspray from Car Windshield: Easy & Fast Tips"
-description: "Have you ever noticed tiny paint spots on your car’s windshield after a nearby painting job? Paint overspray can be frustrating and tricky to remove, but it doe"
+title: 'How to Remove Paint Overspray from Car Windshield: Easy & Fast Tips'
+description: Have you ever noticed tiny paint spots on your car’s windshield after
+  a nearby painting job? Paint overspray can be frustrating and tricky to remove,
+  but it doe
 pubDate: 2025-11-21
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-remove-paint-overspray-from-car-windshield&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Windshield Sap and Scratches
+heroImage: https://tse1.mm.bing.net/th?q=how-to-remove-paint-overspray-from-car-windshield&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever noticed tiny paint spots on your car’s windshield after a nearby painting job? Paint overspray can be frustrating and tricky to remove, but it doesn’t have to ruin your view or your day.**

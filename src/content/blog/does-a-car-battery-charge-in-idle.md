@@ -1,10 +1,14 @@
 ---
-title: "Does a Car Battery Charge in Idle: Truths Every Driver Must Know"
-description: "Have you ever wondered if your car battery charges while your engine is just idling? Maybe you’ve been stuck in traffic or waiting at a long stoplight and asked"
+title: 'Does a Car Battery Charge in Idle: Truths Every Driver Must Know'
+description: Have you ever wondered if your car battery charges while your engine
+  is just idling? Maybe you’ve been stuck in traffic or waiting at a long stoplight
+  and asked
 pubDate: 2026-04-06
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-a-car-battery-charge-in-idle&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Charging a Car Battery
+heroImage: https://tse1.mm.bing.net/th?q=does-a-car-battery-charge-in-idle&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if your car battery charges while your engine is just idling? Maybe you’ve been stuck in traffic or waiting at a long stoplight and asked yourself if that’s enough time for your battery to gain power.**

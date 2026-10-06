@@ -1,10 +1,14 @@
 ---
-title: "What Do Spark Plugs in a Car Do: Unlock Engine Power & Efficiency"
-description: "Have you ever wondered what makes your car’s engine come to life every time you turn the key? The answer lies in a small but mighty component called the spark p"
+title: 'What Do Spark Plugs in a Car Do: Unlock Engine Power & Efficiency'
+description: Have you ever wondered what makes your car’s engine come to life every
+  time you turn the key? The answer lies in a small but mighty component called the
+  spark p
 pubDate: 2026-02-09
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-do-spark-plugs-in-a-car-do&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spark Plug Maintenance
+heroImage: https://tse1.mm.bing.net/th?q=what-do-spark-plugs-in-a-car-do&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you ever wondered what makes your car’s engine come to life every time you turn the key? The answer lies in a small but mighty component called the spark plug.**

@@ -1,10 +1,14 @@
 ---
-title: "Can You Buy a Used Car Battery: Pros, Cons, and Smart Tips"
-description: "Are you wondering if you can buy a used car battery without risking your car’s performance? You’re not alone. Car batteries can be expensive, and finding a chea"
+title: 'Can You Buy a Used Car Battery: Pros, Cons, and Smart Tips'
+description: Are you wondering if you can buy a used car battery without risking your
+  car’s performance? You’re not alone. Car batteries can be expensive, and finding
+  a chea
 pubDate: 2026-04-01
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-buy-a-used-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Selling Old Car Batteries
+heroImage: https://tse1.mm.bing.net/th?q=can-you-buy-a-used-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you wondering if you can buy a used car battery without risking your car’s performance? You’re not alone.**

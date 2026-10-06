@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Steering Wheel for Forza Horizon 5: Top Picks for Ultimate Racing"
 description: "Choosing the best steering wheel improves your Forza Horizon 5 driving experience. It adds realism and better control while racing. Forza Horizon 5 offers thril"
 pubDate: 2026-01-06

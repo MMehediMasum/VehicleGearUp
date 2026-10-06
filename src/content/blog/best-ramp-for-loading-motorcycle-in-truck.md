@@ -1,10 +1,14 @@
 ---
-title: "Best Ramp for Loading Motorcycle in Truck: Top Durable Folding Ramps"
-description: "Choosing the best ramp for loading a motorcycle into a truck makes transport safe and easy. A sturdy ramp with the right size and capacity prevents accidents an"
+title: 'Best Ramp for Loading Motorcycle in Truck: Top Durable Folding Ramps'
+description: Choosing the best ramp for loading a motorcycle into a truck makes transport
+  safe and easy. A sturdy ramp with the right size and capacity prevents accidents
+  an
 pubDate: 2026-01-13
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-ramp-for-loading-motorcycle-in-truck&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hauling Motorcycles in Trucks
+heroImage: https://tse1.mm.bing.net/th?q=best-ramp-for-loading-motorcycle-in-truck&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best ramp for loading a motorcycle into a truck makes transport safe and easy. A sturdy ramp with the right size and capacity prevents accidents and damage.**

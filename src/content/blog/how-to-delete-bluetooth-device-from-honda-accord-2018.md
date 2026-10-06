@@ -1,10 +1,14 @@
 ---
-title: "How to Delete Bluetooth Device from Honda Accord 2018: Easy Steps Guide"
-description: "Struggling to remove an old Bluetooth device from your 2018 Honda Accord? You’re not alone. When your car’s system is cluttered with unused devices, it can slow"
+title: 'How to Delete Bluetooth Device from Honda Accord 2018: Easy Steps Guide'
+description: Struggling to remove an old Bluetooth device from your 2018 Honda Accord?
+  You’re not alone. When your car’s system is cluttered with unused devices, it can
+  slow
 pubDate: 2026-03-08
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-delete-bluetooth-device-from-honda-accord-2018&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Deleting Bluetooth Devices
+heroImage: https://tse1.mm.bing.net/th?q=how-to-delete-bluetooth-device-from-honda-accord-2018&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Struggling to remove an old Bluetooth device from your 2018 Honda Accord? You’re not alone.**

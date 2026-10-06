@@ -1,10 +1,14 @@
 ---
-title: "Best Leather Dye for Car Seats: Top Restorers for Faded Leather"
-description: "Choosing the best leather dye for car seats ensures your vehicle’s interior looks fresh and well-maintained. Quality dye restores color and covers scratches eff"
+title: 'Best Leather Dye for Car Seats: Top Restorers for Faded Leather'
+description: Choosing the best leather dye for car seats ensures your vehicle’s interior
+  looks fresh and well-maintained. Quality dye restores color and covers scratches
+  eff
 pubDate: 2026-07-23
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-leather-dye-for-car-seats&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Leather and Fabric Seat Care
+heroImage: https://tse1.mm.bing.net/th?q=best-leather-dye-for-car-seats&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best leather dye for car seats ensures your vehicle’s interior looks fresh and well-maintained. Quality dye restores color and covers scratches effectively.**

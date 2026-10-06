@@ -1,10 +1,14 @@
 ---
-title: "How Cold is Too Cold for Car Wash: Essential Winter Tips"
-description: "Have you ever wondered how cold is too cold for a car wash? You want your car to look its best, but extreme cold can cause problems you might not expect. Washin"
+title: 'How Cold is Too Cold for Car Wash: Essential Winter Tips'
+description: Have you ever wondered how cold is too cold for a car wash? You want
+  your car to look its best, but extreme cold can cause problems you might not expect.
+  Washin
 pubDate: 2026-03-22
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-cold-is-too-cold-for-car-wash&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wash Costs and Etiquette
+heroImage: https://tse1.mm.bing.net/th?q=how-cold-is-too-cold-for-car-wash&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever wondered how cold is too cold for a car wash? You want your car to look its best, but extreme cold can cause problems you might not expect.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Do Cop Cars Automatically Scan License Plates: Shocking Truth Revealed"
 description: "Have you ever wondered how cop cars seem to know so much about the cars around them without even stopping? It might feel like they have some secret power, espec"
 pubDate: 2025-10-23

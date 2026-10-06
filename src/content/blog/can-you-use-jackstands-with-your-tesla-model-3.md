@@ -1,10 +1,14 @@
 ---
-title: "Can You Use Jackstands With Your Tesla Model 3: Essential Safety Tips"
-description: "Are you wondering if you can safely use jackstands with your Tesla Model 3? Whether you're planning some DIY maintenance or just curious about lifting your elec"
+title: 'Can You Use Jackstands With Your Tesla Model 3: Essential Safety Tips'
+description: Are you wondering if you can safely use jackstands with your Tesla Model
+  3? Whether you're planning some DIY maintenance or just curious about lifting your
+  elec
 pubDate: 2026-02-20
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-use-jackstands-with-your-tesla-model-3&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Model Y Features
+heroImage: https://tse1.mm.bing.net/th?q=can-you-use-jackstands-with-your-tesla-model-3&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you wondering if you can safely use jackstands with your Tesla Model 3? Whether you're planning some DIY maintenance or just curious about lifting your electric car, this question is important.**

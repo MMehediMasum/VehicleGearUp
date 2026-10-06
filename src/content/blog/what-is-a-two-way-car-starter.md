@@ -1,10 +1,14 @@
 ---
-title: "What is a Two Way Car Starter: Ultimate Guide to Key Benefits"
-description: "Have you ever wished you could start your car from a distance and have it ready when you step inside? A two way car starter might be exactly what you need. This"
+title: 'What is a Two Way Car Starter: Ultimate Guide to Key Benefits'
+description: Have you ever wished you could start your car from a distance and have
+  it ready when you step inside? A two way car starter might be exactly what you need.
+  This
 pubDate: 2026-01-23
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-a-two-way-car-starter&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Starter Problems
+heroImage: https://tse1.mm.bing.net/th?q=what-is-a-two-way-car-starter&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you ever wished you could start your car from a distance and have it ready when you step inside? A two way car starter might be exactly what you need.**

@@ -1,10 +1,14 @@
 ---
-title: "Can Bad Spark Plugs Cause Car to Shake? Signs & Solutions"
-description: "Have you ever felt your car shaking while driving and wondered what’s wrong? One common cause you might not have considered is bad spark plugs. These small part"
+title: Can Bad Spark Plugs Cause Car to Shake? Signs & Solutions
+description: Have you ever felt your car shaking while driving and wondered what’s
+  wrong? One common cause you might not have considered is bad spark plugs. These
+  small part
 pubDate: 2026-01-19
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-bad-spark-plugs-cause-car-to-shake&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spark Plug Misfire Symptoms
+heroImage: https://tse1.mm.bing.net/th?q=can-bad-spark-plugs-cause-car-to-shake&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you ever felt your car shaking while driving and wondered what’s wrong? One common cause you might not have considered is bad spark plugs.**

@@ -1,10 +1,13 @@
 ---
-title: "How to Fix Eps Light Hyundai Elantra: Quick & Easy Solutions"
-description: "If you’ve noticed the EPS light glowing on your Hyundai Elantra’s dashboard, you’re probably wondering what it means and how to fix it quickly. That little warn"
+title: 'How to Fix Eps Light Hyundai Elantra: Quick & Easy Solutions'
+description: If you’ve noticed the EPS light glowing on your Hyundai Elantra’s dashboard,
+  you’re probably wondering what it means and how to fix it quickly. That little warn
 pubDate: 2026-04-26
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-eps-light-hyundai-elantra&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Warning Light Fixes
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-eps-light-hyundai-elantra&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If you’ve noticed the EPS light glowing on your Hyundai Elantra’s dashboard, you’re probably wondering what it means and how to fix it quickly. That little warning can be scary, but don’t worry—you’re not alone, and the solution might be simpler than you think.**

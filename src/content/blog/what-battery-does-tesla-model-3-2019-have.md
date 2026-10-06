@@ -1,10 +1,14 @@
 ---
-title: "What Battery Does Tesla Model 3 2019 Have: Ultimate Guide Revealed"
-description: "Are you curious about the battery that powers your 2019 Tesla Model 3? Understanding your car’s battery is key to getting the most out of its performance and ra"
+title: 'What Battery Does Tesla Model 3 2019 Have: Ultimate Guide Revealed'
+description: Are you curious about the battery that powers your 2019 Tesla Model 3?
+  Understanding your car’s battery is key to getting the most out of its performance
+  and ra
 pubDate: 2026-04-07
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-battery-does-tesla-model-3-2019-have&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Summon and Dog Mode
+heroImage: https://tse1.mm.bing.net/th?q=what-battery-does-tesla-model-3-2019-have&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you curious about the battery that powers your 2019 Tesla Model 3? Understanding your car’s battery is key to getting the most out of its performance and range.**

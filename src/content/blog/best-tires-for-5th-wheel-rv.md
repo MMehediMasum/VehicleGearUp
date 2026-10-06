@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for 5Th Wheel RV: Top Durable Trailer Tire and Wheel Combos"
-description: "Choosing the best tires for a 5th wheel RV ensures safety and smooth travel. Quality tires support heavy loads and tough road conditions. Traveling with a 5th w"
+title: 'Best Tires for 5Th Wheel RV: Top Durable Trailer Tire and Wheel Combos'
+description: Choosing the best tires for a 5th wheel RV ensures safety and smooth
+  travel. Quality tires support heavy loads and tough road conditions. Traveling with
+  a 5th w
 pubDate: 2025-12-27
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-5th-wheel-rv&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Best Trucks for Towing
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-5th-wheel-rv&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Choosing the best tires for a 5th wheel RV ensures safety and smooth travel. Quality tires support heavy loads and tough road conditions.**

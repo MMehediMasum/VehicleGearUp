@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Toyota Prius Maintenance Light: Easy Step-by-Step Guide"
-description: "Your Toyota Prius maintenance light just came on, and now you’re wondering how to reset it without a trip to the mechanic. You’re not alone—many Prius owners wa"
+title: 'How to Reset Toyota Prius Maintenance Light: Easy Step-by-Step Guide'
+description: Your Toyota Prius maintenance light just came on, and now you’re wondering
+  how to reset it without a trip to the mechanic. You’re not alone—many Prius owners
+  wa
 pubDate: 2025-09-09
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-toyota-prius-maintenance-light&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Hybrid Tires
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-toyota-prius-maintenance-light&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Your Toyota Prius maintenance light just came on, and now you’re wondering how to reset it without a trip to the mechanic. You’re not alone—many Prius owners want a quick and simple way to turn off that warning light after completing routine maintenance.**

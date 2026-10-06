@@ -1,10 +1,14 @@
 ---
-title: "Can a Motorcycle Battery Be Jumped With a Car Battery? Essential Tips"
-description: "Have you ever found yourself stuck with a dead motorcycle battery and wondered if your car battery could save the day? It’s a common question, and the answer mi"
+title: Can a Motorcycle Battery Be Jumped With a Car Battery? Essential Tips
+description: Have you ever found yourself stuck with a dead motorcycle battery and
+  wondered if your car battery could save the day? It’s a common question, and the
+  answer mi
 pubDate: 2025-11-07
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-a-motorcycle-battery-be-jumped-with-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Batteries and Brakes
+heroImage: https://tse1.mm.bing.net/th?q=can-a-motorcycle-battery-be-jumped-with-a-car-battery&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Have you ever found yourself stuck with a dead motorcycle battery and wondered if your car battery could save the day? It’s a common question, and the answer might surprise you.**

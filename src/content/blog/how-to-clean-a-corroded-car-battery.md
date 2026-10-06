@@ -1,10 +1,14 @@
 ---
-title: "How to Clean a Corroded Car Battery: Easy Steps for Quick Fix"
-description: "Is your car struggling to start or showing signs of a weak battery? A corroded car battery could be the culprit. Corrosion builds up over time and can block the"
+title: 'How to Clean a Corroded Car Battery: Easy Steps for Quick Fix'
+description: Is your car struggling to start or showing signs of a weak battery? A
+  corroded car battery could be the culprit. Corrosion builds up over time and can
+  block the
 pubDate: 2026-04-03
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-a-corroded-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Polarity and Acid
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-a-corroded-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your car struggling to start or showing signs of a weak battery? A corroded car battery could be the culprit.**

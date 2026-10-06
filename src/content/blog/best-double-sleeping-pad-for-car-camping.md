@@ -1,10 +1,14 @@
 ---
-title: "Best Double Sleeping Pad for Car Camping: Ultimate Comfort and Durability"
-description: "Finding the best double sleeping pad for car camping improves comfort and rest during your outdoor trips. A good sleeping pad offers support, insulation, and ea"
+title: 'Best Double Sleeping Pad for Car Camping: Ultimate Comfort and Durability'
+description: Finding the best double sleeping pad for car camping improves comfort
+  and rest during your outdoor trips. A good sleeping pad offers support, insulation,
+  and ea
 pubDate: 2026-06-01
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-double-sleeping-pad-for-car-camping&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Handy Car Gadgets
+heroImage: https://tse1.mm.bing.net/th?q=best-double-sleeping-pad-for-car-camping&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Finding the best double sleeping pad for car camping improves comfort and rest during your outdoor trips. A good sleeping pad offers support, insulation, and easy setup for two people.**

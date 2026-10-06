@@ -1,10 +1,13 @@
 ---
-title: "How to Turn off Lane Departure Honda Civic 2025: Easy Step-by-Step Guide"
-description: "If you’re driving a 2024 Honda Civic and want to turn off the Lane Departure system, you’ve come to the right place. Sometimes, this feature can feel more distr"
+title: 'How to Turn off Lane Departure Honda Civic 2025: Easy Step-by-Step Guide'
+description: If you’re driving a 2024 Honda Civic and want to turn off the Lane Departure
+  system, you’ve come to the right place. Sometimes, this feature can feel more distr
 pubDate: 2026-01-23
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-lane-departure-honda-civic-2024&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Turning Off Safety Features
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-lane-departure-honda-civic-2024&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If you’re driving a 2024 Honda Civic and want to turn off the Lane Departure system, you’ve come to the right place. Sometimes, this feature can feel more distracting than helpful, especially on quiet roads or during certain weather conditions.**

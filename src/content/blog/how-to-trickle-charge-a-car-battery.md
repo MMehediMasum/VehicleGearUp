@@ -1,10 +1,14 @@
 ---
-title: "How to Trickle Charge a Car Battery: Easy Steps for Lasting Power"
-description: "Is your car battery losing power, leaving you stranded at the worst times? You don’t have to rush to the mechanic or buy a new battery right away. Knowing how t"
+title: 'How to Trickle Charge a Car Battery: Easy Steps for Lasting Power'
+description: Is your car battery losing power, leaving you stranded at the worst times?
+  You don’t have to rush to the mechanic or buy a new battery right away. Knowing
+  how t
 pubDate: 2026-03-31
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-trickle-charge-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Charging a Car Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-trickle-charge-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your car battery losing power, leaving you stranded at the worst times? You don’t have to rush to the mechanic or buy a new battery right away.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Tow a Car With a Tow Strap: Easy Steps for Safe Towing"
-description: "Have you ever found yourself stuck on the side of the road with a car that won’t start? Knowing how to tow a car with a tow strap can save you time, money, and "
+title: 'How to Tow a Car With a Tow Strap: Easy Steps for Safe Towing'
+description: 'Have you ever found yourself stuck on the side of the road with a car
+  that won’t start? Knowing how to tow a car with a tow strap can save you time, money,
+  and '
 pubDate: 2025-09-17
-author: "herbertlangham"
-categories: ["Towing & Hauling"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-tow-a-car-with-a-tow-strap&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Flat Towing Cars
+heroImage: https://tse1.mm.bing.net/th?q=how-to-tow-a-car-with-a-tow-strap&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Have you ever found yourself stuck on the side of the road with a car that won’t start? Knowing how to tow a car with a tow strap can save you time, money, and a lot of frustration.**

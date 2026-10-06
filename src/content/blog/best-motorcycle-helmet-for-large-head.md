@@ -1,10 +1,14 @@
 ---
-title: "Best Motorcycle Helmet for Large Head: Top Full Face DOT Approved Picks"
-description: "Finding the best motorcycle helmet for a large head can be tough. Comfort and safety must come first. Riders with bigger heads need helmets that fit well withou"
+title: 'Best Motorcycle Helmet for Large Head: Top Full Face DOT Approved Picks'
+description: Finding the best motorcycle helmet for a large head can be tough. Comfort
+  and safety must come first. Riders with bigger heads need helmets that fit well
+  withou
 pubDate: 2025-10-28
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-motorcycle-helmet-for-large-head&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Helmets and Boots
+heroImage: https://tse1.mm.bing.net/th?q=best-motorcycle-helmet-for-large-head&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Finding the best motorcycle helmet for a large head can be tough. Comfort and safety must come first.**

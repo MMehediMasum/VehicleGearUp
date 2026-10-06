@@ -1,10 +1,14 @@
 ---
-title: "How to Check Transmission Fluid on Jeep Liberty: Easy Step-by-Step Guide"
-description: "If you own a Jeep Liberty, keeping your transmission in good shape is key to smooth rides and avoiding costly repairs. But do you know how to check your transmi"
+title: 'How to Check Transmission Fluid on Jeep Liberty: Easy Step-by-Step Guide'
+description: If you own a Jeep Liberty, keeping your transmission in good shape is
+  key to smooth rides and avoiding costly repairs. But do you know how to check your
+  transmi
 pubDate: 2026-05-18
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-check-transmission-fluid-on-jeep-liberty&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Transmission Fluid Checks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-check-transmission-fluid-on-jeep-liberty&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a Jeep Liberty, keeping your transmission in good shape is key to smooth rides and avoiding costly repairs. But do you know how to check your transmission fluid properly?**

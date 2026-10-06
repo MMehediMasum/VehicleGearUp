@@ -1,10 +1,14 @@
 ---
-title: "How to Change Pin on Harley Davidson: Easy Steps for Quick Security"
-description: "If you own a Harley Davidson, you know how important security is for your bike. Changing your PIN is a simple yet crucial step to keep your ride safe and under "
+title: 'How to Change Pin on Harley Davidson: Easy Steps for Quick Security'
+description: 'If you own a Harley Davidson, you know how important security is for
+  your bike. Changing your PIN is a simple yet crucial step to keep your ride safe
+  and under '
 pubDate: 2026-01-17
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-pin-on-harley-davidson&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Ownership Questions
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-pin-on-harley-davidson&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **If you own a Harley Davidson, you know how important security is for your bike. Changing your PIN is a simple yet crucial step to keep your ride safe and under your control.**

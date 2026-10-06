@@ -1,10 +1,13 @@
 ---
-title: "How to Change Transmission Fluid Honda Civic: Easy Step-by-Step Guide"
-description: "If you own a Honda Civic, keeping your transmission fluid fresh is key to smooth driving and long-lasting performance. You might wonder how to change transmissi"
+title: 'How to Change Transmission Fluid Honda Civic: Easy Step-by-Step Guide'
+description: If you own a Honda Civic, keeping your transmission fluid fresh is key
+  to smooth driving and long-lasting performance. You might wonder how to change transmissi
 pubDate: 2026-05-11
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-transmission-fluid-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Transmission Fluid Checks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-transmission-fluid-honda-civic&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a Honda Civic, keeping your transmission fluid fresh is key to smooth driving and long-lasting performance. You might wonder how to change transmission fluid yourself without spending a fortune at the mechanic.**

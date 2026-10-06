@@ -1,10 +1,14 @@
 ---
-title: "How to Install Running Boards on Ram 1500: Easy Step-by-Step Guide"
-description: "If you own a Ram 1500, adding running boards can make a big difference. Not only do they boost your truck’s style, but they also make getting in and out easier "
+title: 'How to Install Running Boards on Ram 1500: Easy Step-by-Step Guide'
+description: 'If you own a Ram 1500, adding running boards can make a big difference.
+  Not only do they boost your truck’s style, but they also make getting in and out
+  easier '
 pubDate: 2026-03-13
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-install-running-boards-on-ram-1500&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Running Boards
+heroImage: https://tse1.mm.bing.net/th?q=how-to-install-running-boards-on-ram-1500&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **If you own a Ram 1500, adding running boards can make a big difference. Not only do they boost your truck’s style, but they also make getting in and out easier and safer.**

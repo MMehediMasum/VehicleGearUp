@@ -1,10 +1,14 @@
 ---
-title: "How to Check If Car Battery is under Warranty: Quick & Easy Steps"
-description: "Is your car acting up, or won’t start like it used to? Your battery might be the culprit. But before you rush to buy a new one, do you know if your car battery "
+title: 'How to Check If Car Battery is under Warranty: Quick & Easy Steps'
+description: 'Is your car acting up, or won’t start like it used to? Your battery
+  might be the culprit. But before you rush to buy a new one, do you know if your
+  car battery '
 pubDate: 2025-10-23
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-check-if-car-battery-is-under-warranty&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Warranty and Storage
+heroImage: https://tse1.mm.bing.net/th?q=how-to-check-if-car-battery-is-under-warranty&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your car acting up, or won’t start like it used to? Your battery might be the culprit.**

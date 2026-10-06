@@ -1,10 +1,14 @@
 ---
-title: "How to Remove Ford Transit Battery under Seat: Easy Step-by-Step Guide"
-description: "If you own a Ford Transit, you know how important it is to keep your van running smoothly. But when it comes to maintaining your battery, things can get tricky—"
+title: 'How to Remove Ford Transit Battery under Seat: Easy Step-by-Step Guide'
+description: If you own a Ford Transit, you know how important it is to keep your
+  van running smoothly. But when it comes to maintaining your battery, things can
+  get tricky—
 pubDate: 2026-04-06
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-remove-ford-transit-battery-under-seat&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing a Car Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-remove-ford-transit-battery-under-seat&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **If you own a Ford Transit, you know how important it is to keep your van running smoothly. But when it comes to maintaining your battery, things can get tricky—especially since the battery is hidden under the seat.**

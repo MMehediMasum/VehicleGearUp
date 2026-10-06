@@ -1,10 +1,14 @@
 ---
-title: "Does a Car Battery Drain When Not in Use: Shocking Truth Revealed"
-description: "Have you ever returned to your car only to find it won’t start? It’s frustrating, especially when you haven’t even used it for days. You might wonder, does a ca"
+title: 'Does a Car Battery Drain When Not in Use: Shocking Truth Revealed'
+description: Have you ever returned to your car only to find it won’t start? It’s
+  frustrating, especially when you haven’t even used it for days. You might wonder,
+  does a ca
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-a-car-battery-drain-when-not-in-use&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- When to Replace a Battery
+heroImage: https://tse1.mm.bing.net/th?q=does-a-car-battery-drain-when-not-in-use&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever returned to your car only to find it won’t start? It’s frustrating, especially when you haven’t even used it for days.**

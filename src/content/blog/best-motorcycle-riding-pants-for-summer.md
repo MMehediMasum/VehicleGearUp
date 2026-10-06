@@ -1,10 +1,14 @@
 ---
-title: "Best Motorcycle Riding Pants for Summer: Top Lightweight, Armored Picks"
-description: "Choosing the right motorcycle riding pants keeps you safe and comfortable during hot summer rides. These pants offer protection, breathability, and style for ev"
+title: 'Best Motorcycle Riding Pants for Summer: Top Lightweight, Armored Picks'
+description: Choosing the right motorcycle riding pants keeps you safe and comfortable
+  during hot summer rides. These pants offer protection, breathability, and style
+  for ev
 pubDate: 2026-01-15
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-motorcycle-riding-pants-for-summer&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Riding Accessories
+heroImage: https://tse1.mm.bing.net/th?q=best-motorcycle-riding-pants-for-summer&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the right motorcycle riding pants keeps you safe and comfortable during hot summer rides. These pants offer protection, breathability, and style for every rider.**

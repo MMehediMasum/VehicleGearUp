@@ -1,10 +1,14 @@
 ---
-title: "How to Open Gas Door on Toyota Corolla: Easy Step-by-Step Guide"
-description: "If you’ve ever stood next to your Toyota Corolla wondering how to open the gas door, you’re not alone. It’s a simple step, but if you don’t know the trick, it c"
+title: 'How to Open Gas Door on Toyota Corolla: Easy Step-by-Step Guide'
+description: If you’ve ever stood next to your Toyota Corolla wondering how to open
+  the gas door, you’re not alone. It’s a simple step, but if you don’t know the trick,
+  it c
 pubDate: 2026-01-22
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-open-gas-door-on-toyota-corolla&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Opening European Gas Tanks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-open-gas-door-on-toyota-corolla&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If you’ve ever stood next to your Toyota Corolla wondering how to open the gas door, you’re not alone. It’s a simple step, but if you don’t know the trick, it can feel frustrating.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Use an Automatic Car Wash: Quick Tips for a Spotless Shine"
-description: "Have you ever wondered if you’re getting the most out of an automatic car wash? Using one might seem simple, but a few key tips can make your car shine brighter"
+title: 'How to Use an Automatic Car Wash: Quick Tips for a Spotless Shine'
+description: Have you ever wondered if you’re getting the most out of an automatic
+  car wash? Using one might seem simple, but a few key tips can make your car shine
+  brighter
 pubDate: 2025-10-28
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-use-an-automatic-car-wash&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Using Car Wash Vacuums
+heroImage: https://tse1.mm.bing.net/th?q=how-to-use-an-automatic-car-wash&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever wondered if you’re getting the most out of an automatic car wash? Using one might seem simple, but a few key tips can make your car shine brighter and avoid common mistakes that could cause damage.**

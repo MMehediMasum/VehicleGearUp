@@ -1,10 +1,13 @@
 ---
-title: "Best Car Wax for Oxidized Paint: Top Products to Restore Shine"
-description: "Oxidized car paint looks dull and lifeless, harming your vehicle’s appearance. Choosing the right car wax can restore shine and protect your paint. Oxidation ha"
+title: 'Best Car Wax for Oxidized Paint: Top Products to Restore Shine'
+description: Oxidized car paint looks dull and lifeless, harming your vehicle’s appearance.
+  Choosing the right car wax can restore shine and protect your paint. Oxidation ha
 pubDate: 2025-10-13
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-wax-for-oxidized-paint&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wax by Paint Color
+heroImage: https://tse1.mm.bing.net/th?q=best-car-wax-for-oxidized-paint&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Oxidized car paint looks dull and lifeless, harming your vehicle’s appearance. Choosing the right car wax can restore shine and protect your paint.**

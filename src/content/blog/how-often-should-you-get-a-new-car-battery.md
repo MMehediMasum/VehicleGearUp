@@ -1,10 +1,14 @@
 ---
-title: "How Often Should You Get a New Car Battery: Essential Lifespan Tips"
-description: "Your car battery is one of the most important parts of your vehicle. Without a healthy battery, your car won’t start, leaving you stranded at the worst possible"
+title: 'How Often Should You Get a New Car Battery: Essential Lifespan Tips'
+description: Your car battery is one of the most important parts of your vehicle.
+  Without a healthy battery, your car won’t start, leaving you stranded at the worst
+  possible
 pubDate: 2026-04-18
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-often-should-you-get-a-new-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Fixing Battery Drain
+heroImage: https://tse1.mm.bing.net/th?q=how-often-should-you-get-a-new-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Your car battery is one of the most important parts of your vehicle. Without a healthy battery, your car won’t start, leaving you stranded at the worst possible times.**

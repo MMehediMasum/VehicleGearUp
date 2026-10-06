@@ -1,10 +1,14 @@
 ---
-title: "Best Paint Chip Repair Kit for Cars: Quick, Durable, and Easy Solutions"
-description: "Car paint chips and scratches can ruin your vehicle’s look. Fixing them quickly helps protect your car’s value and appearance. A good paint chip repair kit make"
+title: 'Best Paint Chip Repair Kit for Cars: Quick, Durable, and Easy Solutions'
+description: Car paint chips and scratches can ruin your vehicle’s look. Fixing them
+  quickly helps protect your car’s value and appearance. A good paint chip repair
+  kit make
 pubDate: 2025-11-19
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-paint-chip-repair-kit-for-cars&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spray Paint and Scratch Repair
+heroImage: https://tse1.mm.bing.net/th?q=best-paint-chip-repair-kit-for-cars&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Car paint chips and scratches can ruin your vehicle’s look. Fixing them quickly helps protect your car’s value and appearance.**

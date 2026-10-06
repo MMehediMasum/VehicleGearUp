@@ -1,10 +1,14 @@
 ---
-title: "Best Road Tires for 29Er Mountain Bike: Top Durable Tubeless Picks"
-description: "Choosing the best road tires for a 29er mountain bike can boost your ride quality and safety. The right tires improve grip, speed, and comfort on different surf"
+title: 'Best Road Tires for 29Er Mountain Bike: Top Durable Tubeless Picks'
+description: Choosing the best road tires for a 29er mountain bike can boost your
+  ride quality and safety. The right tires improve grip, speed, and comfort on different
+  surf
 pubDate: 2026-01-03
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-road-tires-for-29er-mountain-bike&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Bike Tires and Pumps
+heroImage: https://tse1.mm.bing.net/th?q=best-road-tires-for-29er-mountain-bike&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best road tires for a 29er mountain bike can boost your ride quality and safety. The right tires improve grip, speed, and comfort on different surfaces.**

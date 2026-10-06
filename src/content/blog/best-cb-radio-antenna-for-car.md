@@ -1,10 +1,14 @@
 ---
-title: "Best Cb Radio Antenna for Car: Top Magnetic Mount Picks Reviewed"
-description: "Choosing the best CB radio antenna for your car improves your radio’s signal and communication range. A quality antenna ensures clear, reliable contact on the r"
+title: 'Best Cb Radio Antenna for Car: Top Magnetic Mount Picks Reviewed'
+description: Choosing the best CB radio antenna for your car improves your radio’s
+  signal and communication range. A quality antenna ensures clear, reliable contact
+  on the r
 pubDate: 2026-06-28
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cb-radio-antenna-for-car&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Entertainment Systems
+heroImage: https://tse1.mm.bing.net/th?q=best-cb-radio-antenna-for-car&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Choosing the best CB radio antenna for your car improves your radio’s signal and communication range. A quality antenna ensures clear, reliable contact on the road.**

@@ -1,10 +1,14 @@
 ---
-title: "What Cars in Swfl Have Body Kits: Ultimate Guide to Stand Out"
-description: "Are you curious about which cars in SWFL come with eye-catching body kits? Whether you want to stand out on the road or add a sporty edge to your ride, knowing "
+title: 'What Cars in Swfl Have Body Kits: Ultimate Guide to Stand Out'
+description: 'Are you curious about which cars in SWFL come with eye-catching body
+  kits? Whether you want to stand out on the road or add a sporty edge to your ride,
+  knowing '
 pubDate: 2026-03-04
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-cars-in-swfl-have-body-kits&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Everyday Car Questions
+heroImage: https://tse1.mm.bing.net/th?q=what-cars-in-swfl-have-body-kits&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you curious about which cars in SWFL come with eye-catching body kits? Whether you want to stand out on the road or add a sporty edge to your ride, knowing your options is key.**

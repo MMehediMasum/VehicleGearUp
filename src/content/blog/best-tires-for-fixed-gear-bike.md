@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Fixed Gear Bike: Top Durable and Fast Rolling Picks"
-description: "Choosing the best tires for a fixed gear bike improves your ride’s speed and comfort. The right tire fits your bike type and riding style perfectly. Fixed gear "
+title: 'Best Tires for Fixed Gear Bike: Top Durable and Fast Rolling Picks'
+description: 'Choosing the best tires for a fixed gear bike improves your ride’s speed
+  and comfort. The right tire fits your bike type and riding style perfectly. Fixed
+  gear '
 pubDate: 2026-07-12
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-fixed-gear-bike&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Bike Tires and Pumps
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-fixed-gear-bike&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best tires for a fixed gear bike improves your ride’s speed and comfort. The right tire fits your bike type and riding style perfectly.**

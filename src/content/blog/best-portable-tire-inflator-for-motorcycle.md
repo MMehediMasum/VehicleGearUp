@@ -1,10 +1,14 @@
 ---
-title: "Best Portable Tire Inflator for Motorcycle: Fast, Accurate & Cordless Pumps"
-description: "Finding the best portable tire inflator for your motorcycle saves time and keeps you safe on the road. A reliable inflator ensures proper tire pressure anytime,"
+title: 'Best Portable Tire Inflator for Motorcycle: Fast, Accurate & Cordless Pumps'
+description: Finding the best portable tire inflator for your motorcycle saves time
+  and keeps you safe on the road. A reliable inflator ensures proper tire pressure
+  anytime,
 pubDate: 2025-12-30
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-portable-tire-inflator-for-motorcycle&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-portable-tire-inflator-for-motorcycle&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Finding the best portable tire inflator for your motorcycle saves time and keeps you safe on the road. A reliable inflator ensures proper tire pressure anytime, anywhere.**

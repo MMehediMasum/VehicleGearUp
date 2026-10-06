@@ -1,10 +1,14 @@
 ---
-title: "What Oil Does a Volkswagen Jetta Take: Expert Guide for Peak Performance"
-description: "If you own a Volkswagen Jetta, you know how important it is to keep your car running smoothly. One simple but crucial part of that is using the right oil. But w"
+title: 'What Oil Does a Volkswagen Jetta Take: Expert Guide for Peak Performance'
+description: If you own a Volkswagen Jetta, you know how important it is to keep your
+  car running smoothly. One simple but crucial part of that is using the right oil.
+  But w
 pubDate: 2026-05-12
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-oil-does-a-volkswagen-jetta-take&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- What Oil to Use
+heroImage: https://tse1.mm.bing.net/th?q=what-oil-does-a-volkswagen-jetta-take&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a Volkswagen Jetta, you know how important it is to keep your car running smoothly. One simple but crucial part of that is using the right oil.**

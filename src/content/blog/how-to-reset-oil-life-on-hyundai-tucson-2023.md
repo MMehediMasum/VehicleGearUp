@@ -1,10 +1,13 @@
 ---
-title: "How to Reset Oil Life on Hyundai Tucson 2025: Quick & Easy Guide"
-description: "Are you wondering how to reset the oil life on your 2023 Hyundai Tucson? Keeping your oil life monitor accurate is key to maintaining your vehicle’s performance"
+title: 'How to Reset Oil Life on Hyundai Tucson 2025: Quick & Easy Guide'
+description: Are you wondering how to reset the oil life on your 2023 Hyundai Tucson?
+  Keeping your oil life monitor accurate is key to maintaining your vehicle’s performance
 pubDate: 2026-05-01
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-life-on-hyundai-tucson-2023&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ram and Dodge Oil Life
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-life-on-hyundai-tucson-2023&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Are you wondering how to reset the oil life on your 2023 Hyundai Tucson? Keeping your oil life monitor accurate is key to maintaining your vehicle’s performance and avoiding costly repairs.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Tesla Model 3 19 Inch: Top Picks for Performance"
-description: "Choosing the best tires for the Tesla Model 3 19 inch wheels improves safety and driving comfort. The right tires also boost performance and extend tire life. T"
+title: 'Best Tires for Tesla Model 3 19 Inch: Top Picks for Performance'
+description: Choosing the best tires for the Tesla Model 3 19 inch wheels improves
+  safety and driving comfort. The right tires also boost performance and extend tire
+  life. T
 pubDate: 2026-01-11
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-tesla-model-3-19-inch&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Tires and Accessories
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-tesla-model-3-19-inch&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best tires for the Tesla Model 3 19 inch wheels improves safety and driving comfort. The right tires also boost performance and extend tire life.**

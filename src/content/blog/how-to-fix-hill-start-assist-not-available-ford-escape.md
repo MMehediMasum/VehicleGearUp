@@ -1,10 +1,14 @@
 ---
-title: "How to Fix Hill Start Assist Not Available Ford Escape: Easy Steps"
-description: "Are you frustrated because your Ford Escape’s Hill Start Assist isn’t working when you need it most? You rely on this feature to keep your car from rolling back"
+title: 'How to Fix Hill Start Assist Not Available Ford Escape: Easy Steps'
+description: Are you frustrated because your Ford Escape’s Hill Start Assist isn’t
+  working when you need it most? You rely on this feature to keep your car from rolling
+  back
 pubDate: 2026-05-12
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-hill-start-assist-not-available-ford-escape&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hill Start and Brake Assist
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-hill-start-assist-not-available-ford-escape&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Are you frustrated because your Ford Escape’s Hill Start Assist isn’t working when you need it most? You rely on this feature to keep your car from rolling backward on a hill, making your drive safer and smoother.**

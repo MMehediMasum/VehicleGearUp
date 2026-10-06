@@ -1,10 +1,14 @@
 ---
-title: "How to Connect Garage Door Opener to Tesla Model Y: Easy Guide"
-description: "Imagine pulling up to your home in your Tesla Model Y and effortlessly opening your garage door without reaching for a separate remote. Sounds convenient, right"
+title: 'How to Connect Garage Door Opener to Tesla Model Y: Easy Guide'
+description: Imagine pulling up to your home in your Tesla Model Y and effortlessly
+  opening your garage door without reaching for a separate remote. Sounds convenient,
+  right
 pubDate: 2026-02-26
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-connect-garage-door-opener-to-tesla-model-y&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Model Y Features
+heroImage: https://tse1.mm.bing.net/th?q=how-to-connect-garage-door-opener-to-tesla-model-y&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Imagine pulling up to your home in your Tesla Model Y and effortlessly opening your garage door without reaching for a separate remote. Sounds convenient, right?**

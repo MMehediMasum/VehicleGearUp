@@ -1,10 +1,14 @@
 ---
-title: "Best Spark Plugs for Harley Davidson Twin Cam: Top Picks and Reviews"
-description: "Choosing the best spark plugs for your Harley Davidson Twin Cam ensures smooth starts and strong performance. Proper plugs improve fuel efficiency and engine li"
+title: 'Best Spark Plugs for Harley Davidson Twin Cam: Top Picks and Reviews'
+description: Choosing the best spark plugs for your Harley Davidson Twin Cam ensures
+  smooth starts and strong performance. Proper plugs improve fuel efficiency and engine
+  li
 pubDate: 2025-09-18
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-spark-plugs-for-harley-davidson-twin-cam&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Maintenance Basics
+heroImage: https://tse1.mm.bing.net/th?q=best-spark-plugs-for-harley-davidson-twin-cam&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best spark plugs for your Harley Davidson Twin Cam ensures smooth starts and strong performance. Proper plugs improve fuel efficiency and engine life.**

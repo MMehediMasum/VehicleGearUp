@@ -1,10 +1,14 @@
 ---
-title: "How to Replace Nissan Altima Headlight Bulb: Easy Step-by-Step Guide"
-description: "If your Nissan Altima's headlight bulb has burned out, you don’t have to spend money at a mechanic or struggle in the dark. Changing the bulb yourself is easier"
+title: 'How to Replace Nissan Altima Headlight Bulb: Easy Step-by-Step Guide'
+description: If your Nissan Altima's headlight bulb has burned out, you don’t have
+  to spend money at a mechanic or struggle in the dark. Changing the bulb yourself
+  is easier
 pubDate: 2026-05-02
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-replace-nissan-altima-headlight-bulb&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Headlight Bulbs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-replace-nissan-altima-headlight-bulb&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If your Nissan Altima's headlight bulb has burned out, you don’t have to spend money at a mechanic or struggle in the dark. Changing the bulb yourself is easier than you might think—and it saves you time and hassle.**

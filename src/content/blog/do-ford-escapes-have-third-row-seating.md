@@ -1,10 +1,14 @@
 ---
-title: "Do Ford Escapes Have Third Row Seating? Ultimate Guide 2025"
-description: "Are you thinking about getting a Ford Escape but wondering if it can comfortably fit your whole family? You might be asking, \"Do Ford Escapes have third row sea"
+title: Do Ford Escapes Have Third Row Seating? Ultimate Guide 2025
+description: Are you thinking about getting a Ford Escape but wondering if it can
+  comfortably fit your whole family? You might be asking, "Do Ford Escapes have third
+  row sea
 pubDate: 2025-10-30
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-ford-escapes-have-third-row-seating&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Third Row and Mileage
+heroImage: https://tse1.mm.bing.net/th?q=do-ford-escapes-have-third-row-seating&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you thinking about getting a Ford Escape but wondering if it can comfortably fit your whole family? You might be asking, "Do Ford Escapes have third row seating?"**

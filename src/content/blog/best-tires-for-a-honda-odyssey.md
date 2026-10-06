@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for a Honda Odyssey: Top Picks for Safety and Performance"
-description: "Choosing the best tires for a Honda Odyssey improves safety and driving comfort. Proper tires help the minivan handle well in all weather and road conditions. T"
+title: 'Best Tires for a Honda Odyssey: Top Picks for Safety and Performance'
+description: Choosing the best tires for a Honda Odyssey improves safety and driving
+  comfort. Proper tires help the minivan handle well in all weather and road conditions.
+  T
 pubDate: 2025-12-23
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-a-honda-odyssey&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-a-honda-odyssey&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for a Honda Odyssey improves safety and driving comfort. Proper tires help the minivan handle well in all weather and road conditions.**

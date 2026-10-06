@@ -1,10 +1,14 @@
 ---
-title: "Best Motorcycle Helmet for Big Head: Top Comfortable XXL Helmets Reviewed"
-description: "Finding the best motorcycle helmet for a big head can be tough. Comfort and safety must fit well, not just look good. Riders with larger heads need helmets that"
+title: 'Best Motorcycle Helmet for Big Head: Top Comfortable XXL Helmets Reviewed'
+description: Finding the best motorcycle helmet for a big head can be tough. Comfort
+  and safety must fit well, not just look good. Riders with larger heads need helmets
+  that
 pubDate: 2026-01-14
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-motorcycle-helmet-for-big-head&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Helmets and Boots
+heroImage: https://tse1.mm.bing.net/th?q=best-motorcycle-helmet-for-big-head&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Finding the best motorcycle helmet for a big head can be tough. Comfort and safety must fit well, not just look good.**

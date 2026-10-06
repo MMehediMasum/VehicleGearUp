@@ -1,10 +1,14 @@
 ---
-title: "Best Face Mask for Motorcycle Riding: Top UV Protection and Cooling Options"
-description: "Choosing the best face mask for motorcycle riding protects your skin and improves comfort on the road. A good mask blocks dust, wind, and harmful UV rays effect"
+title: 'Best Face Mask for Motorcycle Riding: Top UV Protection and Cooling Options'
+description: Choosing the best face mask for motorcycle riding protects your skin
+  and improves comfort on the road. A good mask blocks dust, wind, and harmful UV
+  rays effect
 pubDate: 2026-01-13
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-face-mask-for-motorcycle-riding&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Riding Accessories
+heroImage: https://tse1.mm.bing.net/th?q=best-face-mask-for-motorcycle-riding&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best face mask for motorcycle riding protects your skin and improves comfort on the road. A good mask blocks dust, wind, and harmful UV rays effectively.**

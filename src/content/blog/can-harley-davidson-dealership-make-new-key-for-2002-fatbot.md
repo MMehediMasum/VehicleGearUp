@@ -1,10 +1,13 @@
 ---
-title: "Can Harley Davidson Dealership Make New Key for 2002 Fatbot? Expert Tips"
-description: "Losing or damaging your Harley Davidson key can be a real headache, especially when it’s for a classic like your 2002 Fatboy. You might be wondering, “Can a Har"
+title: Can Harley Davidson Dealership Make New Key for 2002 Fatbot? Expert Tips
+description: Losing or damaging your Harley Davidson key can be a real headache, especially
+  when it’s for a classic like your 2002 Fatboy. You might be wondering, “Can a Har
 pubDate: 2025-09-08
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-harley-davidson-dealership-make-new-key-for-2002-fatbot&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Maintenance Basics
+heroImage: https://tse1.mm.bing.net/th?q=can-harley-davidson-dealership-make-new-key-for-2002-fatbot&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Losing or damaging your Harley Davidson key can be a real headache, especially when it’s for a classic like your 2002 Fatboy. You might be wondering, “Can a Harley Davidson dealership make a new key for my bike?” The good news is, yes—they can help.**

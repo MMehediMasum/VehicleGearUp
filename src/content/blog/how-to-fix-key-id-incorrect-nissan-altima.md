@@ -1,10 +1,13 @@
 ---
-title: "How to Fix Key Id Incorrect Nissan Altima: Quick & Easy Solutions"
-description: "Are you staring at your Nissan Altima, frustrated by the \"Key Id Incorrect\" error? This message can suddenly stop you from starting your car, leaving you stuck "
+title: 'How to Fix Key Id Incorrect Nissan Altima: Quick & Easy Solutions'
+description: 'Are you staring at your Nissan Altima, frustrated by the "Key Id Incorrect"
+  error? This message can suddenly stop you from starting your car, leaving you stuck '
 pubDate: 2026-04-30
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-key-id-incorrect-nissan-altima&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Warning Light Fixes
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-key-id-incorrect-nissan-altima&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are you staring at your Nissan Altima, frustrated by the "Key Id Incorrect" error? This message can suddenly stop you from starting your car, leaving you stuck and confused.**

@@ -1,10 +1,14 @@
 ---
-title: "Why Did My Car Battery Die Randomly: Shocking Causes Revealed"
-description: "Have you ever turned your key, only to be met with silence because your car battery died out of nowhere? It’s frustrating, inconvenient, and sometimes even a li"
+title: 'Why Did My Car Battery Die Randomly: Shocking Causes Revealed'
+description: Have you ever turned your key, only to be met with silence because your
+  car battery died out of nowhere? It’s frustrating, inconvenient, and sometimes even
+  a li
 pubDate: 2026-04-29
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-did-my-car-battery-die-randomly&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Heat and Cold Battery Failure
+heroImage: https://tse1.mm.bing.net/th?q=why-did-my-car-battery-die-randomly&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever turned your key, only to be met with silence because your car battery died out of nowhere? It’s frustrating, inconvenient, and sometimes even a little scary.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Turn off Oil Light Honda Accord: Quick & Easy Fixes"
-description: "Your Honda Accord’s oil light just came on, and you’re wondering what to do next. Seeing that little warning can be stressful, but don’t worry—you’re not alone."
+title: 'How to Turn off Oil Light Honda Accord: Quick & Easy Fixes'
+description: Your Honda Accord’s oil light just came on, and you’re wondering what
+  to do next. Seeing that little warning can be stressful, but don’t worry—you’re
+  not alone.
 pubDate: 2026-05-06
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-oil-light-honda-accord&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Oil Light Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-oil-light-honda-accord&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Your Honda Accord’s oil light just came on, and you’re wondering what to do next. Seeing that little warning can be stressful, but don’t worry—you’re not alone.**

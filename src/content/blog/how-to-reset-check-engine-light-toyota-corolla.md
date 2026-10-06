@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Check Engine Light Toyota Corolla: Quick & Easy Steps"
-description: "Is your Toyota Corolla’s check engine light turning on and leaving you worried? You’re not alone. That little warning can be confusing and stressful, but the go"
+title: 'How to Reset Check Engine Light Toyota Corolla: Quick & Easy Steps'
+description: Is your Toyota Corolla’s check engine light turning on and leaving you
+  worried? You’re not alone. That little warning can be confusing and stressful, but
+  the go
 pubDate: 2026-05-07
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-check-engine-light-toyota-corolla&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Resetting Check Engine Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-check-engine-light-toyota-corolla&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Is your Toyota Corolla’s check engine light turning on and leaving you worried? You’re not alone.**

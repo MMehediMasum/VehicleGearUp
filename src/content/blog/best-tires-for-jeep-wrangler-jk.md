@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Jeep Wrangler JK: Top Picks for Off-Road Adventure"
-description: "Choosing the best tires for your Jeep Wrangler JK is essential for off-road performance and daily driving. The right tires improve traction, safety, and ride co"
+title: 'Best Tires for Jeep Wrangler JK: Top Picks for Off-Road Adventure'
+description: Choosing the best tires for your Jeep Wrangler JK is essential for off-road
+  performance and daily driving. The right tires improve traction, safety, and ride
+  co
 pubDate: 2025-12-21
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-jeep-wrangler-jk&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jeep Cherokee and Gladiator Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-jeep-wrangler-jk&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your Jeep Wrangler JK is essential for off-road performance and daily driving. The right tires improve traction, safety, and ride comfort.**

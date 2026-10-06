@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Ford Explorer: Top All-Season & All-Terrain Picks"
-description: "Choosing the best tires for your 2017 Ford Explorer improves safety and driving comfort. The right tires handle different roads and weather well. Your Ford Expl"
+title: 'Best Tires for Ford Explorer: Top All-Season & All-Terrain Picks'
+description: Choosing the best tires for your 2017 Ford Explorer improves safety and
+  driving comfort. The right tires handle different roads and weather well. Your Ford
+  Expl
 pubDate: 2025-12-24
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-2017-ford-explorer&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Car and Truck Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-2017-ford-explorer&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your 2017 Ford Explorer improves safety and driving comfort. The right tires handle different roads and weather well.**

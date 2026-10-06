@@ -1,10 +1,14 @@
 ---
-title: "How to Rebuild a 350 Chevy Engine: Step-by-Step Guide for Success"
-description: "Are you ready to bring your 350 Chevy engine back to life? Whether your engine is making strange noises, losing power, or just not running like it used to, rebu"
+title: 'How to Rebuild a 350 Chevy Engine: Step-by-Step Guide for Success'
+description: Are you ready to bring your 350 Chevy engine back to life? Whether your
+  engine is making strange noises, losing power, or just not running like it used
+  to, rebu
 pubDate: 2025-09-05
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-rebuild-a-350-chevy-engine&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Chevy Valves and Module Resets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-rebuild-a-350-chevy-engine&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are you ready to bring your 350 Chevy engine back to life? Whether your engine is making strange noises, losing power, or just not running like it used to, rebuilding it can save you a lot of money and give your car a fresh start.**

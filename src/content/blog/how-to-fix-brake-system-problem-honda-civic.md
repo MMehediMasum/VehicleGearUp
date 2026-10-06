@@ -1,10 +1,14 @@
 ---
-title: "How to Fix Brake System Problem Honda Civic: Easy DIY Solutions"
-description: "Is your Honda Civic’s brake system acting up? Feeling that unsettling wobble or hearing strange noises when you press the brake pedal can be scary. But don’t wo"
+title: 'How to Fix Brake System Problem Honda Civic: Easy DIY Solutions'
+description: Is your Honda Civic’s brake system acting up? Feeling that unsettling
+  wobble or hearing strange noises when you press the brake pedal can be scary. But
+  don’t wo
 pubDate: 2026-05-16
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-brake-system-problem-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Parking Brake Help
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-brake-system-problem-honda-civic&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your Honda Civic’s brake system acting up? Feeling that unsettling wobble or hearing strange noises when you press the brake pedal can be scary.**

@@ -1,10 +1,13 @@
 ---
-title: "How Often Should You Change Car Wipers: Ultimate Guide for Safety"
-description: "Have you ever been caught in heavy rain, struggling to see through streaky, worn-out wipers? Your car wipers are more important than you might think. They keep "
+title: 'How Often Should You Change Car Wipers: Ultimate Guide for Safety'
+description: 'Have you ever been caught in heavy rain, struggling to see through streaky,
+  worn-out wipers? Your car wipers are more important than you might think. They keep '
 pubDate: 2026-02-11
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-often-should-you-change-car-wipers&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Windshield Wipers
+heroImage: https://tse1.mm.bing.net/th?q=how-often-should-you-change-car-wipers&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever been caught in heavy rain, struggling to see through streaky, worn-out wipers? Your car wipers are more important than you might think.**

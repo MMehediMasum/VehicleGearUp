@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Buick Encore: Top All-Season and Performance Picks"
-description: "Choosing the best tires for your 2019 Buick Encore improves safety and performance. The right tires match your driving needs and weather conditions. Tires affec"
+title: 'Best Tires for Buick Encore: Top All-Season and Performance Picks'
+description: Choosing the best tires for your 2019 Buick Encore improves safety and
+  performance. The right tires match your driving needs and weather conditions. Tires
+  affec
 pubDate: 2025-12-23
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-2019-buick-encore&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Chevy and GMC Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-2019-buick-encore&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your 2019 Buick Encore improves safety and performance. The right tires match your driving needs and weather conditions.**

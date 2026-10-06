@@ -1,10 +1,14 @@
 ---
-title: "Best Dog Bed for Back of SUV: Ultimate Comfort and Protection Guide"
-description: "Finding the best dog bed for the back of your SUV ensures your pet travels in comfort and safety. Choosing the right bed protects your car and keeps your dog co"
+title: 'Best Dog Bed for Back of SUV: Ultimate Comfort and Protection Guide'
+description: Finding the best dog bed for the back of your SUV ensures your pet travels
+  in comfort and safety. Choosing the right bed protects your car and keeps your dog
+  co
 pubDate: 2026-06-29
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-dog-bed-for-back-of-suv&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Pets and Babies in Cars
+heroImage: https://tse1.mm.bing.net/th?q=best-dog-bed-for-back-of-suv&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Finding the best dog bed for the back of your SUV ensures your pet travels in comfort and safety. Choosing the right bed protects your car and keeps your dog cozy on every trip.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can You Pay at the Car Wash at Kwik Trip: Quick & Easy Guide"
 description: "Are you wondering if you can pay at the car wash when you stop by Kwik Trip? Knowing how payment works can save you time and hassle. Whether you’re in a rush or"
 pubDate: 2025-10-21

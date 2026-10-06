@@ -1,10 +1,14 @@
 ---
-title: "Are Car Batteries Ac Or Dc Voltage: Essential Facts Revealed"
-description: "Have you ever wondered whether your car battery uses AC or DC voltage? Understanding this can help you take better care of your vehicle and avoid costly mistake"
+title: 'Are Car Batteries Ac Or Dc Voltage: Essential Facts Revealed'
+description: Have you ever wondered whether your car battery uses AC or DC voltage?
+  Understanding this can help you take better care of your vehicle and avoid costly
+  mistake
 pubDate: 2026-04-08
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-car-batteries-ac-or-dc-voltage&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Types and Specs
+heroImage: https://tse1.mm.bing.net/th?q=are-car-batteries-ac-or-dc-voltage&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered whether your car battery uses AC or DC voltage? Understanding this can help you take better care of your vehicle and avoid costly mistakes.**

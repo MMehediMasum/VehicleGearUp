@@ -1,10 +1,14 @@
 ---
-title: "How to Break in a New Car Engine: Essential Tips for Longevity"
-description: "Getting a new car is exciting, but did you know that how you treat your engine in the first few hundred miles can make a huge difference in its performance and "
+title: 'How to Break in a New Car Engine: Essential Tips for Longevity'
+description: 'Getting a new car is exciting, but did you know that how you treat your
+  engine in the first few hundred miles can make a huge difference in its performance
+  and '
 pubDate: 2025-11-14
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-break-in-a-new-car-engine&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- How Car Engines Work
+heroImage: https://tse1.mm.bing.net/th?q=how-to-break-in-a-new-car-engine&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Getting a new car is exciting, but did you know that how you treat your engine in the first few hundred miles can make a huge difference in its performance and lifespan? If you want your engine to run smoothly and last longer, you need to know the right way to break it in.**

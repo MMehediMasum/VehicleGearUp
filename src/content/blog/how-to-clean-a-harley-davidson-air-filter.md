@@ -1,10 +1,13 @@
 ---
-title: "How to Clean a Harley Davidson Air Filter: Easy Steps for Peak Performance"
-description: "Your Harley Davidson runs best when every part works smoothly—especially the air filter. A clean air filter means better performance, improved fuel efficiency, "
+title: 'How to Clean a Harley Davidson Air Filter: Easy Steps for Peak Performance'
+description: 'Your Harley Davidson runs best when every part works smoothly—especially
+  the air filter. A clean air filter means better performance, improved fuel efficiency, '
 pubDate: 2026-03-18
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-a-harley-davidson-air-filter&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Maintenance Basics
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-a-harley-davidson-air-filter&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Your Harley Davidson runs best when every part works smoothly—especially the air filter. A clean air filter means better performance, improved fuel efficiency, and a longer engine life.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Tpms Light on Hyundai Tucson: Quick & Easy Guide"
-description: "Is your Hyundai Tucson’s TPMS light blinking or staying on? That little warning light can be confusing and even a bit stressful. But don’t worry—you don’t have "
+title: 'How to Reset Tpms Light on Hyundai Tucson: Quick & Easy Guide'
+description: 'Is your Hyundai Tucson’s TPMS light blinking or staying on? That little
+  warning light can be confusing and even a bit stressful. But don’t worry—you don’t
+  have '
 pubDate: 2026-05-23
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-tpms-light-on-hyundai-tucson&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Resetting Honda TPMS
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-tpms-light-on-hyundai-tucson&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Is your Hyundai Tucson’s TPMS light blinking or staying on? That little warning light can be confusing and even a bit stressful.**

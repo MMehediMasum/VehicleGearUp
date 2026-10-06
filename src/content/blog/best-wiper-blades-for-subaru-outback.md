@@ -1,10 +1,14 @@
 ---
-title: "Best Wiper Blades for Subaru Outback: Top Durable and Reliable Picks"
-description: "Finding the best wiper blades for your Subaru Outback helps keep your windshield clear and your drive safe. Choosing the right set ensures good visibility in ra"
+title: 'Best Wiper Blades for Subaru Outback: Top Durable and Reliable Picks'
+description: Finding the best wiper blades for your Subaru Outback helps keep your
+  windshield clear and your drive safe. Choosing the right set ensures good visibility
+  in ra
 pubDate: 2026-06-16
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-wiper-blades-for-subaru-outback&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Best Wiper Blades
+heroImage: https://tse1.mm.bing.net/th?q=best-wiper-blades-for-subaru-outback&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Finding the best wiper blades for your Subaru Outback helps keep your windshield clear and your drive safe. Choosing the right set ensures good visibility in rain, snow, or fog.**

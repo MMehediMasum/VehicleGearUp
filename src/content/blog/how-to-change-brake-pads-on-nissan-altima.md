@@ -1,10 +1,14 @@
 ---
-title: "How to Change Brake Pads on Nissan Altima: Easy Step-by-Step Guide"
-description: "If you drive a Nissan Altima, knowing how to change your brake pads can save you time and money. Imagine avoiding costly trips to the mechanic and handling this"
+title: 'How to Change Brake Pads on Nissan Altima: Easy Step-by-Step Guide'
+description: If you drive a Nissan Altima, knowing how to change your brake pads can
+  save you time and money. Imagine avoiding costly trips to the mechanic and handling
+  this
 pubDate: 2026-05-12
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-brake-pads-on-nissan-altima&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Best Brake Pads
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-brake-pads-on-nissan-altima&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you drive a Nissan Altima, knowing how to change your brake pads can save you time and money. Imagine avoiding costly trips to the mechanic and handling this important task yourself.**

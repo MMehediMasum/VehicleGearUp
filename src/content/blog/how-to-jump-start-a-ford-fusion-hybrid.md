@@ -1,10 +1,14 @@
 ---
-title: "How to Jump Start a Ford Fusion Hybrid: Quick & Easy Steps"
-description: "Your Ford Fusion Hybrid won’t start, and you’re stuck wondering what to do next. Jump-starting a hybrid car might seem tricky, but it doesn’t have to be. In thi"
+title: 'How to Jump Start a Ford Fusion Hybrid: Quick & Easy Steps'
+description: Your Ford Fusion Hybrid won’t start, and you’re stuck wondering what
+  to do next. Jump-starting a hybrid car might seem tricky, but it doesn’t have to
+  be. In thi
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-jump-start-a-ford-fusion-hybrid&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hybrid Battery and Braking
+heroImage: https://tse1.mm.bing.net/th?q=how-to-jump-start-a-ford-fusion-hybrid&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Your Ford Fusion Hybrid won’t start, and you’re stuck wondering what to do next. Jump-starting a hybrid car might seem tricky, but it doesn’t have to be.**

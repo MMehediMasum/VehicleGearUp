@@ -1,10 +1,14 @@
 ---
-title: "How to Fix Crack in Car Dashboard: Easy Steps for a Flawless Repair"
-description: "Have you noticed a crack forming on your car’s dashboard? It might seem like a small problem now, but that crack can quickly get worse, making your car look old"
+title: 'How to Fix Crack in Car Dashboard: Easy Steps for a Flawless Repair'
+description: Have you noticed a crack forming on your car’s dashboard? It might seem
+  like a small problem now, but that crack can quickly get worse, making your car
+  look old
 pubDate: 2026-05-09
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-crack-in-car-dashboard&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Leather and Dashboard Care
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-crack-in-car-dashboard&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you noticed a crack forming on your car’s dashboard? It might seem like a small problem now, but that crack can quickly get worse, making your car look old and worn out.**

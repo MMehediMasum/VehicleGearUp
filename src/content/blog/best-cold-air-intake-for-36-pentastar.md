@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for 3.6 Pentastar to Boost Power and Performance"
-description: "Finding the best cold air intake for the 3.6 Pentastar engine can improve your vehicle’s power and efficiency. This guide covers top choices to help you pick th"
+title: Best Cold Air Intake for 3.6 Pentastar to Boost Power and Performance
+description: Finding the best cold air intake for the 3.6 Pentastar engine can improve
+  your vehicle’s power and efficiency. This guide covers top choices to help you pick
+  th
 pubDate: 2026-06-08
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-36-pentastar&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hemi Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-36-pentastar&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Finding the best cold air intake for the 3.6 Pentastar engine can improve your vehicle’s power and efficiency. This guide covers top choices to help you pick the right system.**

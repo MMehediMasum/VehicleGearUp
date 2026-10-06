@@ -1,10 +1,14 @@
 ---
-title: "Can You Transfer License Plates from One Car to Another? Essential Guide"
-description: "Are you wondering if you can transfer license plates from one car to another? It’s a question many car owners ask when buying a new vehicle or switching cars. K"
+title: Can You Transfer License Plates from One Car to Another? Essential Guide
+description: Are you wondering if you can transfer license plates from one car to
+  another? It’s a question many car owners ask when buying a new vehicle or switching
+  cars. K
 pubDate: 2026-02-17
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-transfer-license-plates-from-one-car-to-another&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- License Plate Questions
+heroImage: https://tse1.mm.bing.net/th?q=can-you-transfer-license-plates-from-one-car-to-another&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you wondering if you can transfer license plates from one car to another? It’s a question many car owners ask when buying a new vehicle or switching cars.**

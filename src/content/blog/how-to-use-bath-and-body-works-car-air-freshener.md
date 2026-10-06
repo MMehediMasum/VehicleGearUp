@@ -1,10 +1,14 @@
 ---
-title: "How to Use Bath And Body Works Car Air Freshener: Ultimate Guide"
-description: "Imagine stepping into your car and being greeted by a fresh, inviting scent every time. With Bath and Body Works Car Air Fresheners, you can turn your daily dri"
+title: 'How to Use Bath And Body Works Car Air Freshener: Ultimate Guide'
+description: Imagine stepping into your car and being greeted by a fresh, inviting
+  scent every time. With Bath and Body Works Car Air Fresheners, you can turn your
+  daily dri
 pubDate: 2025-12-17
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-use-bath-and-body-works-car-air-freshener&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Air Fresheners and Odors
+heroImage: https://tse1.mm.bing.net/th?q=how-to-use-bath-and-body-works-car-air-freshener&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Imagine stepping into your car and being greeted by a fresh, inviting scent every time. With Bath and Body Works Car Air Fresheners, you can turn your daily drive into a pleasant experience.**

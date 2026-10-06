@@ -1,10 +1,14 @@
 ---
-title: "Can You Go Through Car Wash With Cracked Windshield? Essential Tips"
-description: "Have you ever noticed a crack on your windshield and wondered if it’s still safe to take your car through a car wash? You might think a simple wash won’t cause "
+title: Can You Go Through Car Wash With Cracked Windshield? Essential Tips
+description: 'Have you ever noticed a crack on your windshield and wondered if it’s
+  still safe to take your car through a car wash? You might think a simple wash won’t
+  cause '
 pubDate: 2025-11-12
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-go-through-car-wash-with-cracked-windshield&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Going Through Car Washes
+heroImage: https://tse1.mm.bing.net/th?q=can-you-go-through-car-wash-with-cracked-windshield&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever noticed a crack on your windshield and wondered if it’s still safe to take your car through a car wash? You might think a simple wash won’t cause any harm, but that small crack could turn into a big problem.**

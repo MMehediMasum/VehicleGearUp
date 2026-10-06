@@ -1,10 +1,14 @@
 ---
-title: "Best Intake Manifold for 351 Cleveland 4V: Top Picks for Maximum Performance"
-description: "Choosing the best intake manifold for your 351 Cleveland 4V boosts engine performance and efficiency. A quality manifold improves airflow and power delivery for"
+title: 'Best Intake Manifold for 351 Cleveland 4V: Top Picks for Maximum Performance'
+description: Choosing the best intake manifold for your 351 Cleveland 4V boosts engine
+  performance and efficiency. A quality manifold improves airflow and power delivery
+  for
 pubDate: 2026-06-06
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-intake-manifold-for-351-cleveland-4v&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Intake Manifolds
+heroImage: https://tse1.mm.bing.net/th?q=best-intake-manifold-for-351-cleveland-4v&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best intake manifold for your 351 Cleveland 4V boosts engine performance and efficiency. A quality manifold improves airflow and power delivery for your Ford V8 engine.**

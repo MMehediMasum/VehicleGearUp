@@ -1,10 +1,14 @@
 ---
-title: "Best All Purpose Cleaner for Car Interior: Top Picks for Ultimate Shine"
-description: "Choosing the best all-purpose cleaner for your car interior keeps it fresh and spotless. A good cleaner works on leather, fabric, plastic, and vinyl surfaces. C"
+title: 'Best All Purpose Cleaner for Car Interior: Top Picks for Ultimate Shine'
+description: Choosing the best all-purpose cleaner for your car interior keeps it
+  fresh and spotless. A good cleaner works on leather, fabric, plastic, and vinyl
+  surfaces. C
 pubDate: 2026-07-08
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-all-purpose-cleaner-for-car-interior&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Interior and Glass Cleaners
+heroImage: https://tse1.mm.bing.net/th?q=best-all-purpose-cleaner-for-car-interior&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best all-purpose cleaner for your car interior keeps it fresh and spotless. A good cleaner works on leather, fabric, plastic, and vinyl surfaces.**

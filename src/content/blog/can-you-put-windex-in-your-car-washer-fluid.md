@@ -1,10 +1,14 @@
 ---
-title: "Can You Put Windex in Your Car Washer Fluid? Shocking Truth!"
-description: "Have you ever wondered if you can use Windex in your car’s washer fluid? It sounds like a quick fix when your windshield gets dirty, but is it really safe? Usin"
+title: Can You Put Windex in Your Car Washer Fluid? Shocking Truth!
+description: Have you ever wondered if you can use Windex in your car’s washer fluid?
+  It sounds like a quick fix when your windshield gets dirty, but is it really safe?
+  Usin
 pubDate: 2026-05-16
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-put-windex-in-your-car-washer-fluid&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Brake and Washer Fluids
+heroImage: https://tse1.mm.bing.net/th?q=can-you-put-windex-in-your-car-washer-fluid&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever wondered if you can use Windex in your car’s washer fluid? It sounds like a quick fix when your windshield gets dirty, but is it really safe?**

@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for Chevy Colorado to Boost Performance & Towing"
-description: "Choosing the best cold air intake for your Chevy Colorado can boost engine power and improve fuel efficiency. A quality intake system helps your truck breathe b"
+title: Best Cold Air Intake for Chevy Colorado to Boost Performance & Towing
+description: Choosing the best cold air intake for your Chevy Colorado can boost engine
+  power and improve fuel efficiency. A quality intake system helps your truck breathe
+  b
 pubDate: 2025-11-21
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-chevy-colorado&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- GM Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-chevy-colorado&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best cold air intake for your Chevy Colorado can boost engine power and improve fuel efficiency. A quality intake system helps your truck breathe better and perform stronger.**

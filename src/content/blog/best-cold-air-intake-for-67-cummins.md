@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for 6.7 Cummins to Maximize Power & Efficiency"
-description: "Choosing the best cold air intake for your 6.7 Cummins can improve engine power and fuel efficiency. A quality intake helps your truck breathe better and perfor"
+title: Best Cold Air Intake for 6.7 Cummins to Maximize Power & Efficiency
+description: Choosing the best cold air intake for your 6.7 Cummins can improve engine
+  power and fuel efficiency. A quality intake helps your truck breathe better and
+  perfor
 pubDate: 2026-06-22
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-67-cummins&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hemi Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-67-cummins&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best cold air intake for your 6.7 Cummins can improve engine power and fuel efficiency. A quality intake helps your truck breathe better and perform stronger.**

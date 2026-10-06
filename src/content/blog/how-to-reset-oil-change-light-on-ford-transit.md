@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Change Light on Ford Transit: Quick & Easy Guide"
-description: "If you’ve just changed the oil in your Ford Transit but the oil change light is still on, you’re probably wondering how to turn it off. This little light can be"
+title: 'How to Reset Oil Change Light on Ford Transit: Quick & Easy Guide'
+description: If you’ve just changed the oil in your Ford Transit but the oil change
+  light is still on, you’re probably wondering how to turn it off. This little light
+  can be
 pubDate: 2026-05-06
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-change-light-on-ford-transit&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Oil Change Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-change-light-on-ford-transit&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you’ve just changed the oil in your Ford Transit but the oil change light is still on, you’re probably wondering how to turn it off. This little light can be annoying, distracting, and even make you question if the job was done right.**

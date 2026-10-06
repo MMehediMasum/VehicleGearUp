@@ -1,10 +1,14 @@
 ---
-title: "How to Use a Car Jack to Change a Tire: Easy Step-by-Step Guide"
-description: "Imagine you’re driving and suddenly hear that dreaded thump—your tire is flat. What do you do next? Knowing how to use a car jack to change a tire can save you "
+title: 'How to Use a Car Jack to Change a Tire: Easy Step-by-Step Guide'
+description: 'Imagine you’re driving and suddenly hear that dreaded thump—your tire
+  is flat. What do you do next? Knowing how to use a car jack to change a tire can
+  save you '
 pubDate: 2025-12-17
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-use-a-car-jack-to-change-a-tire&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Jacks and Jack Stands
+heroImage: https://tse1.mm.bing.net/th?q=how-to-use-a-car-jack-to-change-a-tire&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Imagine you’re driving and suddenly hear that dreaded thump—your tire is flat. What do you do next?**

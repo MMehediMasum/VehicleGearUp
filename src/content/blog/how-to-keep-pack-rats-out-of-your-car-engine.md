@@ -1,10 +1,14 @@
 ---
-title: "How to Keep Pack Rats Out of Your Car Engine: Effective Tips"
-description: "Have you ever opened your car hood and found chewed wires or nests inside? Pack rats love to make your engine their home, causing costly damage and leaving you "
+title: 'How to Keep Pack Rats Out of Your Car Engine: Effective Tips'
+description: 'Have you ever opened your car hood and found chewed wires or nests inside?
+  Pack rats love to make your engine their home, causing costly damage and leaving
+  you '
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-keep-pack-rats-out-of-your-car-engine&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Keeping Pests Out of Engines
+heroImage: https://tse1.mm.bing.net/th?q=how-to-keep-pack-rats-out-of-your-car-engine&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever opened your car hood and found chewed wires or nests inside? Pack rats love to make your engine their home, causing costly damage and leaving you frustrated.**

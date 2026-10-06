@@ -1,10 +1,14 @@
 ---
-title: "How to Fix Epc Light on Audi A4: Easy Steps to Save You Time"
-description: "Is your Audi A4’s EPC light suddenly glowing on your dashboard? That little warning can feel confusing and even a bit scary. You might wonder what’s wrong and h"
+title: 'How to Fix Epc Light on Audi A4: Easy Steps to Save You Time'
+description: Is your Audi A4’s EPC light suddenly glowing on your dashboard? That
+  little warning can feel confusing and even a bit scary. You might wonder what’s
+  wrong and h
 pubDate: 2026-04-28
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-epc-light-on-audi-a4&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Warning Light Fixes
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-epc-light-on-audi-a4&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your Audi A4’s EPC light suddenly glowing on your dashboard? That little warning can feel confusing and even a bit scary.**

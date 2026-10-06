@@ -1,10 +1,14 @@
 ---
-title: "How to Attach Catalytic Converter 2020 Ford Escape: Easy Step-by-Step Guide"
-description: "If you own a 2020 Ford Escape, you know how important every part of your vehicle is for smooth and efficient driving. One key component is the catalytic convert"
+title: 'How to Attach Catalytic Converter 2020 Ford Escape: Easy Step-by-Step Guide'
+description: If you own a 2020 Ford Escape, you know how important every part of your
+  vehicle is for smooth and efficient driving. One key component is the catalytic
+  convert
 pubDate: 2026-01-22
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-attach-catalytic-converter-2020-ford-escape&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Catalytic Converter Questions
+heroImage: https://tse1.mm.bing.net/th?q=how-to-attach-catalytic-converter-2020-ford-escape&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **If you own a 2020 Ford Escape, you know how important every part of your vehicle is for smooth and efficient driving. One key component is the catalytic converter.**

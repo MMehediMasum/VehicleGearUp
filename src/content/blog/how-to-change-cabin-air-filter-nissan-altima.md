@@ -1,10 +1,14 @@
 ---
-title: "How to Change Cabin Air Filter Nissan Altima: Easy Step-by-Step Guide"
-description: "Is your Nissan Altima’s cabin air feeling stuffy or filled with dust? Changing the cabin air filter might be the simple fix you need. You might think this task "
+title: 'How to Change Cabin Air Filter Nissan Altima: Easy Step-by-Step Guide'
+description: 'Is your Nissan Altima’s cabin air feeling stuffy or filled with dust?
+  Changing the cabin air filter might be the simple fix you need. You might think
+  this task '
 pubDate: 2026-03-09
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-cabin-air-filter-nissan-altima&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Cabin Air Filters
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-cabin-air-filter-nissan-altima&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your Nissan Altima’s cabin air feeling stuffy or filled with dust? Changing the cabin air filter might be the simple fix you need.**

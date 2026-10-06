@@ -1,10 +1,14 @@
 ---
-title: "Does Your Car Battery Charge When You Drive? Essential Facts"
-description: "Have you ever wondered if your car battery charges while you drive? It’s a question many drivers ask but few really understand. Knowing the answer can save you "
+title: Does Your Car Battery Charge When You Drive? Essential Facts
+description: 'Have you ever wondered if your car battery charges while you drive?
+  It’s a question many drivers ask but few really understand. Knowing the answer can
+  save you '
 pubDate: 2026-04-04
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-your-car-battery-charge-when-you-drive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Charging a Car Battery
+heroImage: https://tse1.mm.bing.net/th?q=does-your-car-battery-charge-when-you-drive&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if your car battery charges while you drive? It’s a question many drivers ask but few really understand.**

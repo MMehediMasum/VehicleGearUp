@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for L5P Duramax to Boost Power and Efficiency"
-description: "Finding the best cold air intake for your L5P Duramax can improve engine power and efficiency. The right system helps your truck breathe better and perform stro"
+title: Best Cold Air Intake for L5P Duramax to Boost Power and Efficiency
+description: Finding the best cold air intake for your L5P Duramax can improve engine
+  power and efficiency. The right system helps your truck breathe better and perform
+  stro
 pubDate: 2026-06-07
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-l5p-duramax&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- GM Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-l5p-duramax&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Finding the best cold air intake for your L5P Duramax can improve engine power and efficiency. The right system helps your truck breathe better and perform stronger.**

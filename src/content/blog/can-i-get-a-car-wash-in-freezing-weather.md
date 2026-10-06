@@ -1,10 +1,14 @@
 ---
-title: "Can I Get a Car Wash in Freezing Weather? Essential Tips & Risks"
-description: "Have you ever wondered if you can get a car wash when the weather is freezing? You might think it’s risky or even impossible. But keeping your car clean during "
+title: Can I Get a Car Wash in Freezing Weather? Essential Tips & Risks
+description: 'Have you ever wondered if you can get a car wash when the weather is
+  freezing? You might think it’s risky or even impossible. But keeping your car clean
+  during '
 pubDate: 2026-03-19
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-i-get-a-car-wash-in-freezing-weather&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Winter Car Wash Questions
+heroImage: https://tse1.mm.bing.net/th?q=can-i-get-a-car-wash-in-freezing-weather&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever wondered if you can get a car wash when the weather is freezing? You might think it’s risky or even impossible.**

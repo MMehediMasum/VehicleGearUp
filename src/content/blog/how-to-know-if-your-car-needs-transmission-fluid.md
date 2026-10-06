@@ -1,10 +1,14 @@
 ---
-title: "How to Know If Your Car Needs Transmission Fluid: Essential Signs"
-description: "Your car’s transmission is one of its most important parts, and the fluid inside keeps it running smoothly. But how do you know if your car needs transmission f"
+title: 'How to Know If Your Car Needs Transmission Fluid: Essential Signs'
+description: Your car’s transmission is one of its most important parts, and the fluid
+  inside keeps it running smoothly. But how do you know if your car needs transmission
+  f
 pubDate: 2026-05-17
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-know-if-your-car-needs-transmission-fluid&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Adding Transmission Fluid
+heroImage: https://tse1.mm.bing.net/th?q=how-to-know-if-your-car-needs-transmission-fluid&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Your car’s transmission is one of its most important parts, and the fluid inside keeps it running smoothly. But how do you know if your car needs transmission fluid?**

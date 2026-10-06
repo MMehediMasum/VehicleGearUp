@@ -1,10 +1,14 @@
 ---
-title: "Do All Cars Have a Spare Tire? Essential Facts Revealed"
-description: "Have you ever wondered if every car comes with a spare tire? Imagine driving on a quiet road when suddenly your tire goes flat. Do you have a backup ready, or w"
+title: Do All Cars Have a Spare Tire? Essential Facts Revealed
+description: Have you ever wondered if every car comes with a spare tire? Imagine
+  driving on a quiet road when suddenly your tire goes flat. Do you have a backup
+  ready, or w
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-all-cars-have-a-spare-tire&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spare Tires and Tire Changing
+heroImage: https://tse1.mm.bing.net/th?q=do-all-cars-have-a-spare-tire&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Have you ever wondered if every car comes with a spare tire? Imagine driving on a quiet road when suddenly your tire goes flat.**

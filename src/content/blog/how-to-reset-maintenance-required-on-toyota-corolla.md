@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Maintenance Required on Toyota Corolla: Easy Steps Guide"
-description: "Is your Toyota Corolla showing the “Maintenance Required” light, and you’re not sure how to turn it off? You’re not alone. This little warning can be confusing "
+title: 'How to Reset Maintenance Required on Toyota Corolla: Easy Steps Guide'
+description: 'Is your Toyota Corolla showing the “Maintenance Required” light, and
+  you’re not sure how to turn it off? You’re not alone. This little warning can be
+  confusing '
 pubDate: 2026-02-21
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-maintenance-required-on-toyota-corolla&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Maintenance Required Message
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-maintenance-required-on-toyota-corolla&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your Toyota Corolla showing the “Maintenance Required” light, and you’re not sure how to turn it off? You’re not alone.**

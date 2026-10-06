@@ -1,10 +1,14 @@
 ---
-title: "How to Tie down Bike in Truck Bed: Ultimate Secure Loading Guide"
-description: "If you’re planning to transport your bike in a truck bed, knowing how to tie it down correctly is a must. Without the right technique, your bike can shift, fall"
+title: 'How to Tie down Bike in Truck Bed: Ultimate Secure Loading Guide'
+description: If you’re planning to transport your bike in a truck bed, knowing how
+  to tie it down correctly is a must. Without the right technique, your bike can shift,
+  fall
 pubDate: 2026-03-03
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-tie-down-bike-in-truck-bed&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Truck Bed Gear
+heroImage: https://tse1.mm.bing.net/th?q=how-to-tie-down-bike-in-truck-bed&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **If you’re planning to transport your bike in a truck bed, knowing how to tie it down correctly is a must. Without the right technique, your bike can shift, fall, or even get damaged during the drive.**

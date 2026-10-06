@@ -1,10 +1,14 @@
 ---
-title: "Best Wiper Blades for Honda CRV: Top Durable and Weatherproof Picks"
-description: "Choosing the best wiper blades for your 2019 Honda CR-V ensures clear vision in all weather. Quality wipers improve safety and driving comfort. Wiper blades hel"
+title: 'Best Wiper Blades for Honda CRV: Top Durable and Weatherproof Picks'
+description: Choosing the best wiper blades for your 2019 Honda CR-V ensures clear
+  vision in all weather. Quality wipers improve safety and driving comfort. Wiper
+  blades hel
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-wiper-blades-for-honda-crv-2019&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Best Wiper Blades
+heroImage: https://tse1.mm.bing.net/th?q=best-wiper-blades-for-honda-crv-2019&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Choosing the best wiper blades for your 2019 Honda CR-V ensures clear vision in all weather. Quality wipers improve safety and driving comfort.**

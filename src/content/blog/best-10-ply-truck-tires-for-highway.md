@@ -1,10 +1,14 @@
 ---
-title: "Best 10 Ply Truck Tires for Highway: Top Durable Picks for Smooth Rides"
-description: "Choosing the right 10 ply truck tires ensures safety and performance on highways. These tires offer strength, durability, and better handling for heavy loads. T"
+title: 'Best 10 Ply Truck Tires for Highway: Top Durable Picks for Smooth Rides'
+description: Choosing the right 10 ply truck tires ensures safety and performance
+  on highways. These tires offer strength, durability, and better handling for heavy
+  loads. T
 pubDate: 2026-01-06
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-10-ply-truck-tires-for-highway&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Mud and Highway Truck Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-10-ply-truck-tires-for-highway&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the right 10 ply truck tires ensures safety and performance on highways. These tires offer strength, durability, and better handling for heavy loads.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Tpms Light Honda Civic: Easy Steps to Fix It Fast"
-description: "Is your Honda Civic’s TPMS light staying on, leaving you confused and worried? You’re not alone. That little warning can be frustrating, but the good news is yo"
+title: 'How to Reset Tpms Light Honda Civic: Easy Steps to Fix It Fast'
+description: Is your Honda Civic’s TPMS light staying on, leaving you confused and
+  worried? You’re not alone. That little warning can be frustrating, but the good
+  news is yo
 pubDate: 2026-05-29
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-tpms-light-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Resetting Honda TPMS
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-tpms-light-honda-civic&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Is your Honda Civic’s TPMS light staying on, leaving you confused and worried? You’re not alone.**

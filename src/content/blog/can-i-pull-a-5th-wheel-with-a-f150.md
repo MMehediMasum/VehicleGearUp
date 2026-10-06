@@ -1,10 +1,14 @@
 ---
-title: "Can I Pull a 5Th Wheel With a F150: Expert Towing Tips Revealed"
-description: "Are you wondering if your Ford F150 can handle towing a 5th wheel? It’s a common question for many truck owners who want the freedom to travel with a big, comfo"
+title: 'Can I Pull a 5Th Wheel With a F150: Expert Towing Tips Revealed'
+description: Are you wondering if your Ford F150 can handle towing a 5th wheel? It’s
+  a common question for many truck owners who want the freedom to travel with a big,
+  comfo
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-i-pull-a-5th-wheel-with-a-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford F150 Towing
+heroImage: https://tse1.mm.bing.net/th?q=can-i-pull-a-5th-wheel-with-a-f150&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Are you wondering if your Ford F150 can handle towing a 5th wheel? It’s a common question for many truck owners who want the freedom to travel with a big, comfortable trailer.**

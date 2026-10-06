@@ -1,10 +1,14 @@
 ---
-title: "Do You Add Water to Car Batteries: Essential Maintenance Tips"
-description: "Have you ever wondered if you should add water to your car battery? It’s a simple question, but the answer can save you from costly repairs or even a dead batte"
+title: 'Do You Add Water to Car Batteries: Essential Maintenance Tips'
+description: Have you ever wondered if you should add water to your car battery? It’s
+  a simple question, but the answer can save you from costly repairs or even a dead
+  batte
 pubDate: 2025-11-03
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-you-add-water-to-car-batteries&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Polarity and Acid
+heroImage: https://tse1.mm.bing.net/th?q=do-you-add-water-to-car-batteries&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if you should add water to your car battery? It’s a simple question, but the answer can save you from costly repairs or even a dead battery.**

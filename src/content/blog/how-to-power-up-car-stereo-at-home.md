@@ -1,10 +1,14 @@
 ---
-title: "How to Power Up Car Stereo at Home: Easy DIY Guide"
-description: "Have you ever wanted to enjoy the full power of your car stereo without being in your car? Imagine blasting your favorite tunes with that rich, clear sound righ"
+title: 'How to Power Up Car Stereo at Home: Easy DIY Guide'
+description: Have you ever wanted to enjoy the full power of your car stereo without
+  being in your car? Imagine blasting your favorite tunes with that rich, clear sound
+  righ
 pubDate: 2026-05-25
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-power-up-car-stereo-at-home&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Stereo Installation Help
+heroImage: https://tse1.mm.bing.net/th?q=how-to-power-up-car-stereo-at-home&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Have you ever wanted to enjoy the full power of your car stereo without being in your car? Imagine blasting your favorite tunes with that rich, clear sound right at home.**

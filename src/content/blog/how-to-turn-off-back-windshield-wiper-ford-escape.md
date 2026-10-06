@@ -1,10 +1,14 @@
 ---
-title: "How to Turn off Back Windshield Wiper Ford Escape: Quick Guide"
-description: "Are you struggling to turn off the back windshield wiper on your Ford Escape? It can be frustrating when the wiper keeps running, distracting you or draining yo"
+title: 'How to Turn off Back Windshield Wiper Ford Escape: Quick Guide'
+description: Are you struggling to turn off the back windshield wiper on your Ford
+  Escape? It can be frustrating when the wiper keeps running, distracting you or draining
+  yo
 pubDate: 2025-10-27
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-back-windshield-wiper-ford-escape&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Windshield Wipers
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-back-windshield-wiper-ford-escape&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Are you struggling to turn off the back windshield wiper on your Ford Escape? It can be frustrating when the wiper keeps running, distracting you or draining your battery.**

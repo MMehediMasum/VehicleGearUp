@@ -1,10 +1,14 @@
 ---
-title: "Do You Check Automatic Transmission Fluid With Car Running? Essential Tips"
-description: "Have you ever wondered if you should check your automatic transmission fluid while your car is running? It’s a simple question, but the answer can save you from"
+title: Do You Check Automatic Transmission Fluid With Car Running? Essential Tips
+description: Have you ever wondered if you should check your automatic transmission
+  fluid while your car is running? It’s a simple question, but the answer can save
+  you from
 pubDate: 2026-05-01
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-you-check-automatic-transmission-fluid-with-car-running&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Transmission Fluid Checks
+heroImage: https://tse1.mm.bing.net/th?q=do-you-check-automatic-transmission-fluid-with-car-running&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever wondered if you should check your automatic transmission fluid while your car is running? It’s a simple question, but the answer can save you from costly repairs and keep your vehicle running smoothly.**

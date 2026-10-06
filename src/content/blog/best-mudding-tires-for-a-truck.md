@@ -1,10 +1,14 @@
 ---
-title: "Best Mudding Tires for a Truck: Top Picks and Decal Ideas"
-description: "Choosing the best mudding tires for your truck boosts off-road fun and safety. Strong tires help your truck move through mud without getting stuck. Mud can be t"
+title: 'Best Mudding Tires for a Truck: Top Picks and Decal Ideas'
+description: Choosing the best mudding tires for your truck boosts off-road fun and
+  safety. Strong tires help your truck move through mud without getting stuck. Mud
+  can be t
 pubDate: 2025-12-25
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-mudding-tires-for-a-truck&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Mud and Highway Truck Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-mudding-tires-for-a-truck&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best mudding tires for your truck boosts off-road fun and safety. Strong tires help your truck move through mud without getting stuck.**

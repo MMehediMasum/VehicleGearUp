@@ -1,10 +1,14 @@
 ---
-title: "What is the Amperage of a Car Battery: Essential Facts Revealed"
-description: "Have you ever wondered what powers your car’s engine and keeps everything running smoothly? The answer lies in your car battery’s amperage. Understanding the am"
+title: 'What is the Amperage of a Car Battery: Essential Facts Revealed'
+description: Have you ever wondered what powers your car’s engine and keeps everything
+  running smoothly? The answer lies in your car battery’s amperage. Understanding
+  the am
 pubDate: 2026-04-18
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-amperage-of-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Ratings Explained
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-amperage-of-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered what powers your car’s engine and keeps everything running smoothly? The answer lies in your car battery’s amperage.**

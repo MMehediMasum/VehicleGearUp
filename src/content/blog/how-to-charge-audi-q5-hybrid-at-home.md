@@ -1,10 +1,14 @@
 ---
-title: "How to Charge Audi Q5 Hybrid at Home: Easy Step-by-Step Guide"
-description: "Charging your Audi Q5 Hybrid at home doesn’t have to be confusing or time-consuming. Imagine stepping into your car every morning with a full battery, ready to "
+title: 'How to Charge Audi Q5 Hybrid at Home: Easy Step-by-Step Guide'
+description: 'Charging your Audi Q5 Hybrid at home doesn’t have to be confusing or
+  time-consuming. Imagine stepping into your car every morning with a full battery,
+  ready to '
 pubDate: 2026-02-07
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-charge-audi-q5-hybrid-at-home&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- How Hybrids Work
+heroImage: https://tse1.mm.bing.net/th?q=how-to-charge-audi-q5-hybrid-at-home&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Charging your Audi Q5 Hybrid at home doesn’t have to be confusing or time-consuming. Imagine stepping into your car every morning with a full battery, ready to take on the day without worrying about gas stops or last-minute charging.**

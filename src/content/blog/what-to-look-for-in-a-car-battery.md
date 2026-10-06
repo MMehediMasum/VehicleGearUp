@@ -1,10 +1,14 @@
 ---
-title: "What to Look for in a Car Battery: Essential Tips for Reliability"
-description: "When it’s time to replace your car battery, knowing what to look for can save you from costly mistakes and unexpected breakdowns. You want a battery that keeps "
+title: 'What to Look for in a Car Battery: Essential Tips for Reliability'
+description: 'When it’s time to replace your car battery, knowing what to look for
+  can save you from costly mistakes and unexpected breakdowns. You want a battery
+  that keeps '
 pubDate: 2025-11-14
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-look-for-in-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Price and Installation
+heroImage: https://tse1.mm.bing.net/th?q=what-to-look-for-in-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **When it’s time to replace your car battery, knowing what to look for can save you from costly mistakes and unexpected breakdowns. You want a battery that keeps your car running smoothly, starts quickly in any weather, and lasts as long as possible.**

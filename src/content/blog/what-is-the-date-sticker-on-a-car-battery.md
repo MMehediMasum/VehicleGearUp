@@ -1,10 +1,14 @@
 ---
-title: "What is the Date Sticker on a Car Battery: Ultimate Guide Explained"
-description: "Have you ever noticed a small date sticker on your car battery and wondered what it means? That little sticker holds important information that can save you fro"
+title: 'What is the Date Sticker on a Car Battery: Ultimate Guide Explained'
+description: Have you ever noticed a small date sticker on your car battery and wondered
+  what it means? That little sticker holds important information that can save you
+  fro
 pubDate: 2026-03-24
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-date-sticker-on-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Ratings Explained
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-date-sticker-on-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever noticed a small date sticker on your car battery and wondered what it means? That little sticker holds important information that can save you from unexpected car troubles.**

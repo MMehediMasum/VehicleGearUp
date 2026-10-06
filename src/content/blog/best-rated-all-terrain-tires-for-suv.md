@@ -1,10 +1,14 @@
 ---
-title: "Best Rated All Terrain Tires for SUV: Top Durable Picks for Adventure"
-description: "Choosing the best all terrain tires for your SUV ensures safety and strong performance on any road. Tough tires handle rough paths, mud, snow, and highways with"
+title: 'Best Rated All Terrain Tires for SUV: Top Durable Picks for Adventure'
+description: Choosing the best all terrain tires for your SUV ensures safety and strong
+  performance on any road. Tough tires handle rough paths, mud, snow, and highways
+  with
 pubDate: 2026-01-04
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rated-all-terrain-tires-for-suv&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- All Terrain Truck Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-rated-all-terrain-tires-for-suv&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best all terrain tires for your SUV ensures safety and strong performance on any road. Tough tires handle rough paths, mud, snow, and highways with ease.**

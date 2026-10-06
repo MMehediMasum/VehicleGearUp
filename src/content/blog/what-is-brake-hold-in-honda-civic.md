@@ -1,10 +1,14 @@
 ---
-title: "What is Brake Hold in Honda Civic: Ultimate Safety Feature Explained"
-description: "Have you ever wished your Honda Civic could hold the brake for you at a stoplight or in heavy traffic? Imagine the relief of not having to keep your foot on the"
+title: 'What is Brake Hold in Honda Civic: Ultimate Safety Feature Explained'
+description: Have you ever wished your Honda Civic could hold the brake for you at
+  a stoplight or in heavy traffic? Imagine the relief of not having to keep your foot
+  on the
 pubDate: 2026-04-28
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-brake-hold-in-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Parking Brake Help
+heroImage: https://tse1.mm.bing.net/th?q=what-is-brake-hold-in-honda-civic&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever wished your Honda Civic could hold the brake for you at a stoplight or in heavy traffic? Imagine the relief of not having to keep your foot on the brake pedal constantly.**

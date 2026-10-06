@@ -1,10 +1,13 @@
 ---
-title: "What Temperature Does a Car Battery Freeze: Key Facts Revealed"
-description: "Have you ever wondered what happens to your car battery when the temperature drops below freezing? Knowing the exact point at which your battery can freeze coul"
+title: 'What Temperature Does a Car Battery Freeze: Key Facts Revealed'
+description: Have you ever wondered what happens to your car battery when the temperature
+  drops below freezing? Knowing the exact point at which your battery can freeze coul
 pubDate: 2025-09-22
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-temperature-does-a-car-battery-freeze&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Ratings Explained
+heroImage: https://tse1.mm.bing.net/th?q=what-temperature-does-a-car-battery-freeze&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered what happens to your car battery when the temperature drops below freezing? Knowing the exact point at which your battery can freeze could save you from unexpected breakdowns on cold mornings.**

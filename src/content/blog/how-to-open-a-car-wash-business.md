@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Open a Car Wash Business: Ultimate Guide for Success"
 description: "Thinking about starting your own car wash business? You’re on the right track. A car wash can be a profitable and rewarding venture, but knowing where to begin "
 pubDate: 2026-03-21

@@ -12,7 +12,7 @@ from urllib.parse import urlparse
 
 import openpyxl
 
-XLSX_PATH = "pet_keyword_clusters_v5.xlsx"
+XLSX_PATH = "keyword_clusters.xlsx"
 BLOG_DIR = Path("src/content/blog")
 REDIRECTS_PATH = Path("public/_redirects")
 
@@ -30,7 +30,7 @@ def norm(text):
 def build_keyword_to_kept_url(sheet):
     mapping = {}
     for row in sheet.iter_rows(min_row=2, values_only=True):
-        _, _pet, _cluster, _topic_type, keyword, post_url = row
+        _, _category, _cluster, _topic_type, keyword, post_url = row
         if keyword and post_url:
             mapping[norm(keyword)] = post_url
     return mapping
@@ -46,7 +46,7 @@ def main():
     deleted = noindexed = 0
 
     for row in removed_sheet.iter_rows(min_row=2, values_only=True):
-        _, _keyword, post_url, reason, kept_instead = row
+        _, _keyword, post_url, reason, kept_instead, *_ = row
         if not post_url:
             continue
 

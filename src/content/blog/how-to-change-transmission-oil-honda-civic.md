@@ -1,10 +1,14 @@
 ---
-title: "How to Change Transmission Oil Honda Civic: Easy Step-by-Step Guide"
-description: "If you own a Honda Civic, keeping your transmission in top shape is key to smooth drives and long-lasting performance. Changing your transmission oil might soun"
+title: 'How to Change Transmission Oil Honda Civic: Easy Step-by-Step Guide'
+description: If you own a Honda Civic, keeping your transmission in top shape is key
+  to smooth drives and long-lasting performance. Changing your transmission oil might
+  soun
 pubDate: 2026-05-15
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-transmission-oil-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Transmission Fluid Checks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-transmission-oil-honda-civic&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a Honda Civic, keeping your transmission in top shape is key to smooth drives and long-lasting performance. Changing your transmission oil might sound tricky, but with the right steps, you can do it yourself and save money.**

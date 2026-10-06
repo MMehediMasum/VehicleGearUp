@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Engine Light Toyota Corolla: Quick & Easy Guide"
-description: "Is your Toyota Corolla’s engine light suddenly glowing on your dashboard? It can be worrying, but don’t panic. Knowing how to reset the engine light yourself ca"
+title: 'How to Reset Engine Light Toyota Corolla: Quick & Easy Guide'
+description: Is your Toyota Corolla’s engine light suddenly glowing on your dashboard?
+  It can be worrying, but don’t panic. Knowing how to reset the engine light yourself
+  ca
 pubDate: 2026-05-14
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-engine-light-toyota-corolla&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Resetting Check Engine Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-engine-light-toyota-corolla&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Is your Toyota Corolla’s engine light suddenly glowing on your dashboard? It can be worrying, but don’t panic.**

@@ -1,10 +1,14 @@
 ---
-title: "Where Can I Get My Car Bumper Fixed: Top Trusted Repair Shops"
-description: "Has your car bumper taken a hit and now looks damaged? You’re probably wondering, “Where can I get my car bumper fixed quickly and affordably?” Finding the righ"
+title: 'Where Can I Get My Car Bumper Fixed: Top Trusted Repair Shops'
+description: Has your car bumper taken a hit and now looks damaged? You’re probably
+  wondering, “Where can I get my car bumper fixed quickly and affordably?” Finding
+  the righ
 pubDate: 2026-04-23
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-get-my-car-bumper-fixed&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Mirrors and Trim Adhesives
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-get-my-car-bumper-fixed&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Has your car bumper taken a hit and now looks damaged? You’re probably wondering, “Where can I get my car bumper fixed quickly and affordably?” Finding the right place to repair your bumper can feel overwhelming, especially when you want quality work without breaking the bank.**

@@ -1,10 +1,13 @@
 ---
-title: "How to Clear Maintenance Light on Honda Civic: Easy Step-by-Step Guide"
-description: "Your Honda Civic’s maintenance light just came on, and now you’re wondering what to do next. You might feel a bit overwhelmed or unsure if you can fix it yourse"
+title: 'How to Clear Maintenance Light on Honda Civic: Easy Step-by-Step Guide'
+description: Your Honda Civic’s maintenance light just came on, and now you’re wondering
+  what to do next. You might feel a bit overwhelmed or unsure if you can fix it yourse
 pubDate: 2026-05-31
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clear-maintenance-light-on-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Maintenance Light Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clear-maintenance-light-on-honda-civic&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Your Honda Civic’s maintenance light just came on, and now you’re wondering what to do next. You might feel a bit overwhelmed or unsure if you can fix it yourself.**

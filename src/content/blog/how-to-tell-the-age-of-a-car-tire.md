@@ -1,10 +1,14 @@
 ---
-title: "How to Tell the Age of a Car Tire: Essential Tips Revealed"
-description: "Have you ever wondered how old your car tires really are? Knowing the age of your tires is more important than you might think. Old tires can be dangerous, even"
+title: 'How to Tell the Age of a Car Tire: Essential Tips Revealed'
+description: Have you ever wondered how old your car tires really are? Knowing the
+  age of your tires is more important than you might think. Old tires can be dangerous,
+  even
 pubDate: 2026-03-10
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-tell-the-age-of-a-car-tire&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tire Age Pressure and Size
+heroImage: https://tse1.mm.bing.net/th?q=how-to-tell-the-age-of-a-car-tire&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Have you ever wondered how old your car tires really are? Knowing the age of your tires is more important than you might think.**

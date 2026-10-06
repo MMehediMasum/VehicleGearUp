@@ -1,10 +1,13 @@
 ---
-title: "Best Replacement Tires for Tesla Model 3: Top Picks for Performance & Durability"
-description: "Choosing the best replacement tires for your Tesla Model 3 improves safety, performance, and comfort. Good tires match your driving style and weather conditions"
+title: 'Best Replacement Tires for Tesla Model 3: Top Picks for Performance & Durability'
+description: Choosing the best replacement tires for your Tesla Model 3 improves safety,
+  performance, and comfort. Good tires match your driving style and weather conditions
 pubDate: 2026-07-14
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-replacement-tires-for-tesla-model-3&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Tires and Accessories
+heroImage: https://tse1.mm.bing.net/th?q=best-replacement-tires-for-tesla-model-3&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best replacement tires for your Tesla Model 3 improves safety, performance, and comfort. Good tires match your driving style and weather conditions.**

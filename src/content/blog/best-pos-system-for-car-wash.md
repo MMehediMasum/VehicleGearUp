@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Pos System for Car Wash: Top Picks for Efficient Auto Cleaning"
 description: "Choosing the best POS system for a car wash helps manage sales and improve customer service. A good system saves time and tracks transactions easily. Car wash b"
 pubDate: 2026-07-01

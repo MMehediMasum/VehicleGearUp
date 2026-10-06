@@ -1,10 +1,14 @@
 ---
-title: "How to Check Tire Pressure Honda Civic: Easy Steps for Safety"
-description: "Keeping your Honda Civic’s tires properly inflated is one of the easiest ways to boost your car’s performance and safety. But do you know how to check your tire"
+title: 'How to Check Tire Pressure Honda Civic: Easy Steps for Safety'
+description: Keeping your Honda Civic’s tires properly inflated is one of the easiest
+  ways to boost your car’s performance and safety. But do you know how to check your
+  tire
 pubDate: 2026-03-06
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-check-tire-pressure-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Checking Tire Pressure
+heroImage: https://tse1.mm.bing.net/th?q=how-to-check-tire-pressure-honda-civic&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Keeping your Honda Civic’s tires properly inflated is one of the easiest ways to boost your car’s performance and safety. But do you know how to check your tire pressure the right way?**

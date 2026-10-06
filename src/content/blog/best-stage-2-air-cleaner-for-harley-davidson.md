@@ -1,10 +1,14 @@
 ---
-title: "Best Stage 2 Air Cleaner for Harley Davidson: Top High-Flow Picks"
-description: "Choosing the best Stage 2 air cleaner for your Harley Davidson boosts engine power and improves airflow. A high-quality air cleaner keeps your bike running smoo"
+title: 'Best Stage 2 Air Cleaner for Harley Davidson: Top High-Flow Picks'
+description: Choosing the best Stage 2 air cleaner for your Harley Davidson boosts
+  engine power and improves airflow. A high-quality air cleaner keeps your bike running
+  smoo
 pubDate: 2026-07-05
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-stage-2-air-cleaner-for-harley-davidson&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Ownership Questions
+heroImage: https://tse1.mm.bing.net/th?q=best-stage-2-air-cleaner-for-harley-davidson&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best Stage 2 air cleaner for your Harley Davidson boosts engine power and improves airflow. A high-quality air cleaner keeps your bike running smoothly and efficiently.**

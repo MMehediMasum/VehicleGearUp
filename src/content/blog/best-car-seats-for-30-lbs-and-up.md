@@ -1,10 +1,13 @@
 ---
-title: "Best Car Seats for 30 Lbs And Up: Top Safe Booster Choices"
-description: "Choosing the right car seat for children weighing 30 pounds and up ensures safety and comfort during every ride. Car seats must fit your child's size and growin"
+title: 'Best Car Seats for 30 Lbs And Up: Top Safe Booster Choices'
+description: Choosing the right car seat for children weighing 30 pounds and up ensures
+  safety and comfort during every ride. Car seats must fit your child's size and growin
 pubDate: 2026-07-21
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-seats-for-30-lbs-and-up&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Leather and Fabric Seat Care
+heroImage: https://tse1.mm.bing.net/th?q=best-car-seats-for-30-lbs-and-up&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the right car seat for children weighing 30 pounds and up ensures safety and comfort during every ride. Car seats must fit your child's size and growing needs.**

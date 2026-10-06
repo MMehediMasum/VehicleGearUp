@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Light on 2017 Mercedes Gle 350: Quick Guide"
-description: "Your 2017 Mercedes GLE 350 just showed the oil light, and now you’re wondering what to do next. You might feel a bit stuck or worried about costly repairs. The "
+title: 'How to Reset Oil Light on 2017 Mercedes Gle 350: Quick Guide'
+description: 'Your 2017 Mercedes GLE 350 just showed the oil light, and now you’re
+  wondering what to do next. You might feel a bit stuck or worried about costly repairs.
+  The '
 pubDate: 2026-05-01
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-light-on-2017-mercedes-gle-350&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Oil Light Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-light-on-2017-mercedes-gle-350&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Your 2017 Mercedes GLE 350 just showed the oil light, and now you’re wondering what to do next. You might feel a bit stuck or worried about costly repairs.**

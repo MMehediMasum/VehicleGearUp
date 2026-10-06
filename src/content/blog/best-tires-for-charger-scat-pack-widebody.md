@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Charger Scat Pack Widebody: Top Picks for Ultimate Performance"
-description: "Choosing the best tires for your Charger Scat Pack Widebody enhances performance and safety on every drive. The right tires improve grip, handling, and overall "
+title: 'Best Tires for Charger Scat Pack Widebody: Top Picks for Ultimate Performance'
+description: 'Choosing the best tires for your Charger Scat Pack Widebody enhances
+  performance and safety on every drive. The right tires improve grip, handling, and
+  overall '
 pubDate: 2026-07-11
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-charger-scat-pack-widebody&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ram and Dodge Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-charger-scat-pack-widebody&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your Charger Scat Pack Widebody enhances performance and safety on every drive. The right tires improve grip, handling, and overall ride quality.**

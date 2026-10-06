@@ -1,10 +1,14 @@
 ---
-title: "Can a Car Battery Go Bad After 1 Year? Shocking Truth Revealed"
-description: "Have you ever wondered if your car battery can go bad after just one year? You rely on your battery every day to start your car and keep things running smoothly"
+title: Can a Car Battery Go Bad After 1 Year? Shocking Truth Revealed
+description: Have you ever wondered if your car battery can go bad after just one
+  year? You rely on your battery every day to start your car and keep things running
+  smoothly
 pubDate: 2026-03-29
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-a-car-battery-go-bad-after-1-year&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Fixing Battery Drain
+heroImage: https://tse1.mm.bing.net/th?q=can-a-car-battery-go-bad-after-1-year&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if your car battery can go bad after just one year? You rely on your battery every day to start your car and keep things running smoothly.**

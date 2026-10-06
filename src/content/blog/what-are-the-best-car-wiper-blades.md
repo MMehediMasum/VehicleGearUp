@@ -1,10 +1,14 @@
 ---
-title: "What are the Best Car Wiper Blades: Top Picks for Clear Vision"
-description: "When was the last time you checked your car’s wiper blades? If your windshield gets streaky or visibility drops during rain, your wipers might be the problem. C"
+title: 'What are the Best Car Wiper Blades: Top Picks for Clear Vision'
+description: When was the last time you checked your car’s wiper blades? If your windshield
+  gets streaky or visibility drops during rain, your wipers might be the problem.
+  C
 pubDate: 2025-12-18
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-the-best-car-wiper-blades&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Best Wiper Blades
+heroImage: https://tse1.mm.bing.net/th?q=what-are-the-best-car-wiper-blades&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **When was the last time you checked your car’s wiper blades? If your windshield gets streaky or visibility drops during rain, your wipers might be the problem.**

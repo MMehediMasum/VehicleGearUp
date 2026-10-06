@@ -1,10 +1,14 @@
 ---
-title: "How to Use Self Wash Car Wash: Easy Steps for a Sparkling Shine"
-description: "Want to keep your car sparkling clean without spending a fortune or hours at the shop? Using a self wash car wash might be the perfect solution for you. It’s si"
+title: 'How to Use Self Wash Car Wash: Easy Steps for a Sparkling Shine'
+description: Want to keep your car sparkling clean without spending a fortune or hours
+  at the shop? Using a self wash car wash might be the perfect solution for you. It’s
+  si
 pubDate: 2026-03-17
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-use-self-wash-car-wash&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Using Car Wash Vacuums
+heroImage: https://tse1.mm.bing.net/th?q=how-to-use-self-wash-car-wash&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Want to keep your car sparkling clean without spending a fortune or hours at the shop? Using a self wash car wash might be the perfect solution for you.**

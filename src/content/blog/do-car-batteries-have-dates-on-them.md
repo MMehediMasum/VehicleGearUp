@@ -1,10 +1,14 @@
 ---
-title: "Do Car Batteries Have Dates on Them: Unlocking Vital Info"
-description: "Have you ever wondered if your car battery has a hidden date on it? Knowing this simple detail can save you from unexpected breakdowns and costly repairs. If yo"
+title: 'Do Car Batteries Have Dates on Them: Unlocking Vital Info'
+description: Have you ever wondered if your car battery has a hidden date on it? Knowing
+  this simple detail can save you from unexpected breakdowns and costly repairs. If
+  yo
 pubDate: 2026-03-13
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-car-batteries-have-dates-on-them&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Types and Value
+heroImage: https://tse1.mm.bing.net/th?q=do-car-batteries-have-dates-on-them&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if your car battery has a hidden date on it? Knowing this simple detail can save you from unexpected breakdowns and costly repairs.**

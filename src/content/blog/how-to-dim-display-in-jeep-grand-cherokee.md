@@ -1,10 +1,14 @@
 ---
-title: "How to Dim Display in Jeep Grand Cherokee: Easy Steps to Adjust Brightness"
-description: "If you drive a Jeep Grand Cherokee, you know how important it is to have a comfortable and safe driving experience. One simple way to improve both is by dimming"
+title: 'How to Dim Display in Jeep Grand Cherokee: Easy Steps to Adjust Brightness'
+description: If you drive a Jeep Grand Cherokee, you know how important it is to have
+  a comfortable and safe driving experience. One simple way to improve both is by
+  dimming
 pubDate: 2026-02-04
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-dim-display-in-jeep-grand-cherokee&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jeep Grand Cherokee Resets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-dim-display-in-jeep-grand-cherokee&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If you drive a Jeep Grand Cherokee, you know how important it is to have a comfortable and safe driving experience. One simple way to improve both is by dimming your display.**

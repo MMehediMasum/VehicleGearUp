@@ -1,10 +1,14 @@
 ---
-title: "How to Set Cruise Control Honda Civic: Easy Steps for Smooth Driving"
-description: "Setting cruise control in your Honda Civic can make your drives smoother and less tiring. Imagine keeping a steady speed without constantly pressing the gas ped"
+title: 'How to Set Cruise Control Honda Civic: Easy Steps for Smooth Driving'
+description: Setting cruise control in your Honda Civic can make your drives smoother
+  and less tiring. Imagine keeping a steady speed without constantly pressing the
+  gas ped
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-set-cruise-control-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Features and Fixes
+heroImage: https://tse1.mm.bing.net/th?q=how-to-set-cruise-control-honda-civic&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Setting cruise control in your Honda Civic can make your drives smoother and less tiring. Imagine keeping a steady speed without constantly pressing the gas pedal—sounds great, right?**

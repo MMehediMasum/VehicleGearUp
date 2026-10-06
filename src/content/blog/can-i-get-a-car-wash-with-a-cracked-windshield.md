@@ -1,10 +1,14 @@
 ---
-title: "Can I Get a Car Wash With a Cracked Windshield? Expert Tips!"
-description: "You’ve noticed a crack on your windshield, and now you’re wondering: can you still get a car wash without making things worse? It’s a common question that many "
+title: Can I Get a Car Wash With a Cracked Windshield? Expert Tips!
+description: 'You’ve noticed a crack on your windshield, and now you’re wondering:
+  can you still get a car wash without making things worse? It’s a common question
+  that many '
 pubDate: 2026-03-19
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-i-get-a-car-wash-with-a-cracked-windshield&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Winter Car Wash Questions
+heroImage: https://tse1.mm.bing.net/th?q=can-i-get-a-car-wash-with-a-cracked-windshield&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **You’ve noticed a crack on your windshield, and now you’re wondering: can you still get a car wash without making things worse? It’s a common question that many car owners face.**

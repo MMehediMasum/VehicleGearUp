@@ -1,10 +1,14 @@
 ---
-title: "Where to Sell My Old Car Battery: Top Places for Fast Cash"
-description: "Are you wondering, “Where can I sell my old car battery?” You’re not alone. Many people have old batteries sitting around, unsure of what to do with them. Selli"
+title: 'Where to Sell My Old Car Battery: Top Places for Fast Cash'
+description: Are you wondering, “Where can I sell my old car battery?” You’re not
+  alone. Many people have old batteries sitting around, unsure of what to do with
+  them. Selli
 pubDate: 2026-04-12
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-sell-my-old-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Selling Old Car Batteries
+heroImage: https://tse1.mm.bing.net/th?q=where-to-sell-my-old-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you wondering, “Where can I sell my old car battery?” You’re not alone. Many people have old batteries sitting around, unsure of what to do with them.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "When Do Kwik Trip Car Washes Go on Sale: Ultimate Savings Guide"
 description: "Are you wondering when Kwik Trip car washes go on sale? Everyone loves a clean car, but paying full price every time can add up fast. Imagine getting that fresh"
 pubDate: 2025-10-26

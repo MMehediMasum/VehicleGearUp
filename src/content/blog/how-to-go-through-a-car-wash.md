@@ -1,10 +1,14 @@
 ---
-title: "How to Go Through a Car Wash: Expert Tips for a Sparkling Clean"
-description: "Have you ever felt unsure about what to do when driving through a car wash? You’re not alone. Many people find the process confusing or stressful, worrying abou"
+title: 'How to Go Through a Car Wash: Expert Tips for a Sparkling Clean'
+description: Have you ever felt unsure about what to do when driving through a car
+  wash? You’re not alone. Many people find the process confusing or stressful, worrying
+  abou
 pubDate: 2026-03-17
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-go-through-a-car-wash&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Going Through Car Washes
+heroImage: https://tse1.mm.bing.net/th?q=how-to-go-through-a-car-wash&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever felt unsure about what to do when driving through a car wash? You’re not alone.**

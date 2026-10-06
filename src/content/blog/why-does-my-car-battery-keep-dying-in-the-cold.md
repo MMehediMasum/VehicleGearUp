@@ -1,10 +1,14 @@
 ---
-title: "Why Does My Car Battery Keep Dying in the Cold: Shocking Truths Revealed"
-description: "Have you ever been ready to drive, only to find your car won’t start on a cold morning? It’s frustrating when your battery dies again and again as the temperatu"
+title: 'Why Does My Car Battery Keep Dying in the Cold: Shocking Truths Revealed'
+description: Have you ever been ready to drive, only to find your car won’t start
+  on a cold morning? It’s frustrating when your battery dies again and again as the
+  temperatu
 pubDate: 2026-04-21
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-does-my-car-battery-keep-dying-in-the-cold&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Why Batteries Keep Dying
+heroImage: https://tse1.mm.bing.net/th?q=why-does-my-car-battery-keep-dying-in-the-cold&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever been ready to drive, only to find your car won’t start on a cold morning? It’s frustrating when your battery dies again and again as the temperature drops.**

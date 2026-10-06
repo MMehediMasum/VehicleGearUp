@@ -1,10 +1,14 @@
 ---
-title: "Best Motorcycle Rain Gear for Women: Top Waterproof Suits Reviewed"
-description: "Finding the best motorcycle rain gear for women keeps you dry and safe during wet rides. Quality rain suits protect against rain, wind, and cold on any trip. Ri"
+title: 'Best Motorcycle Rain Gear for Women: Top Waterproof Suits Reviewed'
+description: Finding the best motorcycle rain gear for women keeps you dry and safe
+  during wet rides. Quality rain suits protect against rain, wind, and cold on any
+  trip. Ri
 pubDate: 2026-01-14
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-motorcycle-rain-gear-for-women&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Helmets and Boots
+heroImage: https://tse1.mm.bing.net/th?q=best-motorcycle-rain-gear-for-women&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Finding the best motorcycle rain gear for women keeps you dry and safe during wet rides. Quality rain suits protect against rain, wind, and cold on any trip.**

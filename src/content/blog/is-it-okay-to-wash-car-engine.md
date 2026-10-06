@@ -1,10 +1,13 @@
 ---
-title: "Is It Okay to Wash Car Engine: Essential Tips You Must Know"
-description: "Have you ever wondered if it’s safe to wash your car engine? You might think cleaning under the hood is a good way to keep your car fresh and running smoothly. "
+title: 'Is It Okay to Wash Car Engine: Essential Tips You Must Know'
+description: 'Have you ever wondered if it’s safe to wash your car engine? You might
+  think cleaning under the hood is a good way to keep your car fresh and running smoothly. '
 pubDate: 2026-05-17
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-it-okay-to-wash-car-engine&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- How Car Engines Work
+heroImage: https://tse1.mm.bing.net/th?q=is-it-okay-to-wash-car-engine&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you ever wondered if it’s safe to wash your car engine? You might think cleaning under the hood is a good way to keep your car fresh and running smoothly.**

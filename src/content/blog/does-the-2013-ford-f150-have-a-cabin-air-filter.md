@@ -1,10 +1,14 @@
 ---
-title: "Does the 2013 Ford F150 Have a Cabin Air Filter? Essential Facts"
-description: "Are you wondering if your 2013 Ford F150 has a cabin air filter? It’s a simple question, but the answer can make a big difference in your driving comfort and he"
+title: Does the 2013 Ford F150 Have a Cabin Air Filter? Essential Facts
+description: Are you wondering if your 2013 Ford F150 has a cabin air filter? It’s
+  a simple question, but the answer can make a big difference in your driving comfort
+  and he
 pubDate: 2026-01-17
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-the-2013-ford-f150-have-a-cabin-air-filter&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Cabin Air Filters
+heroImage: https://tse1.mm.bing.net/th?q=does-the-2013-ford-f150-have-a-cabin-air-filter&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Are you wondering if your 2013 Ford F150 has a cabin air filter? It’s a simple question, but the answer can make a big difference in your driving comfort and health.**

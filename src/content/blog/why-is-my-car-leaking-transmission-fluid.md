@@ -1,10 +1,14 @@
 ---
-title: "Why is My Car Leaking Transmission Fluid: Top Causes Explained"
-description: "Is your car leaving a strange, reddish puddle underneath? If you’re wondering, \"Why is my car leaking transmission fluid?\" You’re not alone. This issue can be c"
+title: 'Why is My Car Leaking Transmission Fluid: Top Causes Explained'
+description: Is your car leaving a strange, reddish puddle underneath? If you’re wondering,
+  "Why is my car leaking transmission fluid?" You’re not alone. This issue can be
+  c
 pubDate: 2026-04-27
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-is-my-car-leaking-transmission-fluid&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Adding Transmission Fluid
+heroImage: https://tse1.mm.bing.net/th?q=why-is-my-car-leaking-transmission-fluid&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your car leaving a strange, reddish puddle underneath? If you’re wondering, "Why is my car leaking transmission fluid?"**

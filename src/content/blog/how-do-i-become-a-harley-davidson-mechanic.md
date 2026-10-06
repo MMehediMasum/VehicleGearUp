@@ -1,10 +1,14 @@
 ---
-title: "How Do I Become a Harley Davidson Mechanic: Ultimate Career Guide"
-description: "Are you passionate about Harley Davidson motorcycles and want to turn that passion into a rewarding career? Becoming a Harley Davidson mechanic could be the per"
+title: 'How Do I Become a Harley Davidson Mechanic: Ultimate Career Guide'
+description: Are you passionate about Harley Davidson motorcycles and want to turn
+  that passion into a rewarding career? Becoming a Harley Davidson mechanic could
+  be the per
 pubDate: 2025-09-12
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-i-become-a-harley-davidson-mechanic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Ownership Questions
+heroImage: https://tse1.mm.bing.net/th?q=how-do-i-become-a-harley-davidson-mechanic&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you passionate about Harley Davidson motorcycles and want to turn that passion into a rewarding career? Becoming a Harley Davidson mechanic could be the perfect path for you.**

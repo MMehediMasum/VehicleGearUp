@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Convertible Car Seat for Air Travel: Top Picks for Comfort and Safety"
 description: "Finding the best convertible car seat for air travel helps keep your child safe and comfortable on the plane. Choosing a seat that fits airplane rules and is ea"
 pubDate: 2026-07-28

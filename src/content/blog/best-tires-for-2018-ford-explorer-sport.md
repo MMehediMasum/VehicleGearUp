@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Ford Explorer Sport: Top Picks for Superior Performance"
-description: "Choosing the best tires for your 2018 Ford Explorer Sport ensures safety and smooth driving. Tires must fit perfectly with your wheels and vehicle specs. The 20"
+title: 'Best Tires for Ford Explorer Sport: Top Picks for Superior Performance'
+description: Choosing the best tires for your 2018 Ford Explorer Sport ensures safety
+  and smooth driving. Tires must fit perfectly with your wheels and vehicle specs.
+  The 20
 pubDate: 2026-01-07
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-2018-ford-explorer-sport&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Sport Model Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-2018-ford-explorer-sport&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your 2018 Ford Explorer Sport ensures safety and smooth driving. Tires must fit perfectly with your wheels and vehicle specs.**

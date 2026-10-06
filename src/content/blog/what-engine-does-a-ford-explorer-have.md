@@ -1,10 +1,14 @@
 ---
-title: "What Engine Does a Ford Explorer Have: Ultimate Power Guide"
-description: "Are you curious about what powers your Ford Explorer under the hood? Knowing the engine your vehicle has can help you understand its performance, fuel efficienc"
+title: 'What Engine Does a Ford Explorer Have: Ultimate Power Guide'
+description: Are you curious about what powers your Ford Explorer under the hood?
+  Knowing the engine your vehicle has can help you understand its performance, fuel
+  efficienc
 pubDate: 2026-05-04
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-engine-does-a-ford-explorer-have&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Third Row and Mileage
+heroImage: https://tse1.mm.bing.net/th?q=what-engine-does-a-ford-explorer-have&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you curious about what powers your Ford Explorer under the hood? Knowing the engine your vehicle has can help you understand its performance, fuel efficiency, and overall driving experience.**

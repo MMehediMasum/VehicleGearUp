@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for 2019 Subaru Crosstrek: Top Durable & Reliable Picks"
-description: "Choosing the best tires for your 2019 Subaru Crosstrek improves safety and performance. Tires affect handling, fuel efficiency, and ride comfort. The 2019 Subar"
+title: 'Best Tires for 2019 Subaru Crosstrek: Top Durable & Reliable Picks'
+description: Choosing the best tires for your 2019 Subaru Crosstrek improves safety
+  and performance. Tires affect handling, fuel efficiency, and ride comfort. The 2019
+  Subar
 pubDate: 2025-12-31
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-2019-subaru-crosstrek&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Subaru and Mazda Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-2019-subaru-crosstrek&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your 2019 Subaru Crosstrek improves safety and performance. Tires affect handling, fuel efficiency, and ride comfort.**

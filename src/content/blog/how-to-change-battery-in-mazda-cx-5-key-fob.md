@@ -1,10 +1,14 @@
 ---
-title: "How to Change Battery in Mazda Cx 5 Key Fob: Quick & Easy Guide"
-description: "Is your Mazda CX-5 key fob acting up or not responding like it used to? It might be time to change the battery. Knowing how to replace your key fob battery your"
+title: 'How to Change Battery in Mazda Cx 5 Key Fob: Quick & Easy Guide'
+description: Is your Mazda CX-5 key fob acting up or not responding like it used to?
+  It might be time to change the battery. Knowing how to replace your key fob battery
+  your
 pubDate: 2025-10-10
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-battery-in-mazda-cx-5-key-fob&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Key Fob Battery Replacement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-battery-in-mazda-cx-5-key-fob&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **Is your Mazda CX-5 key fob acting up or not responding like it used to? It might be time to change the battery.**

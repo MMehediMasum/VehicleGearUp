@@ -1,10 +1,14 @@
 ---
-title: "Best Locking Hitch Pin for 2.5 Receiver: Top Secure Picks Reviewed"
-description: "Finding the best locking hitch pin for a 2.5 receiver ensures your trailer stays secure during travel. Choosing the right pin protects your equipment from theft"
+title: 'Best Locking Hitch Pin for 2.5 Receiver: Top Secure Picks Reviewed'
+description: Finding the best locking hitch pin for a 2.5 receiver ensures your trailer
+  stays secure during travel. Choosing the right pin protects your equipment from
+  theft
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Towing & Hauling"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-locking-hitch-pin-for-25-receiver&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hitch Bike Racks
+heroImage: https://tse1.mm.bing.net/th?q=best-locking-hitch-pin-for-25-receiver&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Finding the best locking hitch pin for a 2.5 receiver ensures your trailer stays secure during travel. Choosing the right pin protects your equipment from theft and damage.**

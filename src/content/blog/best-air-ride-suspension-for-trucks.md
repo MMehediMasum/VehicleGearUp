@@ -1,10 +1,14 @@
 ---
-title: "Best Air Ride Suspension for Trucks: Top Kits for Load Leveling & Towing"
-description: "Choosing the best air ride suspension for trucks improves comfort, control, and load handling. Quality kits offer reliable support for towing, lowering, and loa"
+title: 'Best Air Ride Suspension for Trucks: Top Kits for Load Leveling & Towing'
+description: Choosing the best air ride suspension for trucks improves comfort, control,
+  and load handling. Quality kits offer reliable support for towing, lowering, and
+  loa
 pubDate: 2025-09-21
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-air-ride-suspension-for-trucks&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Truck Suspension Upgrades
+heroImage: https://tse1.mm.bing.net/th?q=best-air-ride-suspension-for-trucks&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Choosing the best air ride suspension for trucks improves comfort, control, and load handling. Quality kits offer reliable support for towing, lowering, and load leveling.**

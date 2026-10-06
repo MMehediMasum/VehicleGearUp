@@ -1,10 +1,14 @@
 ---
-title: "Best Fuel Additive for Harley Davidson to Boost Performance and Protection"
-description: "Choosing the best fuel additive for your Harley Davidson can improve engine performance and fuel efficiency. The right product protects your bike’s fuel system "
+title: Best Fuel Additive for Harley Davidson to Boost Performance and Protection
+description: 'Choosing the best fuel additive for your Harley Davidson can improve
+  engine performance and fuel efficiency. The right product protects your bike’s fuel
+  system '
 pubDate: 2025-11-21
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-fuel-additive-for-harley-davidson&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Fuel and Exhaust
+heroImage: https://tse1.mm.bing.net/th?q=best-fuel-additive-for-harley-davidson&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best fuel additive for your Harley Davidson can improve engine performance and fuel efficiency. The right product protects your bike’s fuel system and keeps it running smoothly.**

@@ -1,10 +1,14 @@
 ---
-title: "How Often Should Car Tires Be Replaced: Essential Guide to Safety"
-description: "Your car’s tires are the only part that touches the road, so keeping them in good shape is crucial for your safety. But how often should you replace them? You m"
+title: 'How Often Should Car Tires Be Replaced: Essential Guide to Safety'
+description: Your car’s tires are the only part that touches the road, so keeping
+  them in good shape is crucial for your safety. But how often should you replace
+  them? You m
 pubDate: 2025-11-16
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-often-should-car-tires-be-replaced&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tire Construction and Origin
+heroImage: https://tse1.mm.bing.net/th?q=how-often-should-car-tires-be-replaced&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Your car’s tires are the only part that touches the road, so keeping them in good shape is crucial for your safety. But how often should you replace them?**

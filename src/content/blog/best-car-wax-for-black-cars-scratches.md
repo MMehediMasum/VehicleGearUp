@@ -1,10 +1,14 @@
 ---
-title: "Best Car Wax for Black Cars Scratches: Top Picks for Ultimate Shine"
-description: "Black cars show scratches more clearly than other colors. Using the right car wax helps hide and protect these marks effectively. Maintaining a black car’s shin"
+title: 'Best Car Wax for Black Cars Scratches: Top Picks for Ultimate Shine'
+description: Black cars show scratches more clearly than other colors. Using the right
+  car wax helps hide and protect these marks effectively. Maintaining a black car’s
+  shin
 pubDate: 2026-07-07
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-wax-for-black-cars-scratches&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wax by Paint Color
+heroImage: https://tse1.mm.bing.net/th?q=best-car-wax-for-black-cars-scratches&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Black cars show scratches more clearly than other colors. Using the right car wax helps hide and protect these marks effectively.**

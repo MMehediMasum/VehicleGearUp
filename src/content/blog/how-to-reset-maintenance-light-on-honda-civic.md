@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Maintenance Light on Honda Civic: Quick & Easy Guide"
-description: "Is your Honda Civic’s maintenance light on and you’re not sure how to turn it off? That little light can be annoying, but it’s there to remind you to take care "
+title: 'How to Reset Maintenance Light on Honda Civic: Quick & Easy Guide'
+description: 'Is your Honda Civic’s maintenance light on and you’re not sure how to
+  turn it off? That little light can be annoying, but it’s there to remind you to
+  take care '
 pubDate: 2026-05-25
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-maintenance-light-on-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Maintenance Light Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-maintenance-light-on-honda-civic&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your Honda Civic’s maintenance light on and you’re not sure how to turn it off? That little light can be annoying, but it’s there to remind you to take care of your car.**

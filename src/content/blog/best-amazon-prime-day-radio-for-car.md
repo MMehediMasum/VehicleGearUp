@@ -1,10 +1,13 @@
 ---
-title: "Best Amazon Prime Day Radio for Car: Top Picks with Bluetooth & Touchscreen"
-description: "Finding the best Amazon Prime Day radio for your car can improve your driving experience. Radios with Bluetooth, touchscreen, and Apple CarPlay add convenience "
+title: 'Best Amazon Prime Day Radio for Car: Top Picks with Bluetooth & Touchscreen'
+description: 'Finding the best Amazon Prime Day radio for your car can improve your
+  driving experience. Radios with Bluetooth, touchscreen, and Apple CarPlay add convenience '
 pubDate: 2026-01-03
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-amazon-prime-day-radio-for-car&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Entertainment Systems
+heroImage: https://tse1.mm.bing.net/th?q=best-amazon-prime-day-radio-for-car&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Finding the best Amazon Prime Day radio for your car can improve your driving experience. Radios with Bluetooth, touchscreen, and Apple CarPlay add convenience and fun.**

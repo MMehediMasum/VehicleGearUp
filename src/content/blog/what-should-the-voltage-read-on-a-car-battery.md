@@ -1,10 +1,14 @@
 ---
-title: "What Should the Voltage Read on a Car Battery: Essential Guide"
-description: "Have you ever wondered if your car battery is really healthy? Knowing the right voltage your battery should read can save you from unexpected breakdowns and cos"
+title: 'What Should the Voltage Read on a Car Battery: Essential Guide'
+description: Have you ever wondered if your car battery is really healthy? Knowing
+  the right voltage your battery should read can save you from unexpected breakdowns
+  and cos
 pubDate: 2026-04-02
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-should-the-voltage-read-on-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Normal Battery Voltage
+heroImage: https://tse1.mm.bing.net/th?q=what-should-the-voltage-read-on-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if your car battery is really healthy? Knowing the right voltage your battery should read can save you from unexpected breakdowns and costly repairs.**

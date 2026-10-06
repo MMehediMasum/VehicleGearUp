@@ -1,10 +1,14 @@
 ---
-title: "What Does a Coil Pack on a Car Do: Essential Function Explained"
-description: "Have you ever wondered what keeps your car’s engine running smoothly every time you turn the key? One small but powerful part that plays a big role is the coil "
+title: 'What Does a Coil Pack on a Car Do: Essential Function Explained'
+description: 'Have you ever wondered what keeps your car’s engine running smoothly
+  every time you turn the key? One small but powerful part that plays a big role is
+  the coil '
 pubDate: 2026-05-12
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-does-a-coil-pack-on-a-car-do&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Coil Packs and Ignition
+heroImage: https://tse1.mm.bing.net/th?q=what-does-a-coil-pack-on-a-car-do&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you ever wondered what keeps your car’s engine running smoothly every time you turn the key? One small but powerful part that plays a big role is the coil pack.**

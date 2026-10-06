@@ -1,10 +1,14 @@
 ---
-title: "Best Bike Tires for Burning Man: Ultimate LED Safety and Style Guide"
-description: "Choosing the best bike tires for Burning Man can make your ride safer and more fun. The right tires handle sand, dust, and rough terrain with ease. Burning Man’"
+title: 'Best Bike Tires for Burning Man: Ultimate LED Safety and Style Guide'
+description: Choosing the best bike tires for Burning Man can make your ride safer
+  and more fun. The right tires handle sand, dust, and rough terrain with ease. Burning
+  Man’
 pubDate: 2025-12-21
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-bike-tires-for-burning-man&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Bike Tires and Pumps
+heroImage: https://tse1.mm.bing.net/th?q=best-bike-tires-for-burning-man&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best bike tires for Burning Man can make your ride safer and more fun. The right tires handle sand, dust, and rough terrain with ease.**

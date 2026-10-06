@@ -1,10 +1,14 @@
 ---
-title: "How to Jump Start a Chevy Equinox: Quick & Easy Steps"
-description: "Have you ever found yourself staring at your Chevy Equinox, only to realize the battery is dead? It’s frustrating, right? But don’t worry—jump starting your Equ"
+title: 'How to Jump Start a Chevy Equinox: Quick & Easy Steps'
+description: Have you ever found yourself staring at your Chevy Equinox, only to realize
+  the battery is dead? It’s frustrating, right? But don’t worry—jump starting your
+  Equ
 pubDate: 2025-12-05
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-jump-start-a-chevy-equinox&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jump Starting by Model
+heroImage: https://tse1.mm.bing.net/th?q=how-to-jump-start-a-chevy-equinox&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever found yourself staring at your Chevy Equinox, only to realize the battery is dead? It’s frustrating, right?**

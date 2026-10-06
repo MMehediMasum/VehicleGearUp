@@ -1,10 +1,14 @@
 ---
-title: "Can the Ford Explorer St Burn Regular Gas? Essential Facts Revealed"
-description: "Are you wondering if your Ford Explorer ST can run on regular gas without any issues? Choosing the right fuel can affect your vehicle’s performance, fuel effici"
+title: Can the Ford Explorer St Burn Regular Gas? Essential Facts Revealed
+description: Are you wondering if your Ford Explorer ST can run on regular gas without
+  any issues? Choosing the right fuel can affect your vehicle’s performance, fuel
+  effici
 pubDate: 2026-02-18
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-the-ford-explorer-st-burn-regular-gas&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Model Questions
+heroImage: https://tse1.mm.bing.net/th?q=can-the-ford-explorer-st-burn-regular-gas&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you wondering if your Ford Explorer ST can run on regular gas without any issues? Choosing the right fuel can affect your vehicle’s performance, fuel efficiency, and even its long-term health.**

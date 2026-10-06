@@ -1,10 +1,14 @@
 ---
-title: "How to Put Tesla in Neutral for Car Wash: Quick & Easy Guide"
-description: "If you own a Tesla, you know it’s a smart and high-tech car. But when it comes to simple tasks like putting it in neutral for a car wash, things can feel confus"
+title: 'How to Put Tesla in Neutral for Car Wash: Quick & Easy Guide'
+description: If you own a Tesla, you know it’s a smart and high-tech car. But when
+  it comes to simple tasks like putting it in neutral for a car wash, things can feel
+  confus
 pubDate: 2025-09-08
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-put-tesla-in-neutral-for-car-wash&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Washing Electric Cars
+heroImage: https://tse1.mm.bing.net/th?q=how-to-put-tesla-in-neutral-for-car-wash&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **If you own a Tesla, you know it’s a smart and high-tech car. But when it comes to simple tasks like putting it in neutral for a car wash, things can feel confusing.**

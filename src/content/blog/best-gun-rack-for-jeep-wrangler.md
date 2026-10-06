@@ -1,10 +1,14 @@
 ---
-title: "Best Gun Rack for Jeep Wrangler: Secure, Adjustable, and Easy-to-Install Options"
-description: "Finding the best gun rack for your Jeep Wrangler helps keep your firearms safe and easy to reach. Jeep owners want a sturdy, simple, and reliable gun rack that "
+title: 'Best Gun Rack for Jeep Wrangler: Secure, Adjustable, and Easy-to-Install Options'
+description: 'Finding the best gun rack for your Jeep Wrangler helps keep your firearms
+  safe and easy to reach. Jeep owners want a sturdy, simple, and reliable gun rack
+  that '
 pubDate: 2026-06-24
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-gun-rack-for-jeep-wrangler&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Roof Racks and Tents
+heroImage: https://tse1.mm.bing.net/th?q=best-gun-rack-for-jeep-wrangler&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Finding the best gun rack for your Jeep Wrangler helps keep your firearms safe and easy to reach. Jeep owners want a sturdy, simple, and reliable gun rack that fits their vehicle perfectly.**

@@ -1,10 +1,14 @@
 ---
-title: "Will My Car Battery Die at the Drive in? Tips to Stay Powered"
-description: "Have you ever worried about your car battery dying right in the middle of a drive-in movie? You’re not alone. It’s a common fear that can turn a fun night into "
+title: Will My Car Battery Die at the Drive in? Tips to Stay Powered
+description: 'Have you ever worried about your car battery dying right in the middle
+  of a drive-in movie? You’re not alone. It’s a common fear that can turn a fun night
+  into '
 pubDate: 2026-04-03
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=will-my-car-battery-die-at-the-drive-in&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Heat and Cold Battery Failure
+heroImage: https://tse1.mm.bing.net/th?q=will-my-car-battery-die-at-the-drive-in&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever worried about your car battery dying right in the middle of a drive-in movie? You’re not alone.**

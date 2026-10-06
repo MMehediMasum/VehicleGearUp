@@ -1,10 +1,14 @@
 ---
-title: "How to Turn off Tow Haul Light Ford F150: Quick Easy Fix"
-description: "If you drive a Ford F150, you’ve probably noticed the Tow Haul light glowing on your dashboard. While it’s helpful for towing heavy loads, sometimes that light "
+title: 'How to Turn off Tow Haul Light Ford F150: Quick Easy Fix'
+description: 'If you drive a Ford F150, you’ve probably noticed the Tow Haul light
+  glowing on your dashboard. While it’s helpful for towing heavy loads, sometimes
+  that light '
 pubDate: 2026-05-30
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-tow-haul-light-ford-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford F150 Towing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-tow-haul-light-ford-f150&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **If you drive a Ford F150, you’ve probably noticed the Tow Haul light glowing on your dashboard. While it’s helpful for towing heavy loads, sometimes that light can be distracting or stay on longer than you want.**

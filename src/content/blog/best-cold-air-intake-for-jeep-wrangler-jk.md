@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for Jeep Wrangler JK to Boost Performance Fast"
-description: "Choosing the best cold air intake can improve your Jeep Wrangler JK’s engine power and efficiency. This guide covers top cold air intake kits for various Jeep W"
+title: Best Cold Air Intake for Jeep Wrangler JK to Boost Performance Fast
+description: Choosing the best cold air intake can improve your Jeep Wrangler JK’s
+  engine power and efficiency. This guide covers top cold air intake kits for various
+  Jeep W
 pubDate: 2026-06-09
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-jeep-wrangler-jk&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Engine Specific Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-jeep-wrangler-jk&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best cold air intake can improve your Jeep Wrangler JK’s engine power and efficiency. This guide covers top cold air intake kits for various Jeep Wrangler JK models.**

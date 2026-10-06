@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Scat Pack Challenger: Top Picks for Ultimate Performance"
-description: "Choosing the best tires for your Scat Pack Challenger improves performance and safety. The right tires provide better grip and handling on the road. The Scat Pa"
+title: 'Best Tires for Scat Pack Challenger: Top Picks for Ultimate Performance'
+description: Choosing the best tires for your Scat Pack Challenger improves performance
+  and safety. The right tires provide better grip and handling on the road. The Scat
+  Pa
 pubDate: 2025-12-30
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-scat-pack-challenger&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ram and Dodge Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-scat-pack-challenger&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your Scat Pack Challenger improves performance and safety. The right tires provide better grip and handling on the road.**

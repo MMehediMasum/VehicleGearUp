@@ -1,10 +1,14 @@
 ---
-title: "What is the Normal Life of a Car Battery: Ultimate Guide to Longevity"
-description: "Have you ever wondered how long your car battery should really last? Knowing the normal life of a car battery can save you from unexpected breakdowns and costly"
+title: 'What is the Normal Life of a Car Battery: Ultimate Guide to Longevity'
+description: Have you ever wondered how long your car battery should really last?
+  Knowing the normal life of a car battery can save you from unexpected breakdowns
+  and costly
 pubDate: 2026-04-14
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-normal-life-of-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Ratings Explained
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-normal-life-of-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered how long your car battery should really last? Knowing the normal life of a car battery can save you from unexpected breakdowns and costly replacements.**

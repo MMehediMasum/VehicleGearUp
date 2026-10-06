@@ -1,10 +1,14 @@
 ---
-title: "How Reliable is the Hyundai Santa Fe: Unveiling the Truth"
-description: "When you’re choosing a new SUV, reliability is probably at the top of your list. You want a vehicle that won’t leave you stranded or drain your wallet with cons"
+title: 'How Reliable is the Hyundai Santa Fe: Unveiling the Truth'
+description: When you’re choosing a new SUV, reliability is probably at the top of
+  your list. You want a vehicle that won’t leave you stranded or drain your wallet
+  with cons
 pubDate: 2026-01-22
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-reliable-is-the-hyundai-santa-fe&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Turning On 4WD
+heroImage: https://tse1.mm.bing.net/th?q=how-reliable-is-the-hyundai-santa-fe&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **When you’re choosing a new SUV, reliability is probably at the top of your list. You want a vehicle that won’t leave you stranded or drain your wallet with constant repairs.**

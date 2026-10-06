@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Honda Civic Tire Pressure Light: Quick & Easy Guide"
-description: "If your Honda Civic’s tire pressure light just came on, you might feel a bit stuck. You’re not alone—this little warning can be confusing and sometimes frustrat"
+title: 'How to Reset Honda Civic Tire Pressure Light: Quick & Easy Guide'
+description: If your Honda Civic’s tire pressure light just came on, you might feel
+  a bit stuck. You’re not alone—this little warning can be confusing and sometimes
+  frustrat
 pubDate: 2025-11-05
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-honda-civic-tire-pressure-light&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Tire Pressure Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-honda-civic-tire-pressure-light&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **If your Honda Civic’s tire pressure light just came on, you might feel a bit stuck. You’re not alone—this little warning can be confusing and sometimes frustrating.**

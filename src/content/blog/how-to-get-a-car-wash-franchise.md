@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Get a Car Wash Franchise: Ultimate Guide to Success"
 description: "Are you ready to own a business that keeps things shining bright every day? Getting a car wash franchise can be your ticket to steady income and a rewarding ven"
 pubDate: 2025-10-15

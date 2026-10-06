@@ -1,10 +1,14 @@
 ---
-title: "How to Get Bugs off of Car Bumper: Easy, Quick Cleaning Tips"
-description: "Have you ever noticed how stubborn bugs stick to your car bumper after a long drive? These little spots aren’t just annoying—they can damage your paint if left "
+title: 'How to Get Bugs off of Car Bumper: Easy, Quick Cleaning Tips'
+description: 'Have you ever noticed how stubborn bugs stick to your car bumper after
+  a long drive? These little spots aren’t just annoying—they can damage your paint
+  if left '
 pubDate: 2025-08-29
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-get-bugs-off-of-car-bumper&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Mirrors and Trim Adhesives
+heroImage: https://tse1.mm.bing.net/th?q=how-to-get-bugs-off-of-car-bumper&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Have you ever noticed how stubborn bugs stick to your car bumper after a long drive? These little spots aren’t just annoying—they can damage your paint if left too long.**

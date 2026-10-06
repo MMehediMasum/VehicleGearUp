@@ -1,10 +1,14 @@
 ---
-title: "How to Change Display on Hyundai Tucson: Easy Steps for Instant Upgrade"
-description: "Are you looking to change the display on your Hyundai Tucson but don’t know where to start? You’re in the right place. Whether you want to update the screen set"
+title: 'How to Change Display on Hyundai Tucson: Easy Steps for Instant Upgrade'
+description: Are you looking to change the display on your Hyundai Tucson but don’t
+  know where to start? You’re in the right place. Whether you want to update the screen
+  set
 pubDate: 2025-12-05
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-display-on-hyundai-tucson&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Warning Light Fixes
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-display-on-hyundai-tucson&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are you looking to change the display on your Hyundai Tucson but don’t know where to start? You’re in the right place.**

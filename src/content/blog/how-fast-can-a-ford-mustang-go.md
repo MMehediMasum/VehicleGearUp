@@ -1,10 +1,14 @@
 ---
-title: "How Fast Can a Ford Mustang Go: Unleashing Its Top Speed Power"
-description: "Are you curious about how fast a Ford Mustang can really go? Whether you’re a car enthusiast or just someone who loves powerful rides, knowing the Mustang’s top"
+title: 'How Fast Can a Ford Mustang Go: Unleashing Its Top Speed Power'
+description: Are you curious about how fast a Ford Mustang can really go? Whether
+  you’re a car enthusiast or just someone who loves powerful rides, knowing the Mustang’s
+  top
 pubDate: 2026-02-07
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-fast-can-a-ford-mustang-go&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Speed and Drive
+heroImage: https://tse1.mm.bing.net/th?q=how-fast-can-a-ford-mustang-go&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you curious about how fast a Ford Mustang can really go? Whether you’re a car enthusiast or just someone who loves powerful rides, knowing the Mustang’s top speed can spark your excitement.**

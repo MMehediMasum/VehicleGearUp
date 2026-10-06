@@ -1,10 +1,14 @@
 ---
-title: "Best Air Filter for 6.7 Powerstroke to Boost Performance and Durability"
-description: "Choosing the best air filter for your 6.7 Powerstroke is crucial for engine health and performance. The right filter keeps dirt out and helps your truck run smo"
+title: Best Air Filter for 6.7 Powerstroke to Boost Performance and Durability
+description: Choosing the best air filter for your 6.7 Powerstroke is crucial for
+  engine health and performance. The right filter keeps dirt out and helps your truck
+  run smo
 pubDate: 2026-06-26
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-air-filter-for-67-powerstroke&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Cabin Air Filters
+heroImage: https://tse1.mm.bing.net/th?q=best-air-filter-for-67-powerstroke&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Choosing the best air filter for your 6.7 Powerstroke is crucial for engine health and performance. The right filter keeps dirt out and helps your truck run smoothly.**

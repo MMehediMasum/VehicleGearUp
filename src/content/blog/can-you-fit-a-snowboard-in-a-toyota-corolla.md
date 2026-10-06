@@ -1,10 +1,14 @@
 ---
-title: "Can You Fit a Snowboard in a Toyota Corolla? Ultimate Guide"
-description: "Are you wondering if your Toyota Corolla can handle fitting a snowboard for your next adventure? You’re not alone. Many snowboarders face the same question when"
+title: Can You Fit a Snowboard in a Toyota Corolla? Ultimate Guide
+description: Are you wondering if your Toyota Corolla can handle fitting a snowboard
+  for your next adventure? You’re not alone. Many snowboarders face the same question
+  when
 pubDate: 2026-02-11
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-fit-a-snowboard-in-a-toyota-corolla&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Everyday Car Questions
+heroImage: https://tse1.mm.bing.net/th?q=can-you-fit-a-snowboard-in-a-toyota-corolla&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you wondering if your Toyota Corolla can handle fitting a snowboard for your next adventure? You’re not alone.**

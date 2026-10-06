@@ -1,10 +1,14 @@
 ---
-title: "How to Pull Dent Out of Car Bumper: Easy DIY Fixes That Work"
-description: "Got a dent in your car bumper that’s driving you crazy? You don’t have to rush to the repair shop or spend a fortune. Imagine fixing that dent yourself, saving "
+title: 'How to Pull Dent Out of Car Bumper: Easy DIY Fixes That Work'
+description: 'Got a dent in your car bumper that’s driving you crazy? You don’t have
+  to rush to the repair shop or spend a fortune. Imagine fixing that dent yourself,
+  saving '
 pubDate: 2026-03-20
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-pull-dent-out-of-car-bumper&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Bumper Dent and Scratch Repair
+heroImage: https://tse1.mm.bing.net/th?q=how-to-pull-dent-out-of-car-bumper&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Got a dent in your car bumper that’s driving you crazy? You don’t have to rush to the repair shop or spend a fortune.**

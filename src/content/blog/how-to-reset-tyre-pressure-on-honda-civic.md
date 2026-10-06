@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Tyre Pressure on Honda Civic: Quick & Easy Guide"
-description: "If you own a Honda Civic, knowing how to reset your tyre pressure is a skill that can save you time and keep your car running smoothly. Incorrect tyre pressure "
+title: 'How to Reset Tyre Pressure on Honda Civic: Quick & Easy Guide'
+description: 'If you own a Honda Civic, knowing how to reset your tyre pressure is
+  a skill that can save you time and keep your car running smoothly. Incorrect tyre
+  pressure '
 pubDate: 2026-01-25
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-tyre-pressure-on-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tire Age Pressure and Size
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-tyre-pressure-on-honda-civic&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **If you own a Honda Civic, knowing how to reset your tyre pressure is a skill that can save you time and keep your car running smoothly. Incorrect tyre pressure affects your safety, fuel efficiency, and tyre life.**

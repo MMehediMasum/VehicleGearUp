@@ -1,10 +1,14 @@
 ---
-title: "What Oil Does a Ford Focus Take: Ultimate Guide for Peak Performance"
-description: "If you own a Ford Focus, you know how important it is to keep your car running smoothly. One of the easiest ways to do that is by using the right oil. But with "
+title: 'What Oil Does a Ford Focus Take: Ultimate Guide for Peak Performance'
+description: 'If you own a Ford Focus, you know how important it is to keep your car
+  running smoothly. One of the easiest ways to do that is by using the right oil.
+  But with '
 pubDate: 2026-05-08
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-oil-does-a-ford-focus-take&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- What Oil to Use
+heroImage: https://tse1.mm.bing.net/th?q=what-oil-does-a-ford-focus-take&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a Ford Focus, you know how important it is to keep your car running smoothly. One of the easiest ways to do that is by using the right oil.**

@@ -1,10 +1,14 @@
 ---
-title: "What Volt Should a Car Battery Read: Essential Guide for Accuracy"
-description: "Are you unsure if your car battery is healthy or about to fail? Knowing the right voltage your car battery should read can save you from unexpected breakdowns a"
+title: 'What Volt Should a Car Battery Read: Essential Guide for Accuracy'
+description: Are you unsure if your car battery is healthy or about to fail? Knowing
+  the right voltage your car battery should read can save you from unexpected breakdowns
+  a
 pubDate: 2026-04-04
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-volt-should-a-car-battery-read&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Ratings Explained
+heroImage: https://tse1.mm.bing.net/th?q=what-volt-should-a-car-battery-read&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you unsure if your car battery is healthy or about to fail? Knowing the right voltage your car battery should read can save you from unexpected breakdowns and costly repairs.**

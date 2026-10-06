@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for 2012 Honda Civic: Top All-Season Picks Reviewed"
-description: "Choosing the best tires for a 2012 Honda Civic improves safety and ride comfort. The right tires fit your driving needs and weather conditions perfectly. The 20"
+title: 'Best Tires for 2012 Honda Civic: Top All-Season Picks Reviewed'
+description: Choosing the best tires for a 2012 Honda Civic improves safety and ride
+  comfort. The right tires fit your driving needs and weather conditions perfectly.
+  The 20
 pubDate: 2025-12-25
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-2012-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-2012-honda-civic&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for a 2012 Honda Civic improves safety and ride comfort. The right tires fit your driving needs and weather conditions perfectly.**

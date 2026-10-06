@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Why are Hyundai Sonatas So Expensive to Insure: Key Reasons Explained"
 description: "If you own a Hyundai Sonata or are thinking about buying one, you might have noticed something frustrating—its insurance costs can be surprisingly high. You’re "
 pubDate: 2026-03-03

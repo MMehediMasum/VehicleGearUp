@@ -1,10 +1,14 @@
 ---
-title: "Best Truck Bed Tent for Toyota Tacoma: Top Waterproof & Portable Picks"
-description: "Finding the best truck bed tent for your Toyota Tacoma can make camping trips easier and more comfortable. A good tent fits your truck bed, protects you from we"
+title: 'Best Truck Bed Tent for Toyota Tacoma: Top Waterproof & Portable Picks'
+description: Finding the best truck bed tent for your Toyota Tacoma can make camping
+  trips easier and more comfortable. A good tent fits your truck bed, protects you
+  from we
 pubDate: 2026-06-26
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-truck-bed-tent-for-toyota-tacoma&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Truck Bed Gear
+heroImage: https://tse1.mm.bing.net/th?q=best-truck-bed-tent-for-toyota-tacoma&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Finding the best truck bed tent for your Toyota Tacoma can make camping trips easier and more comfortable. A good tent fits your truck bed, protects you from weather, and sets up quickly.**

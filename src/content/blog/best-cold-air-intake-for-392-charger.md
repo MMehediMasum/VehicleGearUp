@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for 392 Charger to Boost Power and Performance"
-description: "Choosing the best cold air intake for your 392 Charger can boost engine power and improve fuel efficiency. A quality intake system enhances airflow and keeps th"
+title: Best Cold Air Intake for 392 Charger to Boost Power and Performance
+description: Choosing the best cold air intake for your 392 Charger can boost engine
+  power and improve fuel efficiency. A quality intake system enhances airflow and
+  keeps th
 pubDate: 2025-10-31
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-392-charger&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hemi Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-392-charger&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best cold air intake for your 392 Charger can boost engine power and improve fuel efficiency. A quality intake system enhances airflow and keeps the engine cooler under pressure.**

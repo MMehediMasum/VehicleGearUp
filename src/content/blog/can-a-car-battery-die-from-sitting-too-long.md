@@ -1,10 +1,14 @@
 ---
-title: "Can a Car Battery Die from Sitting Too Long? Essential Facts"
-description: "Have you ever left your car parked for weeks or even months, only to find it won’t start? It’s frustrating, right? You might wonder, can a car battery die from "
+title: Can a Car Battery Die from Sitting Too Long? Essential Facts
+description: 'Have you ever left your car parked for weeks or even months, only to
+  find it won’t start? It’s frustrating, right? You might wonder, can a car battery
+  die from '
 pubDate: 2026-04-09
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-a-car-battery-die-from-sitting-too-long&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Heat and Cold Battery Failure
+heroImage: https://tse1.mm.bing.net/th?q=can-a-car-battery-die-from-sitting-too-long&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever left your car parked for weeks or even months, only to find it won’t start? It’s frustrating, right?**

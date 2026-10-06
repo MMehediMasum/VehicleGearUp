@@ -1,10 +1,14 @@
 ---
-title: "Best Soap for Car Wash at Home: Top Picks for a Spotless Shine"
-description: "Choosing the best soap for washing your car at home makes a big difference. It helps keep your car clean, shiny, and protected without damage. Washing your car "
+title: 'Best Soap for Car Wash at Home: Top Picks for a Spotless Shine'
+description: 'Choosing the best soap for washing your car at home makes a big difference.
+  It helps keep your car clean, shiny, and protected without damage. Washing your
+  car '
 pubDate: 2025-10-31
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-soap-for-car-wash-at-home&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wash Soap Picks
+heroImage: https://tse1.mm.bing.net/th?q=best-soap-for-car-wash-at-home&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best soap for washing your car at home makes a big difference. It helps keep your car clean, shiny, and protected without damage.**

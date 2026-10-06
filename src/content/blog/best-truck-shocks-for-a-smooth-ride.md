@@ -1,10 +1,14 @@
 ---
-title: "Best Truck Shocks for a Smooth Ride: Top Picks for Ultimate Comfort"
-description: "Smooth truck rides depend heavily on quality shocks. The right shocks reduce bumps and improve handling. Choosing the best truck shocks can make driving safer a"
+title: 'Best Truck Shocks for a Smooth Ride: Top Picks for Ultimate Comfort'
+description: Smooth truck rides depend heavily on quality shocks. The right shocks
+  reduce bumps and improve handling. Choosing the best truck shocks can make driving
+  safer a
 pubDate: 2026-06-23
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-truck-shocks-for-a-smooth-ride&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Silverado and Sierra Shocks
+heroImage: https://tse1.mm.bing.net/th?q=best-truck-shocks-for-a-smooth-ride&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Smooth truck rides depend heavily on quality shocks. The right shocks reduce bumps and improve handling.**

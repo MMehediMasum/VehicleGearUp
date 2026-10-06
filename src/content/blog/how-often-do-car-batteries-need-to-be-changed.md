@@ -1,10 +1,14 @@
 ---
-title: "How Often Do Car Batteries Need to Be Changed: Essential Guide"
-description: "Have you ever been left stranded because your car wouldn’t start? One of the most common reasons is a dead battery. But how often do car batteries actually need"
+title: 'How Often Do Car Batteries Need to Be Changed: Essential Guide'
+description: Have you ever been left stranded because your car wouldn’t start? One
+  of the most common reasons is a dead battery. But how often do car batteries actually
+  need
 pubDate: 2025-12-05
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-often-do-car-batteries-need-to-be-changed&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Reviving a Dead Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-often-do-car-batteries-need-to-be-changed&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever been left stranded because your car wouldn’t start? One of the most common reasons is a dead battery.**

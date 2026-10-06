@@ -1,10 +1,14 @@
 ---
-title: "How to Program Ford Escape Key Fob Push Button Start: Quick Guide"
-description: "If you’ve ever lost or needed a spare key fob for your Ford Escape with push button start, you know how frustrating it can be. Programming a new key fob might s"
+title: 'How to Program Ford Escape Key Fob Push Button Start: Quick Guide'
+description: If you’ve ever lost or needed a spare key fob for your Ford Escape with
+  push button start, you know how frustrating it can be. Programming a new key fob
+  might s
 pubDate: 2026-01-29
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-program-ford-escape-key-fob-push-button-start&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Programming Key Fobs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-program-ford-escape-key-fob-push-button-start&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **If you’ve ever lost or needed a spare key fob for your Ford Escape with push button start, you know how frustrating it can be. Programming a new key fob might sound complicated, but what if you could do it yourself quickly and without extra costs?**

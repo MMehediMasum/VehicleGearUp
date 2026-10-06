@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Do It Yourself Car Washes near Me: Top Spots for Sparkling Cars"
 description: "Looking for a quick and affordable way to keep your car sparkling clean? You’re in the right place. Finding a “Do It Yourself Car Wash near me” means you can ta"
 pubDate: 2025-11-05

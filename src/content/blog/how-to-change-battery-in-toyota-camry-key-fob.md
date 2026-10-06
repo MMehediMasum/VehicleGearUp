@@ -1,10 +1,14 @@
 ---
-title: "How to Change Battery in Toyota Camry Key Fob: Easy Step-by-Step Guide"
-description: "Is your Toyota Camry key fob not working like it used to? You might need to change its battery. Knowing how to replace your key fob battery yourself can save yo"
+title: 'How to Change Battery in Toyota Camry Key Fob: Easy Step-by-Step Guide'
+description: Is your Toyota Camry key fob not working like it used to? You might need
+  to change its battery. Knowing how to replace your key fob battery yourself can
+  save yo
 pubDate: 2026-03-30
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-battery-in-toyota-camry-key-fob&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Key Fob Battery Replacement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-battery-in-toyota-camry-key-fob&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **Is your Toyota Camry key fob not working like it used to? You might need to change its battery.**

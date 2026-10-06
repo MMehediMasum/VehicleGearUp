@@ -1,10 +1,13 @@
 ---
-title: "Best Car Wax for Dark Colors: Ultimate Shine and Scratch Protection Guide"
-description: "Dark-colored cars need special care to keep their paint shiny and scratch-free. The best car wax for dark colors enhances gloss and hides imperfections. Dark pa"
+title: 'Best Car Wax for Dark Colors: Ultimate Shine and Scratch Protection Guide'
+description: Dark-colored cars need special care to keep their paint shiny and scratch-free.
+  The best car wax for dark colors enhances gloss and hides imperfections. Dark pa
 pubDate: 2025-10-18
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-wax-for-dark-colors&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wax by Paint Color
+heroImage: https://tse1.mm.bing.net/th?q=best-car-wax-for-dark-colors&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Dark-colored cars need special care to keep their paint shiny and scratch-free. The best car wax for dark colors enhances gloss and hides imperfections.**

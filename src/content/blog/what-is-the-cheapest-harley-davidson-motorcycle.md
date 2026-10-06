@@ -1,10 +1,14 @@
 ---
-title: "What is the Cheapest Harley Davidson Motorcycle: Ultimate Budget Guide"
-description: "Are you dreaming of owning a Harley Davidson but worried about the price? You’re not alone. Many riders want the iconic Harley experience without emptying their"
+title: 'What is the Cheapest Harley Davidson Motorcycle: Ultimate Budget Guide'
+description: Are you dreaming of owning a Harley Davidson but worried about the price?
+  You’re not alone. Many riders want the iconic Harley experience without emptying
+  their
 pubDate: 2026-03-03
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-cheapest-harley-davidson-motorcycle&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Maintenance Basics
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-cheapest-harley-davidson-motorcycle&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you dreaming of owning a Harley Davidson but worried about the price? You’re not alone.**

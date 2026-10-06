@@ -1,10 +1,14 @@
 ---
-title: "How to Get Spare Tire off F150: Easy Steps for Quick Removal"
-description: "Have you ever needed to change your spare tire on your F150 but didn’t know where to start? Getting the spare tire off your truck can feel tricky if you haven’t"
+title: 'How to Get Spare Tire off F150: Easy Steps for Quick Removal'
+description: Have you ever needed to change your spare tire on your F150 but didn’t
+  know where to start? Getting the spare tire off your truck can feel tricky if you
+  haven’t
 pubDate: 2026-02-28
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-get-spare-tire-off-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spare Tires and Tire Changing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-get-spare-tire-off-f150&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Have you ever needed to change your spare tire on your F150 but didn’t know where to start? Getting the spare tire off your truck can feel tricky if you haven’t done it before.**

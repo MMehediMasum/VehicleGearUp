@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Electronic Throttle Control Manually Ram 1500: Easy Steps"
-description: "Is your Ram 1500’s throttle feeling off? Maybe it’s time to reset the Electronic Throttle Control (ETC) manually. Doing this yourself can save you a trip to the"
+title: 'How to Reset Electronic Throttle Control Manually Ram 1500: Easy Steps'
+description: Is your Ram 1500’s throttle feeling off? Maybe it’s time to reset the
+  Electronic Throttle Control (ETC) manually. Doing this yourself can save you a trip
+  to the
 pubDate: 2026-01-24
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-electronic-throttle-control-manually-ram-1500&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ram Throttle and Computer Resets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-electronic-throttle-control-manually-ram-1500&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your Ram 1500’s throttle feeling off? Maybe it’s time to reset the Electronic Throttle Control (ETC) manually.**

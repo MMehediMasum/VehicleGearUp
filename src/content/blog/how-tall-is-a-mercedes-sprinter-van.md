@@ -1,10 +1,14 @@
 ---
-title: "How Tall is a Mercedes Sprinter Van: Ultimate Height Guide 2025"
-description: "Are you thinking about getting a Mercedes Sprinter van but wondering how tall it really is? Knowing the exact height of this popular van can save you from unexp"
+title: 'How Tall is a Mercedes Sprinter Van: Ultimate Height Guide 2025'
+description: Are you thinking about getting a Mercedes Sprinter van but wondering
+  how tall it really is? Knowing the exact height of this popular van can save you
+  from unexp
 pubDate: 2026-03-07
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-tall-is-a-mercedes-sprinter-van&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- All Wheel Drive Questions
+heroImage: https://tse1.mm.bing.net/th?q=how-tall-is-a-mercedes-sprinter-van&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you thinking about getting a Mercedes Sprinter van but wondering how tall it really is? Knowing the exact height of this popular van can save you from unexpected surprises, like hitting low clearances or struggling to park in tight spots.**

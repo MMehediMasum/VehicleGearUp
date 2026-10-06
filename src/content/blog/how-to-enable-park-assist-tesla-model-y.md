@@ -1,10 +1,14 @@
 ---
-title: "How to Enable Park Assist Tesla Model Y: Easy Steps to Master Parking"
-description: "Imagine parking your Tesla Model Y with ease, even in the tightest spots. What if your car could help you steer perfectly while you focus only on the pedals? En"
+title: 'How to Enable Park Assist Tesla Model Y: Easy Steps to Master Parking'
+description: Imagine parking your Tesla Model Y with ease, even in the tightest spots.
+  What if your car could help you steer perfectly while you focus only on the pedals?
+  En
 pubDate: 2025-12-18
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-enable-park-assist-tesla-model-y&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Model Y Features
+heroImage: https://tse1.mm.bing.net/th?q=how-to-enable-park-assist-tesla-model-y&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Imagine parking your Tesla Model Y with ease, even in the tightest spots. What if your car could help you steer perfectly while you focus only on the pedals?**

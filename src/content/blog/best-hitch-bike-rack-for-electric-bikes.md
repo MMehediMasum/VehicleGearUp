@@ -1,10 +1,14 @@
 ---
-title: "Best Hitch Bike Rack for Electric Bikes: Heavy-Duty, Foldable, and Secure"
-description: "Choosing the best hitch bike rack for electric bikes ensures safe and easy transport. These racks hold heavy, fat-tire e-bikes securely on cars, SUVs, or trucks"
+title: 'Best Hitch Bike Rack for Electric Bikes: Heavy-Duty, Foldable, and Secure'
+description: Choosing the best hitch bike rack for electric bikes ensures safe and
+  easy transport. These racks hold heavy, fat-tire e-bikes securely on cars, SUVs,
+  or trucks
 pubDate: 2026-06-30
-author: "herbertlangham"
-categories: ["Towing & Hauling"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-hitch-bike-rack-for-electric-bikes&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hitch Bike Racks
+heroImage: https://tse1.mm.bing.net/th?q=best-hitch-bike-rack-for-electric-bikes&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Choosing the best hitch bike rack for electric bikes ensures safe and easy transport. These racks hold heavy, fat-tire e-bikes securely on cars, SUVs, or trucks.**

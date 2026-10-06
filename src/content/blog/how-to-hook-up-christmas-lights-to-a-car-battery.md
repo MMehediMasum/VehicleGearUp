@@ -1,10 +1,14 @@
 ---
-title: "How to Hook Up Christmas Lights to a Car Battery: Easy & Safe Guide"
-description: "Imagine lighting up your holiday decorations in a whole new way—using your car battery to power your Christmas lights. It sounds tricky, but with the right step"
+title: 'How to Hook Up Christmas Lights to a Car Battery: Easy & Safe Guide'
+description: Imagine lighting up your holiday decorations in a whole new way—using
+  your car battery to power your Christmas lights. It sounds tricky, but with the
+  right step
 pubDate: 2025-11-18
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hook-up-christmas-lights-to-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Selling Old Car Batteries
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hook-up-christmas-lights-to-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Imagine lighting up your holiday decorations in a whole new way—using your car battery to power your Christmas lights. It sounds tricky, but with the right steps, you can create a dazzling display that stands out.**

@@ -1,10 +1,14 @@
 ---
-title: "Why My Car Horn is Not Working: Quick Fixes You Need Now"
-description: "Is your car horn suddenly silent when you need it most? You rely on that simple beep to alert others and stay safe on the road. When it stops working, it can be"
+title: 'Why My Car Horn is Not Working: Quick Fixes You Need Now'
+description: Is your car horn suddenly silent when you need it most? You rely on that
+  simple beep to alert others and stay safe on the road. When it stops working, it
+  can be
 pubDate: 2026-03-02
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-my-car-horn-is-not-working&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Horn Problems
+heroImage: https://tse1.mm.bing.net/th?q=why-my-car-horn-is-not-working&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your car horn suddenly silent when you need it most? You rely on that simple beep to alert others and stay safe on the road.**

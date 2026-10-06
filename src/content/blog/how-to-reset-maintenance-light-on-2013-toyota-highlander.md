@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Maintenance Light on 2013 Toyota Highlander: Easy Steps"
-description: "Is your 2013 Toyota Highlander's maintenance light on, and you’re not sure how to turn it off? You’re not alone. That little warning can be frustrating, especia"
+title: 'How to Reset Maintenance Light on 2013 Toyota Highlander: Easy Steps'
+description: Is your 2013 Toyota Highlander's maintenance light on, and you’re not
+  sure how to turn it off? You’re not alone. That little warning can be frustrating,
+  especia
 pubDate: 2026-05-28
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-maintenance-light-on-2013-toyota-highlander&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Maintenance Light Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-maintenance-light-on-2013-toyota-highlander&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your 2013 Toyota Highlander's maintenance light on, and you’re not sure how to turn it off? You’re not alone.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Handheld Car Vacuum for Pet Hair: Powerful, Lightweight, Cordless Picks"
-description: "Pet hair can quickly fill your car and make cleaning a tough task. A handheld car vacuum designed for pet hair makes the job easier and faster. Choosing the rig"
+title: 'Best Handheld Car Vacuum for Pet Hair: Powerful, Lightweight, Cordless Picks'
+description: Pet hair can quickly fill your car and make cleaning a tough task. A
+  handheld car vacuum designed for pet hair makes the job easier and faster. Choosing
+  the rig
 pubDate: 2026-06-01
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-handheld-car-vacuum-for-pet-hair&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Pets and Babies in Cars
+heroImage: https://tse1.mm.bing.net/th?q=best-handheld-car-vacuum-for-pet-hair&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Pet hair can quickly fill your car and make cleaning a tough task. A handheld car vacuum designed for pet hair makes the job easier and faster.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for 6.6 Duramax to Boost Power and Efficiency"
-description: "Choosing the best cold air intake for your 6.6 Duramax can boost engine power and efficiency. This guide covers top options for different Duramax models and yea"
+title: Best Cold Air Intake for 6.6 Duramax to Boost Power and Efficiency
+description: Choosing the best cold air intake for your 6.6 Duramax can boost engine
+  power and efficiency. This guide covers top options for different Duramax models
+  and yea
 pubDate: 2025-09-27
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-66-duramax&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- GM Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-66-duramax&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best cold air intake for your 6.6 Duramax can boost engine power and efficiency. This guide covers top options for different Duramax models and years.**

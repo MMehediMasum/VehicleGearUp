@@ -1,10 +1,14 @@
 ---
-title: "Best Hitch Step for Pickup Truck: Top Durable and Anti-Slip Options"
-description: "A hitch step adds safety and convenience to pickup trucks. It helps you reach the truck bed easily and protects the rear bumper. Choosing the best hitch step ca"
+title: 'Best Hitch Step for Pickup Truck: Top Durable and Anti-Slip Options'
+description: A hitch step adds safety and convenience to pickup trucks. It helps you
+  reach the truck bed easily and protects the rear bumper. Choosing the best hitch
+  step ca
 pubDate: 2026-07-01
-author: "herbertlangham"
-categories: ["Towing & Hauling"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-hitch-step-for-pickup-truck&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Best Trucks for Towing
+heroImage: https://tse1.mm.bing.net/th?q=best-hitch-step-for-pickup-truck&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **A hitch step adds safety and convenience to pickup trucks. It helps you reach the truck bed easily and protects the rear bumper.**

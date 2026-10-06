@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for Chrysler 300 V6 to Boost Power & Performance"
-description: "Finding the best cold air intake for your Chrysler 300 V6 can boost engine power and efficiency. Choosing the right system improves airflow and helps your car r"
+title: Best Cold Air Intake for Chrysler 300 V6 to Boost Power & Performance
+description: Finding the best cold air intake for your Chrysler 300 V6 can boost engine
+  power and efficiency. Choosing the right system improves airflow and helps your
+  car r
 pubDate: 2026-06-03
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-chrysler-300-v6&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hemi Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-chrysler-300-v6&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Finding the best cold air intake for your Chrysler 300 V6 can boost engine power and efficiency. Choosing the right system improves airflow and helps your car run better.**

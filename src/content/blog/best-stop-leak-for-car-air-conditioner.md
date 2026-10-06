@@ -1,10 +1,14 @@
 ---
-title: "Best Stop Leak for Car Air Conditioner: Top Solutions to Seal and Refresh"
-description: "A car’s air conditioner can lose coolness due to leaks in the system. Using the best stop leak product helps fix these leaks quickly and easily. Leaks reduce AC"
+title: 'Best Stop Leak for Car Air Conditioner: Top Solutions to Seal and Refresh'
+description: A car’s air conditioner can lose coolness due to leaks in the system.
+  Using the best stop leak product helps fix these leaks quickly and easily. Leaks
+  reduce AC
 pubDate: 2026-06-03
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-stop-leak-for-car-air-conditioner&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Handy Car Gadgets
+heroImage: https://tse1.mm.bing.net/th?q=best-stop-leak-for-car-air-conditioner&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **A car’s air conditioner can lose coolness due to leaks in the system. Using the best stop leak product helps fix these leaks quickly and easily.**

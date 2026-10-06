@@ -1,10 +1,13 @@
 ---
-title: "Best Pressure Washer Gun for Car Detailing: Top Foam Cannon Kits Reviewed"
-description: "Choosing the best pressure washer gun is key for effective car detailing. It helps clean your vehicle quickly and safely. Pressure washer guns with foam cannons"
+title: 'Best Pressure Washer Gun for Car Detailing: Top Foam Cannon Kits Reviewed'
+description: Choosing the best pressure washer gun is key for effective car detailing.
+  It helps clean your vehicle quickly and safely. Pressure washer guns with foam cannons
 pubDate: 2026-07-04
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-pressure-washer-gun-for-car-detailing&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Detailing Equipment
+heroImage: https://tse1.mm.bing.net/th?q=best-pressure-washer-gun-for-car-detailing&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best pressure washer gun is key for effective car detailing. It helps clean your vehicle quickly and safely.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Test a Car Battery Without a Tester: Easy DIY Methods"
-description: "Is your car having trouble starting, but you don’t have a battery tester on hand? Don’t worry—you can still check your car battery’s health with simple steps yo"
+title: 'How to Test a Car Battery Without a Tester: Easy DIY Methods'
+description: Is your car having trouble starting, but you don’t have a battery tester
+  on hand? Don’t worry—you can still check your car battery’s health with simple steps
+  yo
 pubDate: 2026-04-17
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-test-a-car-battery-without-a-tester&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Selling Old Car Batteries
+heroImage: https://tse1.mm.bing.net/th?q=how-to-test-a-car-battery-without-a-tester&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your car having trouble starting, but you don’t have a battery tester on hand? Don’t worry—you can still check your car battery’s health with simple steps you can do yourself.**

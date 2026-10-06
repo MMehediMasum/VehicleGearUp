@@ -1,10 +1,14 @@
 ---
-title: "How to Check Transmission Fluid Ford Focus: Easy Step-by-Step Guide"
-description: "If you drive a Ford Focus, keeping an eye on your transmission fluid is key to smooth rides and avoiding costly repairs. But how do you know when it’s time to c"
+title: 'How to Check Transmission Fluid Ford Focus: Easy Step-by-Step Guide'
+description: If you drive a Ford Focus, keeping an eye on your transmission fluid
+  is key to smooth rides and avoiding costly repairs. But how do you know when it’s
+  time to c
 pubDate: 2026-04-23
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-check-transmission-fluid-ford-focus&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Transmission Fluid Checks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-check-transmission-fluid-ford-focus&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you drive a Ford Focus, keeping an eye on your transmission fluid is key to smooth rides and avoiding costly repairs. But how do you know when it’s time to check or change it?**

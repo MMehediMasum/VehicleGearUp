@@ -1,10 +1,14 @@
 ---
-title: "Best Car Battery for Honda CRV: Top Reliable Choices for Ultimate Performance"
-description: "Choosing the best car battery for your Honda CR-V ensures reliable starts and long-lasting performance. Quality batteries keep your vehicle running smoothly in "
+title: 'Best Car Battery for Honda CRV: Top Reliable Choices for Ultimate Performance'
+description: 'Choosing the best car battery for your Honda CR-V ensures reliable starts
+  and long-lasting performance. Quality batteries keep your vehicle running smoothly
+  in '
 pubDate: 2025-10-26
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-battery-for-honda-crv&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Choosing the Best Battery
+heroImage: https://tse1.mm.bing.net/th?q=best-car-battery-for-honda-crv&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Choosing the best car battery for your Honda CR-V ensures reliable starts and long-lasting performance. Quality batteries keep your vehicle running smoothly in all conditions.**

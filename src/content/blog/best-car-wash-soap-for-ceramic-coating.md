@@ -1,10 +1,14 @@
 ---
-title: "Best Car Wash Soap for Ceramic Coating: Top Picks for Ultimate Shine"
-description: "Choosing the best car wash soap for ceramic coating protects your investment and keeps your car shining. Gentle formulas clean without damaging the coating’s hy"
+title: 'Best Car Wash Soap for Ceramic Coating: Top Picks for Ultimate Shine'
+description: Choosing the best car wash soap for ceramic coating protects your investment
+  and keeps your car shining. Gentle formulas clean without damaging the coating’s
+  hy
 pubDate: 2026-07-06
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-wash-soap-for-ceramic-coating&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Washing Ceramic Coated Cars
+heroImage: https://tse1.mm.bing.net/th?q=best-car-wash-soap-for-ceramic-coating&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best car wash soap for ceramic coating protects your investment and keeps your car shining. Gentle formulas clean without damaging the coating’s hydrophobic layer.**

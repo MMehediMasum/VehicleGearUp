@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Ford Focus ST: Top Picks for Ultimate Performance and Grip"
-description: "Choosing the best tires for your Ford Focus ST ensures better handling and safety on the road. Quality tires improve grip, comfort, and overall driving experien"
+title: 'Best Tires for Ford Focus ST: Top Picks for Ultimate Performance and Grip'
+description: Choosing the best tires for your Ford Focus ST ensures better handling
+  and safety on the road. Quality tires improve grip, comfort, and overall driving
+  experien
 pubDate: 2025-11-09
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-ford-focus-st&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Car and Truck Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-ford-focus-st&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your Ford Focus ST ensures better handling and safety on the road. Quality tires improve grip, comfort, and overall driving experience.**

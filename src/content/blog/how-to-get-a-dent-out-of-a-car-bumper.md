@@ -1,10 +1,14 @@
 ---
-title: "How to Get a Dent Out of a Car Bumper: Quick and Easy Fixes"
-description: "Have you noticed a dent on your car bumper that’s ruining its look? You don’t have to spend a fortune at the repair shop to fix it. Imagine restoring your bumpe"
+title: 'How to Get a Dent Out of a Car Bumper: Quick and Easy Fixes'
+description: Have you noticed a dent on your car bumper that’s ruining its look? You
+  don’t have to spend a fortune at the repair shop to fix it. Imagine restoring your
+  bumpe
 pubDate: 2026-03-21
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-get-a-dent-out-of-a-car-bumper&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Bumper Dent and Scratch Repair
+heroImage: https://tse1.mm.bing.net/th?q=how-to-get-a-dent-out-of-a-car-bumper&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you noticed a dent on your car bumper that’s ruining its look? You don’t have to spend a fortune at the repair shop to fix it.**

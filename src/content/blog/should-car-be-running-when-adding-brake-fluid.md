@@ -1,10 +1,13 @@
 ---
-title: "Should Car Be Running When Adding Brake Fluid: Essential Facts"
-description: "Are you wondering if your car should be running when you add brake fluid? It’s a common question that can make a big difference to your safety and your vehicle’"
+title: 'Should Car Be Running When Adding Brake Fluid: Essential Facts'
+description: Are you wondering if your car should be running when you add brake fluid?
+  It’s a common question that can make a big difference to your safety and your vehicle’
 pubDate: 2026-05-15
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=should-car-be-running-when-adding-brake-fluid&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Brake and Washer Fluids
+heroImage: https://tse1.mm.bing.net/th?q=should-car-be-running-when-adding-brake-fluid&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Are you wondering if your car should be running when you add brake fluid? It’s a common question that can make a big difference to your safety and your vehicle’s health.**

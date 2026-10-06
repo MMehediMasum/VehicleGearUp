@@ -1,10 +1,14 @@
 ---
-title: "Best Pressure Washer Psi for Cars: Top Picks for Safe, Powerful Cleaning"
-description: "Choosing the best pressure washer PSI for cars helps clean effectively without damaging paint. Using the right pressure keeps your vehicle safe and spotless. Ca"
+title: 'Best Pressure Washer Psi for Cars: Top Picks for Safe, Powerful Cleaning'
+description: Choosing the best pressure washer PSI for cars helps clean effectively
+  without damaging paint. Using the right pressure keeps your vehicle safe and spotless.
+  Ca
 pubDate: 2026-07-01
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-pressure-washer-psi-for-cars&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Tire Pressure Light
+heroImage: https://tse1.mm.bing.net/th?q=best-pressure-washer-psi-for-cars&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best pressure washer PSI for cars helps clean effectively without damaging paint. Using the right pressure keeps your vehicle safe and spotless.**

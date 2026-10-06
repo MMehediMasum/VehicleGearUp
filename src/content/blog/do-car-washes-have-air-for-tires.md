@@ -1,10 +1,14 @@
 ---
-title: "Do Car Washes Have Air for Tires? Find Out Now!"
-description: "Have you ever wondered if car washes offer air for your tires while cleaning your vehicle? You might think a quick stop at the car wash only cleans your car’s s"
+title: Do Car Washes Have Air for Tires? Find Out Now!
+description: Have you ever wondered if car washes offer air for your tires while cleaning
+  your vehicle? You might think a quick stop at the car wash only cleans your car’s
+  s
 pubDate: 2026-03-19
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-car-washes-have-air-for-tires&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tire Construction and Origin
+heroImage: https://tse1.mm.bing.net/th?q=do-car-washes-have-air-for-tires&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Have you ever wondered if car washes offer air for your tires while cleaning your vehicle? You might think a quick stop at the car wash only cleans your car’s surface, but what about your tires?**

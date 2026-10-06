@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Ford Bronco Sport: Top Picks for Ultimate Performance"
-description: "Choosing the best tires for your Ford Bronco Sport improves safety and driving comfort. The right tires match your vehicle’s needs and road conditions. Selectin"
+title: 'Best Tires for Ford Bronco Sport: Top Picks for Ultimate Performance'
+description: Choosing the best tires for your Ford Bronco Sport improves safety and
+  driving comfort. The right tires match your vehicle’s needs and road conditions.
+  Selectin
 pubDate: 2025-12-26
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-ford-bronco-sport&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Sport Model Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-ford-bronco-sport&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your Ford Bronco Sport improves safety and driving comfort. The right tires match your vehicle’s needs and road conditions.**

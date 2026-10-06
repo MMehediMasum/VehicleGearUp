@@ -1,10 +1,14 @@
 ---
-title: "Best 10 Ply Truck Tires for Towing: Top Durable Picks for Heavy Loads"
-description: "Choosing the right 10 ply truck tires is key for safe and strong towing. These tires handle heavy loads and rough roads without trouble. Towing requires tires t"
+title: 'Best 10 Ply Truck Tires for Towing: Top Durable Picks for Heavy Loads'
+description: Choosing the right 10 ply truck tires is key for safe and strong towing.
+  These tires handle heavy loads and rough roads without trouble. Towing requires
+  tires t
 pubDate: 2025-10-07
-author: "herbertlangham"
-categories: ["Towing & Hauling"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-10-ply-truck-tires-for-towing&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Best Trucks for Towing
+heroImage: https://tse1.mm.bing.net/th?q=best-10-ply-truck-tires-for-towing&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Choosing the right 10 ply truck tires is key for safe and strong towing. These tires handle heavy loads and rough roads without trouble.**

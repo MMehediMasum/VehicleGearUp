@@ -1,10 +1,14 @@
 ---
-title: "Best Power Steering Stop Leak for Honda: Top Effective Leak Fixers"
-description: "Power steering leaks can cause steering problems and costly repairs on your Honda. Choosing the right stop leak product helps fix leaks and protect your system."
+title: 'Best Power Steering Stop Leak for Honda: Top Effective Leak Fixers'
+description: Power steering leaks can cause steering problems and costly repairs on
+  your Honda. Choosing the right stop leak product helps fix leaks and protect your
+  system.
 pubDate: 2026-06-19
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-power-steering-stop-leak-for-honda&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Handy Car Gadgets
+heroImage: https://tse1.mm.bing.net/th?q=best-power-steering-stop-leak-for-honda&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Power steering leaks can cause steering problems and costly repairs on your Honda. Choosing the right stop leak product helps fix leaks and protect your system.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Change Jeep Grand Cherokee Headlight: Easy Step-by-Step Guide"
-description: "Are your Jeep Grand Cherokee headlights dim or not working properly? Changing them might seem tricky, but it’s easier than you think. With the right steps, you "
+title: 'How to Change Jeep Grand Cherokee Headlight: Easy Step-by-Step Guide'
+description: 'Are your Jeep Grand Cherokee headlights dim or not working properly?
+  Changing them might seem tricky, but it’s easier than you think. With the right
+  steps, you '
 pubDate: 2026-05-25
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-jeep-grand-cherokee-headlight&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Headlight Bulbs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-jeep-grand-cherokee-headlight&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are your Jeep Grand Cherokee headlights dim or not working properly? Changing them might seem tricky, but it’s easier than you think.**

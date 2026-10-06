@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Honda Civic Oil Life: Quick & Easy Steps Guide"
-description: "If you drive a Honda Civic, knowing how to reset your oil life indicator is key to keeping your car running smoothly. Ignoring this step can lead to missed main"
+title: 'How to Reset Honda Civic Oil Life: Quick & Easy Steps Guide'
+description: If you drive a Honda Civic, knowing how to reset your oil life indicator
+  is key to keeping your car running smoothly. Ignoring this step can lead to missed
+  main
 pubDate: 2026-05-02
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-honda-civic-oil-life&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Oil Life Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-honda-civic-oil-life&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you drive a Honda Civic, knowing how to reset your oil life indicator is key to keeping your car running smoothly. Ignoring this step can lead to missed maintenance alerts and costly engine problems.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Dog Car Seat for Motion Sickness: Safe, Comfortable Travel Solutions"
-description: "Finding the best dog car seat for motion sickness helps keep your pet calm and safe during trips. Dogs often feel dizzy and sick in moving cars. Motion sickness"
+title: 'Best Dog Car Seat for Motion Sickness: Safe, Comfortable Travel Solutions'
+description: Finding the best dog car seat for motion sickness helps keep your pet
+  calm and safe during trips. Dogs often feel dizzy and sick in moving cars. Motion
+  sickness
 pubDate: 2026-07-28
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-dog-car-seat-for-motion-sickness&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Seat Accessories
+heroImage: https://tse1.mm.bing.net/th?q=best-dog-car-seat-for-motion-sickness&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Finding the best dog car seat for motion sickness helps keep your pet calm and safe during trips. Dogs often feel dizzy and sick in moving cars.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Car Wax for Florida Sun: Ultimate Shine and Heat Protection Guide"
-description: "Protecting your car from the harsh Florida sun requires the right wax. The best car wax can keep your paint shiny and safe. Florida’s strong sun, heat, and humi"
+title: 'Best Car Wax for Florida Sun: Ultimate Shine and Heat Protection Guide'
+description: Protecting your car from the harsh Florida sun requires the right wax.
+  The best car wax can keep your paint shiny and safe. Florida’s strong sun, heat,
+  and humi
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-wax-for-florida-sun&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wax by Paint Color
+heroImage: https://tse1.mm.bing.net/th?q=best-car-wax-for-florida-sun&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Protecting your car from the harsh Florida sun requires the right wax. The best car wax can keep your paint shiny and safe.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Program Key Fob for Nissan Altima: Easy Step-by-Step Guide"
-description: "Losing or replacing your Nissan Altima key fob can feel frustrating. But what if you could program it yourself, saving time and money? In this guide, you’ll dis"
+title: 'How to Program Key Fob for Nissan Altima: Easy Step-by-Step Guide'
+description: Losing or replacing your Nissan Altima key fob can feel frustrating.
+  But what if you could program it yourself, saving time and money? In this guide,
+  you’ll dis
 pubDate: 2026-02-21
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-program-key-fob-for-nissan-altima&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Programming Key Fobs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-program-key-fob-for-nissan-altima&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **Losing or replacing your Nissan Altima key fob can feel frustrating. But what if you could program it yourself, saving time and money?**

@@ -1,10 +1,14 @@
 ---
-title: "How to Add Transmission Fluid to a 2014 Ford Focus: Easy Steps Guide"
-description: "If you own a 2014 Ford Focus, knowing how to add transmission fluid can save you time and money. Transmission fluid keeps your car running smoothly and prevents"
+title: 'How to Add Transmission Fluid to a 2014 Ford Focus: Easy Steps Guide'
+description: If you own a 2014 Ford Focus, knowing how to add transmission fluid can
+  save you time and money. Transmission fluid keeps your car running smoothly and
+  prevents
 pubDate: 2026-04-26
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-add-transmission-fluid-to-a-2014-ford-focus&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Adding Transmission Fluid
+heroImage: https://tse1.mm.bing.net/th?q=how-to-add-transmission-fluid-to-a-2014-ford-focus&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a 2014 Ford Focus, knowing how to add transmission fluid can save you time and money. Transmission fluid keeps your car running smoothly and prevents costly damage.**

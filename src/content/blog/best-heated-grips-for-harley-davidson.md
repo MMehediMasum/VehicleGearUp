@@ -1,10 +1,14 @@
 ---
-title: "Best Heated Grips for Harley Davidson: Top Picks for Warm Comfortable Rides"
-description: "Riding a Harley Davidson in cold weather can be uncomfortable without heated grips. Heated grips keep your hands warm and improve control on chilly rides. Choos"
+title: 'Best Heated Grips for Harley Davidson: Top Picks for Warm Comfortable Rides'
+description: Riding a Harley Davidson in cold weather can be uncomfortable without
+  heated grips. Heated grips keep your hands warm and improve control on chilly rides.
+  Choos
 pubDate: 2025-11-01
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-heated-grips-for-harley-davidson&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Ownership Questions
+heroImage: https://tse1.mm.bing.net/th?q=best-heated-grips-for-harley-davidson&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Riding a Harley Davidson in cold weather can be uncomfortable without heated grips. Heated grips keep your hands warm and improve control on chilly rides.**

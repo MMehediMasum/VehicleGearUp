@@ -1,10 +1,14 @@
 ---
-title: "Which Acid is Used in a Car Battery: Essential Facts Revealed"
-description: "Have you ever wondered what makes your car battery work so effectively? The secret lies in a special acid inside it. Knowing which acid is used in a car battery"
+title: 'Which Acid is Used in a Car Battery: Essential Facts Revealed'
+description: Have you ever wondered what makes your car battery work so effectively?
+  The secret lies in a special acid inside it. Knowing which acid is used in a car
+  battery
 pubDate: 2026-04-06
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=which-acid-is-used-in-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Terminal Care
+heroImage: https://tse1.mm.bing.net/th?q=which-acid-is-used-in-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered what makes your car battery work so effectively? The secret lies in a special acid inside it.**

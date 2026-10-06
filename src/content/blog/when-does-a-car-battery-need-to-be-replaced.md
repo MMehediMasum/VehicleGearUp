@@ -1,10 +1,14 @@
 ---
-title: "When Does a Car Battery Need to Be Replaced: Essential Signs to Know"
-description: "Have you ever been stuck with a car that just won’t start? A dead battery is often the culprit, but how do you know when your car battery really needs to be rep"
+title: 'When Does a Car Battery Need to Be Replaced: Essential Signs to Know'
+description: Have you ever been stuck with a car that just won’t start? A dead battery
+  is often the culprit, but how do you know when your car battery really needs to
+  be rep
 pubDate: 2026-04-22
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=when-does-a-car-battery-need-to-be-replaced&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- When to Replace a Battery
+heroImage: https://tse1.mm.bing.net/th?q=when-does-a-car-battery-need-to-be-replaced&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever been stuck with a car that just won’t start? A dead battery is often the culprit, but how do you know when your car battery really needs to be replaced?**

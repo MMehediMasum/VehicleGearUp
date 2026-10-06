@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Bed Rail for RV Bunk: Top Safety Rails for Toddler Protection"
 description: "Choosing the best bed rail for an RV bunk ensures safety and comfort during sleep. A sturdy bed rail prevents falls and gives peace of mind for parents and trav"
 pubDate: 2026-06-12

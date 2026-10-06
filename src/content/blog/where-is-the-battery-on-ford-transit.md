@@ -1,10 +1,14 @@
 ---
-title: "Where is the Battery on Ford Transit: Quick Location Guide"
-description: "Are you having trouble finding the battery on your Ford Transit? Knowing exactly where your vehicle’s battery is located can save you time and frustration, espe"
+title: 'Where is the Battery on Ford Transit: Quick Location Guide'
+description: Are you having trouble finding the battery on your Ford Transit? Knowing
+  exactly where your vehicle’s battery is located can save you time and frustration,
+  espe
 pubDate: 2026-03-31
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-is-the-battery-on-ford-transit&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Finding the Battery Location
+heroImage: https://tse1.mm.bing.net/th?q=where-is-the-battery-on-ford-transit&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you having trouble finding the battery on your Ford Transit? Knowing exactly where your vehicle’s battery is located can save you time and frustration, especially when you need a quick jump-start or routine maintenance.**

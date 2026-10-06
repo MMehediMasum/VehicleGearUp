@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for a Honda CR V: Top All-Season Picks for Smooth Rides"
-description: "Choosing the best tires for a Honda CR-V improves safety, comfort, and performance on the road. Quality tires fit your driving needs and weather conditions perf"
+title: 'Best Tires for a Honda CR V: Top All-Season Picks for Smooth Rides'
+description: Choosing the best tires for a Honda CR-V improves safety, comfort, and
+  performance on the road. Quality tires fit your driving needs and weather conditions
+  perf
 pubDate: 2026-01-12
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-a-honda-cr-v&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-a-honda-cr-v&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for a Honda CR-V improves safety, comfort, and performance on the road. Quality tires fit your driving needs and weather conditions perfectly.**

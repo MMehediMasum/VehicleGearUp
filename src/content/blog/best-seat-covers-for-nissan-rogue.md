@@ -1,10 +1,14 @@
 ---
-title: "Best Seat Covers for Nissan Rogue: Ultimate Comfort and Protection Guide"
-description: "Protecting your Nissan Rogue’s seats keeps your car looking clean and new. Choosing the right seat covers adds comfort and style to your ride. Nissan Rogue owne"
+title: 'Best Seat Covers for Nissan Rogue: Ultimate Comfort and Protection Guide'
+description: Protecting your Nissan Rogue’s seats keeps your car looking clean and
+  new. Choosing the right seat covers adds comfort and style to your ride. Nissan
+  Rogue owne
 pubDate: 2025-09-10
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-seat-covers-for-nissan-rogue&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Nissan and Fabric Seat Covers
+heroImage: https://tse1.mm.bing.net/th?q=best-seat-covers-for-nissan-rogue&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Protecting your Nissan Rogue’s seats keeps your car looking clean and new. Choosing the right seat covers adds comfort and style to your ride.**

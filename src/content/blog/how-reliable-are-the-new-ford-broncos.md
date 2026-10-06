@@ -1,10 +1,14 @@
 ---
-title: "How Reliable are the New Ford Broncos: Unveiling Truths"
-description: "Are you thinking about getting the new Ford Bronco but worried about how reliable it really is? You want a vehicle that won’t leave you stranded or cost a fortu"
+title: 'How Reliable are the New Ford Broncos: Unveiling Truths'
+description: Are you thinking about getting the new Ford Bronco but worried about
+  how reliable it really is? You want a vehicle that won’t leave you stranded or cost
+  a fortu
 pubDate: 2025-11-14
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-reliable-are-the-new-ford-broncos&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Third Row and Mileage
+heroImage: https://tse1.mm.bing.net/th?q=how-reliable-are-the-new-ford-broncos&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you thinking about getting the new Ford Bronco but worried about how reliable it really is? You want a vehicle that won’t leave you stranded or cost a fortune in repairs.**

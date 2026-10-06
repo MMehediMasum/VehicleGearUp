@@ -1,10 +1,14 @@
 ---
-title: "Best Brake Pads for Harley Davidson Touring: Top Durable Ceramic Picks"
-description: "Choosing the best brake pads for your Harley Davidson Touring ensures safety and smooth rides. Quality pads improve stopping power and reduce wear on your bike."
+title: 'Best Brake Pads for Harley Davidson Touring: Top Durable Ceramic Picks'
+description: Choosing the best brake pads for your Harley Davidson Touring ensures
+  safety and smooth rides. Quality pads improve stopping power and reduce wear on
+  your bike.
 pubDate: 2026-07-15
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-brake-pads-for-harley-davidson-touring&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Maintenance Basics
+heroImage: https://tse1.mm.bing.net/th?q=best-brake-pads-for-harley-davidson-touring&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best brake pads for your Harley Davidson Touring ensures safety and smooth rides. Quality pads improve stopping power and reduce wear on your bike.**

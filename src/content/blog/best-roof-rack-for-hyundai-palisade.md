@@ -1,10 +1,13 @@
 ---
-title: "Best Roof Rack for Hyundai Palisade: Top Lockable Heavy Duty Crossbars"
-description: "Choosing the best roof rack for your Hyundai Palisade boosts your vehicle’s cargo space and travel ease. This guide covers top roof racks that fit the 2019-2025"
+title: 'Best Roof Rack for Hyundai Palisade: Top Lockable Heavy Duty Crossbars'
+description: Choosing the best roof rack for your Hyundai Palisade boosts your vehicle’s
+  cargo space and travel ease. This guide covers top roof racks that fit the 2019-2025
 pubDate: 2026-06-12
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-roof-rack-for-hyundai-palisade&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Roof Racks and Tents
+heroImage: https://tse1.mm.bing.net/th?q=best-roof-rack-for-hyundai-palisade&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Choosing the best roof rack for your Hyundai Palisade boosts your vehicle’s cargo space and travel ease. This guide covers top roof racks that fit the 2019-2025 Palisade models perfectly.**

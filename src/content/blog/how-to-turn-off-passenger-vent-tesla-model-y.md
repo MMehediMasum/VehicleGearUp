@@ -1,10 +1,14 @@
 ---
-title: "How to Turn off Passenger Vent Tesla Model Y: Quick Easy Guide"
-description: "If you’ve ever wondered how to turn off the passenger vent in your Tesla Model Y, you’re not alone. Controlling the airflow exactly how you want it can make a b"
+title: 'How to Turn off Passenger Vent Tesla Model Y: Quick Easy Guide'
+description: If you’ve ever wondered how to turn off the passenger vent in your Tesla
+  Model Y, you’re not alone. Controlling the airflow exactly how you want it can make
+  a b
 pubDate: 2025-12-16
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-passenger-vent-tesla-model-y&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Summon and Dog Mode
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-passenger-vent-tesla-model-y&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **If you’ve ever wondered how to turn off the passenger vent in your Tesla Model Y, you’re not alone. Controlling the airflow exactly how you want it can make a big difference in your comfort while driving.**

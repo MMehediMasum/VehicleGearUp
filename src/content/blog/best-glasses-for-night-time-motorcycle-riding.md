@@ -1,10 +1,14 @@
 ---
-title: "Best Glasses for Night Time Motorcycle Riding to Reduce Glare Safely"
-description: "Riding a motorcycle at night can be risky without the right glasses. Nighttime glasses improve vision and reduce glare for safer rides. Choosing the best glasse"
+title: Best Glasses for Night Time Motorcycle Riding to Reduce Glare Safely
+description: Riding a motorcycle at night can be risky without the right glasses.
+  Nighttime glasses improve vision and reduce glare for safer rides. Choosing the
+  best glasse
 pubDate: 2026-01-14
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-glasses-for-night-time-motorcycle-riding&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Riding Accessories
+heroImage: https://tse1.mm.bing.net/th?q=best-glasses-for-night-time-motorcycle-riding&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Riding a motorcycle at night can be risky without the right glasses. Nighttime glasses improve vision and reduce glare for safer rides.**

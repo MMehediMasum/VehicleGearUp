@@ -1,10 +1,14 @@
 ---
-title: "How to Change Windshield Wipers Toyota Camry: Easy Step-by-Step Guide"
-description: "Your Toyota Camry’s windshield wipers are crucial for clear vision, especially when the weather turns bad. If your wipers are streaking, skipping, or just not w"
+title: 'How to Change Windshield Wipers Toyota Camry: Easy Step-by-Step Guide'
+description: Your Toyota Camry’s windshield wipers are crucial for clear vision, especially
+  when the weather turns bad. If your wipers are streaking, skipping, or just not
+  w
 pubDate: 2025-09-15
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-windshield-wipers-toyota-camry&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Windshield Wipers
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-windshield-wipers-toyota-camry&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Your Toyota Camry’s windshield wipers are crucial for clear vision, especially when the weather turns bad. If your wipers are streaking, skipping, or just not working well, it’s time for a change.**

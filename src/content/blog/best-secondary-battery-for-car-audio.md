@@ -1,10 +1,14 @@
 ---
-title: "Best Secondary Battery for Car Audio: Top Power Cells for Ultimate Sound"
-description: "Choosing the best secondary battery for car audio ensures reliable power and clear sound. A good battery supports your system without draining your main car bat"
+title: 'Best Secondary Battery for Car Audio: Top Power Cells for Ultimate Sound'
+description: Choosing the best secondary battery for car audio ensures reliable power
+  and clear sound. A good battery supports your system without draining your main
+  car bat
 pubDate: 2025-11-18
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-secondary-battery-for-car-audio&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Choosing the Best Battery
+heroImage: https://tse1.mm.bing.net/th?q=best-secondary-battery-for-car-audio&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Choosing the best secondary battery for car audio ensures reliable power and clear sound. A good battery supports your system without draining your main car battery.**

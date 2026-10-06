@@ -1,10 +1,14 @@
 ---
-title: "Why are Harley Davidson Motorcycles Called Hogs: The Untold Story"
-description: "Have you ever wondered why Harley Davidson motorcycles are nicknamed “Hogs”? If you’re curious about this unique name and what it really means, you’re in the ri"
+title: 'Why are Harley Davidson Motorcycles Called Hogs: The Untold Story'
+description: Have you ever wondered why Harley Davidson motorcycles are nicknamed
+  “Hogs”? If you’re curious about this unique name and what it really means, you’re
+  in the ri
 pubDate: 2025-09-01
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-are-harley-davidson-motorcycles-called-hogs&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Ownership Questions
+heroImage: https://tse1.mm.bing.net/th?q=why-are-harley-davidson-motorcycles-called-hogs&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Have you ever wondered why Harley Davidson motorcycles are nicknamed “Hogs”? If you’re curious about this unique name and what it really means, you’re in the right place.**

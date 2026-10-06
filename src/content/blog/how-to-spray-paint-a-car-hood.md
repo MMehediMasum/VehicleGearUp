@@ -1,10 +1,14 @@
 ---
-title: "How to Spray Paint a Car Hood: Expert Tips for a Flawless Finish"
-description: "Are you ready to give your car hood a fresh, eye-catching look without spending a fortune? Learning how to spray paint a car hood yourself can save you time and"
+title: 'How to Spray Paint a Car Hood: Expert Tips for a Flawless Finish'
+description: Are you ready to give your car hood a fresh, eye-catching look without
+  spending a fortune? Learning how to spray paint a car hood yourself can save you
+  time and
 pubDate: 2025-10-18
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-spray-paint-a-car-hood&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spray Paint and Scratch Repair
+heroImage: https://tse1.mm.bing.net/th?q=how-to-spray-paint-a-car-hood&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Are you ready to give your car hood a fresh, eye-catching look without spending a fortune? Learning how to spray paint a car hood yourself can save you time and money while letting you customize your ride exactly how you want.**

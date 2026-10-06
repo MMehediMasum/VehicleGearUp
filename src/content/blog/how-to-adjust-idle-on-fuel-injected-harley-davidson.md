@@ -1,10 +1,14 @@
 ---
-title: "How to Adjust Idle on Fuel Injected Harley Davidson: Easy Steps"
-description: "If you own a fuel-injected Harley Davidson, you know how important it is to have your bike running smoothly. One key part of that smooth ride is setting the rig"
+title: 'How to Adjust Idle on Fuel Injected Harley Davidson: Easy Steps'
+description: If you own a fuel-injected Harley Davidson, you know how important it
+  is to have your bike running smoothly. One key part of that smooth ride is setting
+  the rig
 pubDate: 2026-03-02
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-adjust-idle-on-fuel-injected-harley-davidson&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Ownership Questions
+heroImage: https://tse1.mm.bing.net/th?q=how-to-adjust-idle-on-fuel-injected-harley-davidson&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **If you own a fuel-injected Harley Davidson, you know how important it is to have your bike running smoothly. One key part of that smooth ride is setting the right idle speed.**

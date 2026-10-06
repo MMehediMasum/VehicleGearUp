@@ -1,10 +1,14 @@
 ---
-title: "What Should a Car Battery Read on a Multimeter: Essential Voltage Guide"
-description: "Have you ever wondered if your car battery is really healthy or on the verge of dying? Knowing what your car battery should read on a multimeter can save you fr"
+title: 'What Should a Car Battery Read on a Multimeter: Essential Voltage Guide'
+description: Have you ever wondered if your car battery is really healthy or on the
+  verge of dying? Knowing what your car battery should read on a multimeter can save
+  you fr
 pubDate: 2026-03-28
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-should-a-car-battery-read-on-a-multimeter&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Normal Battery Voltage
+heroImage: https://tse1.mm.bing.net/th?q=what-should-a-car-battery-read-on-a-multimeter&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if your car battery is really healthy or on the verge of dying? Knowing what your car battery should read on a multimeter can save you from unexpected breakdowns and costly repairs.**

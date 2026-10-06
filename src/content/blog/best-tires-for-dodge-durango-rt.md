@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Dodge Durango Rt: Top Durable and High-Performance Picks"
-description: "Choosing the best tires for your Dodge Durango R/T ensures safety and improves driving performance. The right tires provide better traction, handling, and comfo"
+title: 'Best Tires for Dodge Durango Rt: Top Durable and High-Performance Picks'
+description: Choosing the best tires for your Dodge Durango R/T ensures safety and
+  improves driving performance. The right tires provide better traction, handling,
+  and comfo
 pubDate: 2025-12-25
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-dodge-durango-rt&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ram and Dodge Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-dodge-durango-rt&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your Dodge Durango R/T ensures safety and improves driving performance. The right tires provide better traction, handling, and comfort on all roads.**

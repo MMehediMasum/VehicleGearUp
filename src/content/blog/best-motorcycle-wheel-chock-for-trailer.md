@@ -1,10 +1,14 @@
 ---
-title: "Best Motorcycle Wheel Chock for Trailer: Top Heavy Duty Adjustable Stands"
-description: "Finding the best motorcycle wheel chock for your trailer ensures safe and stable transport. A good chock keeps your bike steady during travel and prevents damag"
+title: 'Best Motorcycle Wheel Chock for Trailer: Top Heavy Duty Adjustable Stands'
+description: Finding the best motorcycle wheel chock for your trailer ensures safe
+  and stable transport. A good chock keeps your bike steady during travel and prevents
+  damag
 pubDate: 2026-06-30
-author: "herbertlangham"
-categories: ["Towing & Hauling"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-motorcycle-wheel-chock-for-trailer&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Helmets and Boots
+heroImage: https://tse1.mm.bing.net/th?q=best-motorcycle-wheel-chock-for-trailer&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Finding the best motorcycle wheel chock for your trailer ensures safe and stable transport. A good chock keeps your bike steady during travel and prevents damage.**

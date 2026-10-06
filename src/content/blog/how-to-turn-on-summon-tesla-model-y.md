@@ -1,10 +1,14 @@
 ---
-title: "How to Turn on Summon Tesla Model Y: Easy Steps to Activate"
-description: "Have you ever wished your Tesla Model Y could come to you with just a tap on your phone? With the Summon feature, that wish becomes a reality. Imagine your car "
+title: 'How to Turn on Summon Tesla Model Y: Easy Steps to Activate'
+description: 'Have you ever wished your Tesla Model Y could come to you with just
+  a tap on your phone? With the Summon feature, that wish becomes a reality. Imagine
+  your car '
 pubDate: 2025-11-18
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-on-summon-tesla-model-y&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Summon and Dog Mode
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-on-summon-tesla-model-y&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Have you ever wished your Tesla Model Y could come to you with just a tap on your phone? With the Summon feature, that wish becomes a reality.**

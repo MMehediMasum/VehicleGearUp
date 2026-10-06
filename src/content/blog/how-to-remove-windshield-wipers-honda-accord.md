@@ -1,10 +1,14 @@
 ---
-title: "How to Remove Windshield Wipers Honda Accord: Easy Step-by-Step Guide"
-description: "If your Honda Accord’s windshield wipers aren’t working like they used to, it’s time for a change. You might think removing and replacing them is tricky, but it"
+title: 'How to Remove Windshield Wipers Honda Accord: Easy Step-by-Step Guide'
+description: If your Honda Accord’s windshield wipers aren’t working like they used
+  to, it’s time for a change. You might think removing and replacing them is tricky,
+  but it
 pubDate: 2025-10-13
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-remove-windshield-wipers-honda-accord&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Windshield Wipers
+heroImage: https://tse1.mm.bing.net/th?q=how-to-remove-windshield-wipers-honda-accord&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If your Honda Accord’s windshield wipers aren’t working like they used to, it’s time for a change. You might think removing and replacing them is tricky, but it’s easier than you expect.**

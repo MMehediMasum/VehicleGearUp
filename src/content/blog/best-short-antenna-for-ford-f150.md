@@ -1,10 +1,13 @@
 ---
-title: "Best Short Antenna for Ford F150: Top Durable & Car Wash-Proof Picks"
-description: "Finding the best short antenna for your Ford F150 improves radio reception and keeps your truck looking sleek. Short antennas offer durability and resist damage"
+title: 'Best Short Antenna for Ford F150: Top Durable & Car Wash-Proof Picks'
+description: Finding the best short antenna for your Ford F150 improves radio reception
+  and keeps your truck looking sleek. Short antennas offer durability and resist damage
 pubDate: 2026-06-21
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-short-antenna-for-ford-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Entertainment Systems
+heroImage: https://tse1.mm.bing.net/th?q=best-short-antenna-for-ford-f150&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Finding the best short antenna for your Ford F150 improves radio reception and keeps your truck looking sleek. Short antennas offer durability and resist damage from car washes and weather.**

@@ -1,10 +1,14 @@
 ---
-title: "What is the Correct Tire Pressure for a Toyota Rav4: Expert Guide"
-description: "Are you sure your Toyota Rav4’s tire pressure is just right? Keeping your tires at the correct pressure is one of the easiest ways to boost safety, save fuel, a"
+title: 'What is the Correct Tire Pressure for a Toyota Rav4: Expert Guide'
+description: Are you sure your Toyota Rav4’s tire pressure is just right? Keeping
+  your tires at the correct pressure is one of the easiest ways to boost safety, save
+  fuel, a
 pubDate: 2026-02-20
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-correct-tire-pressure-for-a-toyota-rav4&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Tire Pressure Light
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-correct-tire-pressure-for-a-toyota-rav4&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Are you sure your Toyota Rav4’s tire pressure is just right? Keeping your tires at the correct pressure is one of the easiest ways to boost safety, save fuel, and extend the life of your tires.**

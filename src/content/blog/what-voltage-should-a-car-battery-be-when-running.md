@@ -1,10 +1,14 @@
 ---
-title: "What Voltage Should a Car Battery Be When Running: Essential Guide"
-description: "Have you ever wondered if your car battery is working the way it should while your engine is running? Knowing the right voltage your battery should have can sav"
+title: 'What Voltage Should a Car Battery Be When Running: Essential Guide'
+description: Have you ever wondered if your car battery is working the way it should
+  while your engine is running? Knowing the right voltage your battery should have
+  can sav
 pubDate: 2026-04-19
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-voltage-should-a-car-battery-be-when-running&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Normal Battery Voltage
+heroImage: https://tse1.mm.bing.net/th?q=what-voltage-should-a-car-battery-be-when-running&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if your car battery is working the way it should while your engine is running? Knowing the right voltage your battery should have can save you from unexpected breakdowns and costly repairs.**

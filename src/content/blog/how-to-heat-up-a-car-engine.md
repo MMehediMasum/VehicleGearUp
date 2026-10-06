@@ -1,10 +1,14 @@
 ---
-title: "How to Heat Up a Car Engine: Quick Tips for Cold Mornings"
-description: "Have you ever wondered why it’s important to heat up your car engine before hitting the road? Starting your car on a cold morning without warming it up can affe"
+title: 'How to Heat Up a Car Engine: Quick Tips for Cold Mornings'
+description: Have you ever wondered why it’s important to heat up your car engine
+  before hitting the road? Starting your car on a cold morning without warming it
+  up can affe
 pubDate: 2025-11-07
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-heat-up-a-car-engine&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- How Car Engines Work
+heroImage: https://tse1.mm.bing.net/th?q=how-to-heat-up-a-car-engine&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you ever wondered why it’s important to heat up your car engine before hitting the road? Starting your car on a cold morning without warming it up can affect your engine’s performance and even shorten its lifespan.**

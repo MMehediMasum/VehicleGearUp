@@ -1,10 +1,14 @@
 ---
-title: "How to Remove a Dent from a Plastic Car Bumper: Easy DIY Fixes"
-description: "Have you noticed an annoying dent on your plastic car bumper and wondered how to fix it without spending a fortune? You’re not alone. Small dents can make your "
+title: 'How to Remove a Dent from a Plastic Car Bumper: Easy DIY Fixes'
+description: 'Have you noticed an annoying dent on your plastic car bumper and wondered
+  how to fix it without spending a fortune? You’re not alone. Small dents can make
+  your '
 pubDate: 2026-03-20
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-remove-a-dent-from-a-plastic-car-bumper&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Bumper Dent and Scratch Repair
+heroImage: https://tse1.mm.bing.net/th?q=how-to-remove-a-dent-from-a-plastic-car-bumper&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you noticed an annoying dent on your plastic car bumper and wondered how to fix it without spending a fortune? You’re not alone.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Touch Up Paint Pen for Cars: Quick, Easy, and Color Accurate Repair"
-description: "Finding the best touch up paint pen for cars helps maintain your vehicle’s look. These pens fix scratches quickly and easily. Small scratches and chips ruin you"
+title: 'Best Touch Up Paint Pen for Cars: Quick, Easy, and Color Accurate Repair'
+description: Finding the best touch up paint pen for cars helps maintain your vehicle’s
+  look. These pens fix scratches quickly and easily. Small scratches and chips ruin
+  you
 pubDate: 2025-10-23
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-touch-up-paint-pen-for-cars&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spray Paint and Scratch Repair
+heroImage: https://tse1.mm.bing.net/th?q=best-touch-up-paint-pen-for-cars&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Finding the best touch up paint pen for cars helps maintain your vehicle’s look. These pens fix scratches quickly and easily.**

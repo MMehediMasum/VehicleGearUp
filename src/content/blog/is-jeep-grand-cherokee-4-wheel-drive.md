@@ -1,10 +1,14 @@
 ---
-title: "Is Jeep Grand Cherokee 4 Wheel Drive: Ultimate Off-Road Power?"
-description: "Are you wondering if the Jeep Grand Cherokee comes with 4-wheel drive? This question matters a lot if you want a vehicle that can handle rough roads, slippery c"
+title: 'Is Jeep Grand Cherokee 4 Wheel Drive: Ultimate Off-Road Power?'
+description: Are you wondering if the Jeep Grand Cherokee comes with 4-wheel drive?
+  This question matters a lot if you want a vehicle that can handle rough roads, slippery
+  c
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-jeep-grand-cherokee-4-wheel-drive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota 4WD Questions
+heroImage: https://tse1.mm.bing.net/th?q=is-jeep-grand-cherokee-4-wheel-drive&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you wondering if the Jeep Grand Cherokee comes with 4-wheel drive? This question matters a lot if you want a vehicle that can handle rough roads, slippery conditions, or off-road adventures.**

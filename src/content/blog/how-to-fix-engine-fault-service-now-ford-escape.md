@@ -1,10 +1,14 @@
 ---
-title: "How to Fix Engine Fault Service Now Ford Escape: Quick Solutions"
-description: "Is the “Engine Fault Service Now” message showing up on your Ford Escape’s dashboard? It can be scary and confusing to see this warning without knowing what it "
+title: 'How to Fix Engine Fault Service Now Ford Escape: Quick Solutions'
+description: 'Is the “Engine Fault Service Now” message showing up on your Ford Escape’s
+  dashboard? It can be scary and confusing to see this warning without knowing what
+  it '
 pubDate: 2026-05-11
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-engine-fault-service-now-ford-escape&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Dashboard Lights and Noises
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-engine-fault-service-now-ford-escape&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is the “Engine Fault Service Now” message showing up on your Ford Escape’s dashboard? It can be scary and confusing to see this warning without knowing what it means or how to fix it.**

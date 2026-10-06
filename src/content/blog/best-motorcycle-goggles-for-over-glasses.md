@@ -1,10 +1,14 @@
 ---
-title: "Best Motorcycle Goggles for Over Glasses: Top Comfortable, Protective Picks"
-description: "Riders who wear glasses need motorcycle goggles that fit comfortably over their frames. The right pair protects your eyes from wind, dust, and sun while keeping"
+title: 'Best Motorcycle Goggles for Over Glasses: Top Comfortable, Protective Picks'
+description: Riders who wear glasses need motorcycle goggles that fit comfortably
+  over their frames. The right pair protects your eyes from wind, dust, and sun while
+  keeping
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-motorcycle-goggles-for-over-glasses&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Helmets and Boots
+heroImage: https://tse1.mm.bing.net/th?q=best-motorcycle-goggles-for-over-glasses&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Riders who wear glasses need motorcycle goggles that fit comfortably over their frames. The right pair protects your eyes from wind, dust, and sun while keeping your vision clear.**

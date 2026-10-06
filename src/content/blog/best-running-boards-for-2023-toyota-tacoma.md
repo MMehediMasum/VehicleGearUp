@@ -1,10 +1,14 @@
 ---
-title: "Best Running Boards for 2023 Toyota Tacoma: Top Durable Side Steps Reviewed"
-description: "Finding the best running boards for your 2023 Toyota Tacoma improves access and adds style. Running boards make getting in and out easier, especially for kids a"
+title: 'Best Running Boards for 2023 Toyota Tacoma: Top Durable Side Steps Reviewed'
+description: Finding the best running boards for your 2023 Toyota Tacoma improves
+  access and adds style. Running boards make getting in and out easier, especially
+  for kids a
 pubDate: 2025-10-23
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-running-boards-for-2023-toyota-tacoma&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Running Boards
+heroImage: https://tse1.mm.bing.net/th?q=best-running-boards-for-2023-toyota-tacoma&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Finding the best running boards for your 2023 Toyota Tacoma improves access and adds style. Running boards make getting in and out easier, especially for kids and older passengers.**

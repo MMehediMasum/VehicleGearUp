@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Life Honda Accord: Quick & Easy Guide"
-description: "If you drive a Honda Accord, keeping track of your oil life is key to your car’s health. But what happens when it’s time to reset the oil life indicator? You mi"
+title: 'How to Reset Oil Life Honda Accord: Quick & Easy Guide'
+description: If you drive a Honda Accord, keeping track of your oil life is key to
+  your car’s health. But what happens when it’s time to reset the oil life indicator?
+  You mi
 pubDate: 2025-08-31
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-life-honda-accord&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Oil Life Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-life-honda-accord&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you drive a Honda Accord, keeping track of your oil life is key to your car’s health. But what happens when it’s time to reset the oil life indicator?**

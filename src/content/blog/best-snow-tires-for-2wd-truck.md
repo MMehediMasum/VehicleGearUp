@@ -1,10 +1,14 @@
 ---
-title: "Best Snow Tires for 2Wd Truck: Top Traction Chains and Wheels Reviewed"
-description: "Choosing the best snow tires for a 2WD truck improves safety and performance in winter conditions. Proper tires help maintain control on icy and snowy roads. Dr"
+title: 'Best Snow Tires for 2Wd Truck: Top Traction Chains and Wheels Reviewed'
+description: Choosing the best snow tires for a 2WD truck improves safety and performance
+  in winter conditions. Proper tires help maintain control on icy and snowy roads.
+  Dr
 pubDate: 2025-12-22
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-snow-tires-for-2wd-truck&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Snow Tires for Trucks
+heroImage: https://tse1.mm.bing.net/th?q=best-snow-tires-for-2wd-truck&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best snow tires for a 2WD truck improves safety and performance in winter conditions. Proper tires help maintain control on icy and snowy roads.**

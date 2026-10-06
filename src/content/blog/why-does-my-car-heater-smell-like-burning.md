@@ -1,10 +1,14 @@
 ---
-title: "Why Does My Car Heater Smell Like Burning: Causes & Fixes"
-description: "Have you ever turned on your car heater and noticed a strange burning smell? It’s unsettling and can make you wonder if something is seriously wrong with your v"
+title: 'Why Does My Car Heater Smell Like Burning: Causes & Fixes'
+description: Have you ever turned on your car heater and noticed a strange burning
+  smell? It’s unsettling and can make you wonder if something is seriously wrong with
+  your v
 pubDate: 2026-02-13
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-does-my-car-heater-smell-like-burning&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Heater Not Working
+heroImage: https://tse1.mm.bing.net/th?q=why-does-my-car-heater-smell-like-burning&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever turned on your car heater and noticed a strange burning smell? It’s unsettling and can make you wonder if something is seriously wrong with your vehicle.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Tell If Car Battery is Bad With Multimeter: Easy Guide"
-description: "Is your car struggling to start, or have you noticed dim headlights? Your battery might be the culprit. But how can you be sure without spending money on a mech"
+title: 'How to Tell If Car Battery is Bad With Multimeter: Easy Guide'
+description: Is your car struggling to start, or have you noticed dim headlights?
+  Your battery might be the culprit. But how can you be sure without spending money
+  on a mech
 pubDate: 2026-04-17
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-tell-if-car-battery-is-bad-with-multimeter&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Types and Specs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-tell-if-car-battery-is-bad-with-multimeter&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your car struggling to start, or have you noticed dim headlights? Your battery might be the culprit.**

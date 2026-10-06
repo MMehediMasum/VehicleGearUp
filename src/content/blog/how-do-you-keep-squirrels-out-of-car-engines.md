@@ -1,10 +1,14 @@
 ---
-title: "How Do You Keep Squirrels Out of Car Engines: Effective Tips"
-description: "Have you ever found your car engine chewed up or filled with tiny nests? Squirrels love to hide in warm, cozy places—and your car engine is their favorite spot."
+title: 'How Do You Keep Squirrels Out of Car Engines: Effective Tips'
+description: Have you ever found your car engine chewed up or filled with tiny nests?
+  Squirrels love to hide in warm, cozy places—and your car engine is their favorite
+  spot.
 pubDate: 2026-04-28
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-keep-squirrels-out-of-car-engines&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Keeping Pests Out of Engines
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-keep-squirrels-out-of-car-engines&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever found your car engine chewed up or filled with tiny nests? Squirrels love to hide in warm, cozy places—and your car engine is their favorite spot.**

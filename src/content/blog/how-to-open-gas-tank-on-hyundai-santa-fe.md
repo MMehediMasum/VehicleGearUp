@@ -1,10 +1,14 @@
 ---
-title: "How to Open Gas Tank on Hyundai Santa Fe: Easy Step-by-Step Guide"
-description: "Have you ever stood next to your Hyundai Santa Fe, unsure how to open the gas tank? It can be frustrating when you’re in a hurry or at a busy gas station. But d"
+title: 'How to Open Gas Tank on Hyundai Santa Fe: Easy Step-by-Step Guide'
+description: Have you ever stood next to your Hyundai Santa Fe, unsure how to open
+  the gas tank? It can be frustrating when you’re in a hurry or at a busy gas station.
+  But d
 pubDate: 2026-02-09
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-open-gas-tank-on-hyundai-santa-fe&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Opening European Gas Tanks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-open-gas-tank-on-hyundai-santa-fe&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Have you ever stood next to your Hyundai Santa Fe, unsure how to open the gas tank? It can be frustrating when you’re in a hurry or at a busy gas station.**

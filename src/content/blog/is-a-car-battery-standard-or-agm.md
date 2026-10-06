@@ -1,10 +1,14 @@
 ---
-title: "Is a Car Battery Standard Or Agm: Which One Powers Best?"
-description: "Are you confused about whether your car needs a standard battery or an AGM battery? Choosing the right battery isn’t just about getting your engine started—it a"
+title: 'Is a Car Battery Standard Or Agm: Which One Powers Best?'
+description: Are you confused about whether your car needs a standard battery or an
+  AGM battery? Choosing the right battery isn’t just about getting your engine started—it
+  a
 pubDate: 2026-05-06
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-a-car-battery-standard-or-agm&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Types and Specs
+heroImage: https://tse1.mm.bing.net/th?q=is-a-car-battery-standard-or-agm&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you confused about whether your car needs a standard battery or an AGM battery? Choosing the right battery isn’t just about getting your engine started—it affects your car’s performance and your peace of mind.**

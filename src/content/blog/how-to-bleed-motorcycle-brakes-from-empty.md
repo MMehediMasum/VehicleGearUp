@@ -1,10 +1,14 @@
 ---
-title: "How to Bleed Motorcycle Brakes from Empty: Step-by-Step Guide"
-description: "Have you ever faced the frustrating moment when your motorcycle brakes feel spongy or completely unresponsive? If your brake fluid reservoir is empty, it’s a se"
+title: 'How to Bleed Motorcycle Brakes from Empty: Step-by-Step Guide'
+description: Have you ever faced the frustrating moment when your motorcycle brakes
+  feel spongy or completely unresponsive? If your brake fluid reservoir is empty,
+  it’s a se
 pubDate: 2025-09-18
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-bleed-motorcycle-brakes-from-empty&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Batteries and Brakes
+heroImage: https://tse1.mm.bing.net/th?q=how-to-bleed-motorcycle-brakes-from-empty&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Have you ever faced the frustrating moment when your motorcycle brakes feel spongy or completely unresponsive? If your brake fluid reservoir is empty, it’s a serious issue that you can’t ignore.**

@@ -1,10 +1,14 @@
 ---
-title: "What Causes Corrosion on Car Battery Terminals: Top Reasons Revealed"
-description: "Have you ever noticed a white or greenish powdery buildup around your car battery terminals? That’s corrosion, and it can cause serious problems for your vehicl"
+title: 'What Causes Corrosion on Car Battery Terminals: Top Reasons Revealed'
+description: Have you ever noticed a white or greenish powdery buildup around your
+  car battery terminals? That’s corrosion, and it can cause serious problems for your
+  vehicl
 pubDate: 2026-04-09
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-causes-corrosion-on-car-battery-terminals&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Polarity and Acid
+heroImage: https://tse1.mm.bing.net/th?q=what-causes-corrosion-on-car-battery-terminals&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever noticed a white or greenish powdery buildup around your car battery terminals? That’s corrosion, and it can cause serious problems for your vehicle.**

@@ -1,10 +1,14 @@
 ---
-title: "Do Mazda CX-5 Hold Their Value: Ultimate Resale Insights"
-description: "Are you thinking about buying a Mazda CX-5 but worried about how well it will hold its value over time? You’re not alone. When you invest in a car, you want to "
+title: 'Do Mazda CX-5 Hold Their Value: Ultimate Resale Insights'
+description: 'Are you thinking about buying a Mazda CX-5 but worried about how well
+  it will hold its value over time? You’re not alone. When you invest in a car, you
+  want to '
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Buying & Ownership"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-mazda-cx-5-hold-their-value&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Model Availability and Value
+heroImage: https://tse1.mm.bing.net/th?q=do-mazda-cx-5-hold-their-value&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you thinking about buying a Mazda CX-5 but worried about how well it will hold its value over time? You’re not alone.**

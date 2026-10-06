@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Maintenance Light on Toyota Camry Hybrid: Easy Guide"
-description: "If you drive a Toyota Camry Hybrid, you’ve probably noticed that maintenance light pop up on your dashboard. It can be annoying and confusing, especially if you"
+title: 'How to Reset Maintenance Light on Toyota Camry Hybrid: Easy Guide'
+description: If you drive a Toyota Camry Hybrid, you’ve probably noticed that maintenance
+  light pop up on your dashboard. It can be annoying and confusing, especially if
+  you
 pubDate: 2026-05-21
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-maintenance-light-on-toyota-camry-hybrid&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Hybrid Tires
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-maintenance-light-on-toyota-camry-hybrid&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **If you drive a Toyota Camry Hybrid, you’ve probably noticed that maintenance light pop up on your dashboard. It can be annoying and confusing, especially if you’re not sure what it means or how to turn it off.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Mud Tires for a Truck: Top Off-Road Picks for Ultimate Traction"
-description: "Choosing the best mud tires for a truck improves off-road performance and safety. Mud tires offer better grip on rough, muddy surfaces than regular tires. Mud t"
+title: 'Best Mud Tires for a Truck: Top Off-Road Picks for Ultimate Traction'
+description: Choosing the best mud tires for a truck improves off-road performance
+  and safety. Mud tires offer better grip on rough, muddy surfaces than regular tires.
+  Mud t
 pubDate: 2025-12-25
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-mud-tires-for-a-truck&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Mud and Highway Truck Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-mud-tires-for-a-truck&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best mud tires for a truck improves off-road performance and safety. Mud tires offer better grip on rough, muddy surfaces than regular tires.**

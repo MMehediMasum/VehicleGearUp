@@ -1,10 +1,14 @@
 ---
-title: "How to Strap down a Motorcycle in a Truck Bed: Ultimate Safety Guide"
-description: "If you need to transport your motorcycle safely in a truck bed, knowing how to strap it down properly is key. You don’t want your bike shifting, tipping, or get"
+title: 'How to Strap down a Motorcycle in a Truck Bed: Ultimate Safety Guide'
+description: If you need to transport your motorcycle safely in a truck bed, knowing
+  how to strap it down properly is key. You don’t want your bike shifting, tipping,
+  or get
 pubDate: 2025-09-16
-author: "herbertlangham"
-categories: ["Towing & Hauling"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-strap-down-a-motorcycle-in-a-truck-bed&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hauling Motorcycles in Trucks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-strap-down-a-motorcycle-in-a-truck-bed&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **If you need to transport your motorcycle safely in a truck bed, knowing how to strap it down properly is key. You don’t want your bike shifting, tipping, or getting damaged while on the road.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Maint Reqd Toyota Corolla: Quick & Easy Guide"
-description: "Your Toyota Corolla’s maintenance light just came on, and now you’re wondering how to reset it. It’s a simple task that you can do yourself without needing to v"
+title: 'How to Reset Maint Reqd Toyota Corolla: Quick & Easy Guide'
+description: Your Toyota Corolla’s maintenance light just came on, and now you’re
+  wondering how to reset it. It’s a simple task that you can do yourself without needing
+  to v
 pubDate: 2026-02-01
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-maint-reqd-toyota-corolla&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Maint Reqd Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-maint-reqd-toyota-corolla&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Your Toyota Corolla’s maintenance light just came on, and now you’re wondering how to reset it. It’s a simple task that you can do yourself without needing to visit a mechanic.**

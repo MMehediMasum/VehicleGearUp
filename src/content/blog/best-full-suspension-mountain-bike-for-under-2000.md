@@ -1,10 +1,14 @@
 ---
-title: "Best Full Suspension Mountain Bike for Under 2000: Top Picks Reviewed"
-description: "Finding a reliable full suspension mountain bike under $2000 is possible without sacrificing quality. These bikes offer comfort and control on rough trails. Cho"
+title: 'Best Full Suspension Mountain Bike for Under 2000: Top Picks Reviewed'
+description: Finding a reliable full suspension mountain bike under $2000 is possible
+  without sacrificing quality. These bikes offer comfort and control on rough trails.
+  Cho
 pubDate: 2026-01-10
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-full-suspension-mountain-bike-for-under-2000&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Electric and Mountain Bikes
+heroImage: https://tse1.mm.bing.net/th?q=best-full-suspension-mountain-bike-for-under-2000&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Finding a reliable full suspension mountain bike under $2000 is possible without sacrificing quality. These bikes offer comfort and control on rough trails.**

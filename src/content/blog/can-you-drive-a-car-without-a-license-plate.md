@@ -1,10 +1,14 @@
 ---
-title: "Can You Drive a Car Without a License Plate? Essential Facts Revealed"
-description: "Have you ever wondered if you can drive a car without a license plate? Maybe you’re in a hurry, or your new car hasn’t arrived with plates yet. It sounds simple"
+title: Can You Drive a Car Without a License Plate? Essential Facts Revealed
+description: Have you ever wondered if you can drive a car without a license plate?
+  Maybe you’re in a hurry, or your new car hasn’t arrived with plates yet. It sounds
+  simple
 pubDate: 2025-12-11
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-drive-a-car-without-a-license-plate&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- License Plate Questions
+heroImage: https://tse1.mm.bing.net/th?q=can-you-drive-a-car-without-a-license-plate&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Have you ever wondered if you can drive a car without a license plate? Maybe you’re in a hurry, or your new car hasn’t arrived with plates yet.**

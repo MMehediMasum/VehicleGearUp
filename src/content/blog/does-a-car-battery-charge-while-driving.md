@@ -1,10 +1,14 @@
 ---
-title: "Does a Car Battery Charge While Driving: Truths You Must Know"
-description: "Have you ever wondered if your car battery charges while you’re driving? It’s a question that many drivers ask, especially when their battery starts acting up. "
+title: 'Does a Car Battery Charge While Driving: Truths You Must Know'
+description: 'Have you ever wondered if your car battery charges while you’re driving?
+  It’s a question that many drivers ask, especially when their battery starts acting
+  up. '
 pubDate: 2026-04-04
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-a-car-battery-charge-while-driving&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Charging While Idling
+heroImage: https://tse1.mm.bing.net/th?q=does-a-car-battery-charge-while-driving&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if your car battery charges while you’re driving? It’s a question that many drivers ask, especially when their battery starts acting up.**

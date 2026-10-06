@@ -1,10 +1,14 @@
 ---
-title: "Will a Bad Catalytic Converter Cause Car Not to Start? Key Signs"
-description: "Have you ever turned the key in your car’s ignition only to find it won’t start? It’s frustrating and can leave you stranded. One possible culprit you might not"
+title: Will a Bad Catalytic Converter Cause Car Not to Start? Key Signs
+description: Have you ever turned the key in your car’s ignition only to find it won’t
+  start? It’s frustrating and can leave you stranded. One possible culprit you might
+  not
 pubDate: 2026-03-07
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=will-a-bad-catalytic-converter-cause-car-not-to-start&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Catalytic Converter Questions
+heroImage: https://tse1.mm.bing.net/th?q=will-a-bad-catalytic-converter-cause-car-not-to-start&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you ever turned the key in your car’s ignition only to find it won’t start? It’s frustrating and can leave you stranded.**

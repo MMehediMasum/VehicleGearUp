@@ -1,10 +1,14 @@
 ---
-title: "How to Tell If Your Car Starter is Going Bad: Key Warning Signs"
-description: "Have you ever turned your key, only to hear a clicking sound or nothing at all? That’s often the first sign your car starter might be failing. Knowing how to sp"
+title: 'How to Tell If Your Car Starter is Going Bad: Key Warning Signs'
+description: Have you ever turned your key, only to hear a clicking sound or nothing
+  at all? That’s often the first sign your car starter might be failing. Knowing how
+  to sp
 pubDate: 2026-02-09
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-tell-if-your-car-starter-is-going-bad&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Starter Problems
+heroImage: https://tse1.mm.bing.net/th?q=how-to-tell-if-your-car-starter-is-going-bad&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you ever turned your key, only to hear a clicking sound or nothing at all? That’s often the first sign your car starter might be failing.**

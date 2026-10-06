@@ -1,10 +1,14 @@
 ---
-title: "How to Repair Hole in Plastic Car Bumper: Easy DIY Fixes"
-description: "Have you noticed a hole in your plastic car bumper and wondered how to fix it without spending a fortune? A damaged bumper not only looks bad but can also affec"
+title: 'How to Repair Hole in Plastic Car Bumper: Easy DIY Fixes'
+description: Have you noticed a hole in your plastic car bumper and wondered how to
+  fix it without spending a fortune? A damaged bumper not only looks bad but can also
+  affec
 pubDate: 2026-04-26
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-repair-hole-in-plastic-car-bumper&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Bumper Dent and Scratch Repair
+heroImage: https://tse1.mm.bing.net/th?q=how-to-repair-hole-in-plastic-car-bumper&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you noticed a hole in your plastic car bumper and wondered how to fix it without spending a fortune? A damaged bumper not only looks bad but can also affect your car’s safety.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for Mustang Ecoboost: Boost Power and Performance"
-description: "Upgrading the cold air intake can boost your Mustang Ecoboost’s performance and efficiency. Choosing the right system improves airflow and engine power. Cold ai"
+title: 'Best Cold Air Intake for Mustang Ecoboost: Boost Power and Performance'
+description: Upgrading the cold air intake can boost your Mustang Ecoboost’s performance
+  and efficiency. Choosing the right system improves airflow and engine power. Cold
+  ai
 pubDate: 2026-06-23
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-mustang-ecoboost&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-mustang-ecoboost&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Upgrading the cold air intake can boost your Mustang Ecoboost’s performance and efficiency. Choosing the right system improves airflow and engine power.**

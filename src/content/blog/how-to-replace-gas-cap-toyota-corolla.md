@@ -1,10 +1,14 @@
 ---
-title: "How to Replace Gas Cap Toyota Corolla: Easy Step-by-Step Guide"
-description: "If you’ve noticed the check engine light on your Toyota Corolla or smell fuel around your car, the gas cap might be the simple fix you need. Replacing your gas "
+title: 'How to Replace Gas Cap Toyota Corolla: Easy Step-by-Step Guide'
+description: 'If you’ve noticed the check engine light on your Toyota Corolla or smell
+  fuel around your car, the gas cap might be the simple fix you need. Replacing your
+  gas '
 pubDate: 2026-04-25
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-replace-gas-cap-toyota-corolla&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ram Throttle and Computer Resets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-replace-gas-cap-toyota-corolla&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If you’ve noticed the check engine light on your Toyota Corolla or smell fuel around your car, the gas cap might be the simple fix you need. Replacing your gas cap is easier than you think and can save you from costly repairs down the road.**

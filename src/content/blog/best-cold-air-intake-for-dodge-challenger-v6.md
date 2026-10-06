@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for Dodge Challenger V6 to Boost Performance"
-description: "Finding the best cold air intake for your Dodge Challenger V6 boosts engine power and improves airflow. This upgrade helps your car breathe better and run smoot"
+title: Best Cold Air Intake for Dodge Challenger V6 to Boost Performance
+description: Finding the best cold air intake for your Dodge Challenger V6 boosts
+  engine power and improves airflow. This upgrade helps your car breathe better and
+  run smoot
 pubDate: 2026-06-07
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-dodge-challenger-v6&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hemi Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-dodge-challenger-v6&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Finding the best cold air intake for your Dodge Challenger V6 boosts engine power and improves airflow. This upgrade helps your car breathe better and run smoother.**

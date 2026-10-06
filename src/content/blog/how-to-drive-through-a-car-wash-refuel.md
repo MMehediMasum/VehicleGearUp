@@ -1,10 +1,14 @@
 ---
-title: "How to Drive Through a Car Wash Refuel: Expert Tips Unveiled"
-description: "Have you ever felt unsure about what to do when you need to refuel your car at a drive-through car wash? You’re not alone. Many drivers find this process confus"
+title: 'How to Drive Through a Car Wash Refuel: Expert Tips Unveiled'
+description: Have you ever felt unsure about what to do when you need to refuel your
+  car at a drive-through car wash? You’re not alone. Many drivers find this process
+  confus
 pubDate: 2026-03-23
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-drive-through-a-car-wash-refuel&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Going Through Car Washes
+heroImage: https://tse1.mm.bing.net/th?q=how-to-drive-through-a-car-wash-refuel&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever felt unsure about what to do when you need to refuel your car at a drive-through car wash? You’re not alone.**

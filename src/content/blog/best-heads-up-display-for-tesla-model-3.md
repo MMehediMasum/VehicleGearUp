@@ -1,10 +1,14 @@
 ---
-title: "Best Heads Up Display for Tesla Model 3 with Wireless CarPlay & Android Auto"
-description: "Choosing the best heads up display (HUD) for your Tesla Model 3 can improve safety and convenience. HUDs show important driving data directly in your line of si"
+title: Best Heads Up Display for Tesla Model 3 with Wireless CarPlay & Android Auto
+description: Choosing the best heads up display (HUD) for your Tesla Model 3 can improve
+  safety and convenience. HUDs show important driving data directly in your line of
+  si
 pubDate: 2025-10-12
-author: "herbertlangham"
-categories: ["Car Technology & Features"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-heads-up-display-for-tesla-model-3&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Model Y Features
+heroImage: https://tse1.mm.bing.net/th?q=best-heads-up-display-for-tesla-model-3&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best heads up display (HUD) for your Tesla Model 3 can improve safety and convenience. HUDs show important driving data directly in your line of sight.**

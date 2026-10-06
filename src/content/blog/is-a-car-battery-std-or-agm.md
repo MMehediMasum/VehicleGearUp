@@ -1,10 +1,14 @@
 ---
-title: "Is a Car Battery Std Or Agm: Which One Powers Your Ride Best?"
-description: "Are you wondering whether your car needs a standard (STD) battery or an AGM battery? Choosing the right type can save you money, boost your car’s performance, a"
+title: 'Is a Car Battery Std Or Agm: Which One Powers Your Ride Best?'
+description: Are you wondering whether your car needs a standard (STD) battery or
+  an AGM battery? Choosing the right type can save you money, boost your car’s performance,
+  a
 pubDate: 2026-05-10
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-a-car-battery-std-or-agm&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Types and Specs
+heroImage: https://tse1.mm.bing.net/th?q=is-a-car-battery-std-or-agm&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you wondering whether your car needs a standard (STD) battery or an AGM battery? Choosing the right type can save you money, boost your car’s performance, and prevent unexpected breakdowns.**

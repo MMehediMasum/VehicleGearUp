@@ -1,10 +1,14 @@
 ---
-title: "Can a Toyota Camry Pull a Uhaul Trailer? Essential Guide 2025"
-description: "Are you thinking about moving or hauling something big but only have your trusty Toyota Camry? You might be wondering, “Can my Camry pull a Uhaul trailer?” It’s"
+title: Can a Toyota Camry Pull a Uhaul Trailer? Essential Guide 2025
+description: Are you thinking about moving or hauling something big but only have
+  your trusty Toyota Camry? You might be wondering, “Can my Camry pull a Uhaul trailer?”
+  It’s
 pubDate: 2025-08-27
-author: "herbertlangham"
-categories: ["Towing & Hauling"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-a-toyota-camry-pull-a-uhaul-trailer&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Trailer Gear and Accessories
+heroImage: https://tse1.mm.bing.net/th?q=can-a-toyota-camry-pull-a-uhaul-trailer&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Are you thinking about moving or hauling something big but only have your trusty Toyota Camry? You might be wondering, “Can my Camry pull a Uhaul trailer?” It’s a common question because many people want to use their everyday car for extra tasks without renting a bigger vehicle.**

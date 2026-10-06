@@ -1,10 +1,14 @@
 ---
-title: "How to Get Skunk Smell off Car Tires: Easy & Effective Tips"
-description: "Have you ever gotten into your car only to be hit by a strong, unpleasant skunk smell? If your car tires have picked up that nasty odor, you know how hard it ca"
+title: 'How to Get Skunk Smell off Car Tires: Easy & Effective Tips'
+description: Have you ever gotten into your car only to be hit by a strong, unpleasant
+  skunk smell? If your car tires have picked up that nasty odor, you know how hard
+  it ca
 pubDate: 2025-12-14
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-get-skunk-smell-off-car-tires&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tire Construction and Origin
+heroImage: https://tse1.mm.bing.net/th?q=how-to-get-skunk-smell-off-car-tires&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Have you ever gotten into your car only to be hit by a strong, unpleasant skunk smell? If your car tires have picked up that nasty odor, you know how hard it can be to get rid of it.**

@@ -1,10 +1,13 @@
 ---
-title: "Where is the Vin on a Harley Davidson Motorcycle: Easy Location Guide"
-description: "Are you trying to find the VIN on your Harley Davidson motorcycle but not sure where to look? The Vehicle Identification Number (VIN) is crucial for everything "
+title: 'Where is the Vin on a Harley Davidson Motorcycle: Easy Location Guide'
+description: 'Are you trying to find the VIN on your Harley Davidson motorcycle but
+  not sure where to look? The Vehicle Identification Number (VIN) is crucial for everything '
 pubDate: 2025-09-05
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-is-the-vin-on-a-harley-davidson-motorcycle&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Maintenance Basics
+heroImage: https://tse1.mm.bing.net/th?q=where-is-the-vin-on-a-harley-davidson-motorcycle&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you trying to find the VIN on your Harley Davidson motorcycle but not sure where to look? The Vehicle Identification Number (VIN) is crucial for everything from registration to verifying your bike’s history.**

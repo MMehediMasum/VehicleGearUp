@@ -1,10 +1,14 @@
 ---
-title: "How to Fix a Honda Odyssey Sliding Door: Easy DIY Repair Tips"
-description: "Is your Honda Odyssey sliding door stuck or not sliding smoothly? That can be frustrating, especially when you need quick access for your family or cargo. But d"
+title: 'How to Fix a Honda Odyssey Sliding Door: Easy DIY Repair Tips'
+description: Is your Honda Odyssey sliding door stuck or not sliding smoothly? That
+  can be frustrating, especially when you need quick access for your family or cargo.
+  But d
 pubDate: 2026-05-16
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-a-honda-odyssey-sliding-door&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Features and Fixes
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-a-honda-odyssey-sliding-door&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your Honda Odyssey sliding door stuck or not sliding smoothly? That can be frustrating, especially when you need quick access for your family or cargo.**

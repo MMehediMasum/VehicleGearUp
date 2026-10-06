@@ -1,10 +1,13 @@
 ---
-title: "Best Brake Pads for Ford F150 4X4: Top Ceramic and Semi-Metal Options"
-description: "Choosing the best brake pads for your Ford F150 4X4 is crucial for safety and performance. Quality pads improve stopping power and last longer on tough terrains"
+title: 'Best Brake Pads for Ford F150 4X4: Top Ceramic and Semi-Metal Options'
+description: Choosing the best brake pads for your Ford F150 4X4 is crucial for safety
+  and performance. Quality pads improve stopping power and last longer on tough terrains
 pubDate: 2026-07-13
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-brake-pads-for-ford-f150-4x4&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Best Brake Pads
+heroImage: https://tse1.mm.bing.net/th?q=best-brake-pads-for-ford-f150-4x4&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Choosing the best brake pads for your Ford F150 4X4 is crucial for safety and performance. Quality pads improve stopping power and last longer on tough terrains.**

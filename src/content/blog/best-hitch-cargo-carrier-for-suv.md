@@ -1,10 +1,14 @@
 ---
-title: "Best Hitch Cargo Carrier for SUV: Top Heavy-Duty Folding Carriers Reviewed"
-description: "Finding the best hitch cargo carrier for your SUV makes travel and hauling easier. These carriers add extra space for luggage and gear outside your vehicle. A g"
+title: 'Best Hitch Cargo Carrier for SUV: Top Heavy-Duty Folding Carriers Reviewed'
+description: Finding the best hitch cargo carrier for your SUV makes travel and hauling
+  easier. These carriers add extra space for luggage and gear outside your vehicle.
+  A g
 pubDate: 2025-10-09
-author: "herbertlangham"
-categories: ["Towing & Hauling"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-hitch-cargo-carrier-for-suv&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hitch Bike Racks
+heroImage: https://tse1.mm.bing.net/th?q=best-hitch-cargo-carrier-for-suv&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Finding the best hitch cargo carrier for your SUV makes travel and hauling easier. These carriers add extra space for luggage and gear outside your vehicle.**

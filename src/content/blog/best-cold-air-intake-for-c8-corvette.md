@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for C8 Corvette: Boost Performance and Power Today"
-description: "Choosing the best cold air intake for your C8 Corvette can boost its performance and sound. A quality intake improves airflow, helping your engine run smoother "
+title: 'Best Cold Air Intake for C8 Corvette: Boost Performance and Power Today'
+description: 'Choosing the best cold air intake for your C8 Corvette can boost its
+  performance and sound. A quality intake improves airflow, helping your engine run
+  smoother '
 pubDate: 2026-06-07
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-c8-corvette&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- GM Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-c8-corvette&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best cold air intake for your C8 Corvette can boost its performance and sound. A quality intake improves airflow, helping your engine run smoother and faster.**

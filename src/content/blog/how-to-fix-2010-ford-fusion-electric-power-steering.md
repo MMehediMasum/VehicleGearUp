@@ -1,10 +1,14 @@
 ---
-title: "How to Fix 2010 Ford Fusion Electric Power Steering: Quick Guide"
-description: "Is your 2010 Ford Fusion’s electric power steering acting up? If you’ve noticed your steering wheel feels stiff or unresponsive, you’re not alone. Fixing this i"
+title: 'How to Fix 2010 Ford Fusion Electric Power Steering: Quick Guide'
+description: Is your 2010 Ford Fusion’s electric power steering acting up? If you’ve
+  noticed your steering wheel feels stiff or unresponsive, you’re not alone. Fixing
+  this i
 pubDate: 2026-05-03
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-2010-ford-fusion-electric-power-steering&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Power Steering Fluid and Additives
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-2010-ford-fusion-electric-power-steering&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your 2010 Ford Fusion’s electric power steering acting up? If you’ve noticed your steering wheel feels stiff or unresponsive, you’re not alone.**

@@ -1,10 +1,14 @@
 ---
-title: "What Does Abs Mean on a Car Dashboard: Essential Safety Alert Explained"
-description: "Have you ever seen the letters \"ABS\" light up on your car’s dashboard and wondered what it means? That little warning can catch you off guard, especially when y"
+title: 'What Does Abs Mean on a Car Dashboard: Essential Safety Alert Explained'
+description: Have you ever seen the letters "ABS" light up on your car’s dashboard
+  and wondered what it means? That little warning can catch you off guard, especially
+  when y
 pubDate: 2026-03-16
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-does-abs-mean-on-a-car-dashboard&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Brake Replacement and Rotors
+heroImage: https://tse1.mm.bing.net/th?q=what-does-abs-mean-on-a-car-dashboard&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever seen the letters "ABS" light up on your car’s dashboard and wondered what it means? That little warning can catch you off guard, especially when you’re focused on the road.**

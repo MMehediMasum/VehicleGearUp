@@ -1,10 +1,14 @@
 ---
-title: "Best All Terrain Motorcycle Tires for Off Road Riding: Top Picks Reviewed"
-description: "Choosing the right all-terrain motorcycle tires boosts your off-road riding experience. Tires must handle rough trails, mud, rocks, and dirt with ease. Strong, "
+title: 'Best All Terrain Motorcycle Tires for Off Road Riding: Top Picks Reviewed'
+description: 'Choosing the right all-terrain motorcycle tires boosts your off-road
+  riding experience. Tires must handle rough trails, mud, rocks, and dirt with ease.
+  Strong, '
 pubDate: 2026-01-12
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-all-terrain-motorcycle-tires-for-off-road-riding&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-all-terrain-motorcycle-tires-for-off-road-riding&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the right all-terrain motorcycle tires boosts your off-road riding experience. Tires must handle rough trails, mud, rocks, and dirt with ease.**

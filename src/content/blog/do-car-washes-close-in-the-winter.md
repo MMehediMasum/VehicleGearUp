@@ -1,10 +1,14 @@
 ---
-title: "Do Car Washes Close in the Winter: Essential Facts Revealed"
-description: "Have you ever wondered if car washes shut down when winter hits? You might think cold weather means no car wash services, but the truth isn’t that simple. Keepi"
+title: 'Do Car Washes Close in the Winter: Essential Facts Revealed'
+description: Have you ever wondered if car washes shut down when winter hits? You
+  might think cold weather means no car wash services, but the truth isn’t that simple.
+  Keepi
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-car-washes-close-in-the-winter&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Do Car Washes Damage Paint
+heroImage: https://tse1.mm.bing.net/th?q=do-car-washes-close-in-the-winter&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever wondered if car washes shut down when winter hits? You might think cold weather means no car wash services, but the truth isn’t that simple.**

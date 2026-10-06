@@ -1,10 +1,13 @@
 ---
-title: "Best Garden Hose Nozzle for Car Wash: Top High-Pressure Picks"
-description: "Choosing the best garden hose nozzle for car wash makes cleaning easier and more effective. A good nozzle delivers strong water flow and useful spray patterns. "
+title: 'Best Garden Hose Nozzle for Car Wash: Top High-Pressure Picks'
+description: 'Choosing the best garden hose nozzle for car wash makes cleaning easier
+  and more effective. A good nozzle delivers strong water flow and useful spray patterns. '
 pubDate: 2026-07-05
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-garden-hose-nozzle-for-car-wash&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wash Costs and Etiquette
+heroImage: https://tse1.mm.bing.net/th?q=best-garden-hose-nozzle-for-car-wash&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best garden hose nozzle for car wash makes cleaning easier and more effective. A good nozzle delivers strong water flow and useful spray patterns.**

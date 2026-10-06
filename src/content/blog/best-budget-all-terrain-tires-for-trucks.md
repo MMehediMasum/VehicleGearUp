@@ -1,10 +1,14 @@
 ---
-title: "Best Budget All Terrain Tires for Trucks: Top Durable Picks for Off-Road Adventures"
-description: "Finding durable all-terrain tires for trucks on a budget can be tough. This guide highlights reliable, affordable options that handle off-road and on-road use w"
+title: 'Best Budget All Terrain Tires for Trucks: Top Durable Picks for Off-Road Adventures'
+description: Finding durable all-terrain tires for trucks on a budget can be tough.
+  This guide highlights reliable, affordable options that handle off-road and on-road
+  use w
 pubDate: 2026-01-10
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-budget-all-terrain-tires-for-trucks&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- All Terrain Truck Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-budget-all-terrain-tires-for-trucks&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Finding durable all-terrain tires for trucks on a budget can be tough. This guide highlights reliable, affordable options that handle off-road and on-road use well.**

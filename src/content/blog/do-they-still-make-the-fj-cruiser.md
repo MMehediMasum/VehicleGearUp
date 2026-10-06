@@ -1,10 +1,14 @@
 ---
-title: "Do They Still Make the Fj Cruiser: Discover Its Current Status"
-description: "Are you curious if the iconic FJ Cruiser is still being made? Maybe you’ve seen one on the road and wondered if you can still buy a new model. The FJ Cruiser ha"
+title: 'Do They Still Make the Fj Cruiser: Discover Its Current Status'
+description: Are you curious if the iconic FJ Cruiser is still being made? Maybe you’ve
+  seen one on the road and wondered if you can still buy a new model. The FJ Cruiser
+  ha
 pubDate: 2026-02-14
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-they-still-make-the-fj-cruiser&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Model Availability and Value
+heroImage: https://tse1.mm.bing.net/th?q=do-they-still-make-the-fj-cruiser&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you curious if the iconic FJ Cruiser is still being made? Maybe you’ve seen one on the road and wondered if you can still buy a new model.**

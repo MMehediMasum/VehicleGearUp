@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Steering Wheel for Xbox Series X: Top Racing Wheels Reviewed"
 description: "Choosing the best steering wheel for Xbox Series X enhances your racing game experience. A good wheel offers precise control, comfort, and realistic feedback. R"
 pubDate: 2025-12-27

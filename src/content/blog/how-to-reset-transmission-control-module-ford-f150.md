@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Transmission Control Module Ford F150: Easy Guide"
-description: "Is your Ford F150 acting up with shifting problems or warning lights? The Transmission Control Module (TCM) might need a reset. But don’t worry—resetting your T"
+title: 'How to Reset Transmission Control Module Ford F150: Easy Guide'
+description: Is your Ford F150 acting up with shifting problems or warning lights?
+  The Transmission Control Module (TCM) might need a reset. But don’t worry—resetting
+  your T
 pubDate: 2025-10-26
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-transmission-control-module-ford-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Adding Transmission Fluid
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-transmission-control-module-ford-f150&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your Ford F150 acting up with shifting problems or warning lights? The Transmission Control Module (TCM) might need a reset.**

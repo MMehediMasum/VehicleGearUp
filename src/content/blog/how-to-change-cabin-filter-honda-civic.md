@@ -1,10 +1,14 @@
 ---
-title: "How to Change Cabin Filter Honda Civic: Easy Step-by-Step Guide"
-description: "Your Honda Civic’s cabin filter plays a big role in keeping the air inside your car fresh and clean. Over time, it gets clogged with dust, pollen, and other par"
+title: 'How to Change Cabin Filter Honda Civic: Easy Step-by-Step Guide'
+description: Your Honda Civic’s cabin filter plays a big role in keeping the air inside
+  your car fresh and clean. Over time, it gets clogged with dust, pollen, and other
+  par
 pubDate: 2026-02-05
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-cabin-filter-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Cabin Air Filters
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-cabin-filter-honda-civic&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Your Honda Civic’s cabin filter plays a big role in keeping the air inside your car fresh and clean. Over time, it gets clogged with dust, pollen, and other particles that can affect your comfort and even your health.**

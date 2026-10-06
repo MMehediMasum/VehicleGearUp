@@ -1,10 +1,13 @@
 ---
-title: "What Transmission is in a 2009 Ford Explorer: Expert Insights Revealed"
-description: "Are you curious about the transmission in your 2009 Ford Explorer? Understanding this key part can help you keep your SUV running smoothly and avoid costly repa"
+title: 'What Transmission is in a 2009 Ford Explorer: Expert Insights Revealed'
+description: Are you curious about the transmission in your 2009 Ford Explorer? Understanding
+  this key part can help you keep your SUV running smoothly and avoid costly repa
 pubDate: 2026-05-02
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-transmission-is-in-a-2009-ford-explorer&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Model Questions
+heroImage: https://tse1.mm.bing.net/th?q=what-transmission-is-in-a-2009-ford-explorer&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you curious about the transmission in your 2009 Ford Explorer? Understanding this key part can help you keep your SUV running smoothly and avoid costly repairs.**

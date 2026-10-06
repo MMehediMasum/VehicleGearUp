@@ -1,10 +1,14 @@
 ---
-title: "How to Change Car Key Battery Toyota Corolla: Easy Step-by-Step Guide"
-description: "Is your Toyota Corolla key fob acting up or not responding? It might be time to change the battery. Knowing how to replace your car key battery yourself can sav"
+title: 'How to Change Car Key Battery Toyota Corolla: Easy Step-by-Step Guide'
+description: Is your Toyota Corolla key fob acting up or not responding? It might
+  be time to change the battery. Knowing how to replace your car key battery yourself
+  can sav
 pubDate: 2026-04-14
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-car-key-battery-toyota-corolla&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Key Batteries
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-car-key-battery-toyota-corolla&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **Is your Toyota Corolla key fob acting up or not responding? It might be time to change the battery.**

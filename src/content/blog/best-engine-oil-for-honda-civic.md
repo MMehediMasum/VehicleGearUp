@@ -1,10 +1,14 @@
 ---
-title: "Best Engine Oil for Honda Civic: Top Synthetic Oils and Filters Reviewed"
-description: "Choosing the best engine oil for your Honda Civic keeps the engine running smoothly. It protects parts and improves fuel efficiency. Honda Civics need engine oi"
+title: 'Best Engine Oil for Honda Civic: Top Synthetic Oils and Filters Reviewed'
+description: Choosing the best engine oil for your Honda Civic keeps the engine running
+  smoothly. It protects parts and improves fuel efficiency. Honda Civics need engine
+  oi
 pubDate: 2026-07-14
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-engine-oil-for-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Best Engine Oils
+heroImage: https://tse1.mm.bing.net/th?q=best-engine-oil-for-honda-civic&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Choosing the best engine oil for your Honda Civic keeps the engine running smoothly. It protects parts and improves fuel efficiency.**

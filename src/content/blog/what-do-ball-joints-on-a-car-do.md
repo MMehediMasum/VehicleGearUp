@@ -1,10 +1,14 @@
 ---
-title: "What Do Ball Joints on a Car Do: Essential Functions Explained"
-description: "Have you ever wondered what keeps your car’s wheels moving smoothly when you turn the steering wheel? The secret lies in a small but mighty part called the ball"
+title: 'What Do Ball Joints on a Car Do: Essential Functions Explained'
+description: Have you ever wondered what keeps your car’s wheels moving smoothly when
+  you turn the steering wheel? The secret lies in a small but mighty part called the
+  ball
 pubDate: 2026-02-27
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-do-ball-joints-on-a-car-do&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Truck Suspension Upgrades
+heroImage: https://tse1.mm.bing.net/th?q=what-do-ball-joints-on-a-car-do&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever wondered what keeps your car’s wheels moving smoothly when you turn the steering wheel? The secret lies in a small but mighty part called the ball joint.**

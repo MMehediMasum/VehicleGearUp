@@ -1,10 +1,14 @@
 ---
-title: "Do Car Washes Wash Underneath the Car? Uncover the Truth!"
-description: "Have you ever wondered if car washes clean the underside of your vehicle? You might think a shiny exterior means your car is fully clean, but what about the par"
+title: Do Car Washes Wash Underneath the Car? Uncover the Truth!
+description: Have you ever wondered if car washes clean the underside of your vehicle?
+  You might think a shiny exterior means your car is fully clean, but what about the
+  par
 pubDate: 2026-03-19
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-car-washes-wash-underneath-the-car&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Do Car Washes Damage Paint
+heroImage: https://tse1.mm.bing.net/th?q=do-car-washes-wash-underneath-the-car&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever wondered if car washes clean the underside of your vehicle? You might think a shiny exterior means your car is fully clean, but what about the parts you can’t see?**

@@ -1,10 +1,14 @@
 ---
-title: "What Does the Control Arm on a Car Do: Essential Function Explained"
-description: "Have you ever wondered what keeps your car’s wheels perfectly aligned and your ride smooth, even on bumpy roads? The answer lies in a small but powerful part ca"
+title: 'What Does the Control Arm on a Car Do: Essential Function Explained'
+description: Have you ever wondered what keeps your car’s wheels perfectly aligned
+  and your ride smooth, even on bumpy roads? The answer lies in a small but powerful
+  part ca
 pubDate: 2025-09-20
-author: "herbertlangham"
-categories: ["Car Technology & Features"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-does-the-control-arm-on-a-car-do&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Truck Suspension Upgrades
+heroImage: https://tse1.mm.bing.net/th?q=what-does-the-control-arm-on-a-car-do&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever wondered what keeps your car’s wheels perfectly aligned and your ride smooth, even on bumpy roads? The answer lies in a small but powerful part called the control arm.**

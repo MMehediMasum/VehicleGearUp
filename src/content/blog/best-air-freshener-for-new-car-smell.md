@@ -1,10 +1,14 @@
 ---
-title: "Best Air Freshener for New Car Smell: Top Picks to Keep It Fresh"
-description: "A fresh new car scent makes every drive more enjoyable. Choosing the best air freshener keeps that clean, pleasant smell lasting longer. New cars have a unique "
+title: 'Best Air Freshener for New Car Smell: Top Picks to Keep It Fresh'
+description: 'A fresh new car scent makes every drive more enjoyable. Choosing the
+  best air freshener keeps that clean, pleasant smell lasting longer. New cars have
+  a unique '
 pubDate: 2026-06-01
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-air-freshener-for-new-car-smell&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Air Fresheners and Odors
+heroImage: https://tse1.mm.bing.net/th?q=best-air-freshener-for-new-car-smell&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **A fresh new car scent makes every drive more enjoyable. Choosing the best air freshener keeps that clean, pleasant smell lasting longer.**

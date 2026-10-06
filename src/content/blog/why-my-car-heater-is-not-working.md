@@ -1,10 +1,13 @@
 ---
-title: "Why My Car Heater is Not Working: Quick Fixes You Need Now"
-description: "Is your car heater not working just when you need it the most? It’s frustrating and uncomfortable, especially on cold mornings or chilly nights. You might be wo"
+title: 'Why My Car Heater is Not Working: Quick Fixes You Need Now'
+description: Is your car heater not working just when you need it the most? It’s frustrating
+  and uncomfortable, especially on cold mornings or chilly nights. You might be wo
 pubDate: 2025-12-10
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-my-car-heater-is-not-working&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Heater Not Working
+heroImage: https://tse1.mm.bing.net/th?q=why-my-car-heater-is-not-working&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your car heater not working just when you need it the most? It’s frustrating and uncomfortable, especially on cold mornings or chilly nights.**

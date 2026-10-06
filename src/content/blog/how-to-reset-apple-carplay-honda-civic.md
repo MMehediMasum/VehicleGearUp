@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Apple Carplay Honda Civic: Quick & Easy Guide"
-description: "Are you having trouble with Apple CarPlay in your Honda Civic? Maybe it’s not connecting properly, or the screen is acting up. Don’t worry—resetting Apple CarPl"
+title: 'How to Reset Apple Carplay Honda Civic: Quick & Easy Guide'
+description: Are you having trouble with Apple CarPlay in your Honda Civic? Maybe
+  it’s not connecting properly, or the screen is acting up. Don’t worry—resetting
+  Apple CarPl
 pubDate: 2025-09-16
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-apple-carplay-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jeep Grand Cherokee Resets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-apple-carplay-honda-civic&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are you having trouble with Apple CarPlay in your Honda Civic? Maybe it’s not connecting properly, or the screen is acting up.**

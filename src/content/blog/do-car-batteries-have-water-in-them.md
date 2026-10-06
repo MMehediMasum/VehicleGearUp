@@ -1,10 +1,14 @@
 ---
-title: "Do Car Batteries Have Water in Them? Essential Facts Revealed"
-description: "Have you ever wondered if your car battery contains water? It’s a question many drivers don’t think about until they face battery trouble. Knowing the answer ca"
+title: Do Car Batteries Have Water in Them? Essential Facts Revealed
+description: Have you ever wondered if your car battery contains water? It’s a question
+  many drivers don’t think about until they face battery trouble. Knowing the answer
+  ca
 pubDate: 2026-03-02
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-car-batteries-have-water-in-them&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Types and Value
+heroImage: https://tse1.mm.bing.net/th?q=do-car-batteries-have-water-in-them&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if your car battery contains water? It’s a question many drivers don’t think about until they face battery trouble.**

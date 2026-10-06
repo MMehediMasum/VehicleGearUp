@@ -1,10 +1,14 @@
 ---
-title: "How to Check Automatic Transmission Fluid in Honda Civic: Easy Guide"
-description: "If you drive a Honda Civic, keeping your automatic transmission fluid at the right level is key to smooth gear shifts and long-lasting performance. But how do y"
+title: 'How to Check Automatic Transmission Fluid in Honda Civic: Easy Guide'
+description: If you drive a Honda Civic, keeping your automatic transmission fluid
+  at the right level is key to smooth gear shifts and long-lasting performance. But
+  how do y
 pubDate: 2026-04-30
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-check-automatic-transmission-fluid-in-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Transmission Fluid Checks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-check-automatic-transmission-fluid-in-honda-civic&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you drive a Honda Civic, keeping your automatic transmission fluid at the right level is key to smooth gear shifts and long-lasting performance. But how do you know when it’s time to check or change this vital fluid?**

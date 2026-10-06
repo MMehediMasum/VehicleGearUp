@@ -1,10 +1,14 @@
 ---
-title: "How to Replace Battery in Key Fob Ford F150: Easy Step-by-Step Guide"
-description: "Is your Ford F150 key fob acting up or not responding? It might be time to replace the battery. You don’t need to visit a dealership or pay a mechanic for this "
+title: 'How to Replace Battery in Key Fob Ford F150: Easy Step-by-Step Guide'
+description: 'Is your Ford F150 key fob acting up or not responding? It might be time
+  to replace the battery. You don’t need to visit a dealership or pay a mechanic for
+  this '
 pubDate: 2026-05-07
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-replace-battery-in-key-fob-ford-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Key Fob Battery Replacement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-replace-battery-in-key-fob-ford-f150&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **Is your Ford F150 key fob acting up or not responding? It might be time to replace the battery.**

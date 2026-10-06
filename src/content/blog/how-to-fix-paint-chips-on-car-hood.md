@@ -1,10 +1,14 @@
 ---
-title: "How to Fix Paint Chips on Car Hood: Quick & Easy Repair Tips"
-description: "Have you noticed small paint chips on your car hood that are starting to catch your eye? Those tiny spots might seem harmless now, but they can quickly turn int"
+title: 'How to Fix Paint Chips on Car Hood: Quick & Easy Repair Tips'
+description: Have you noticed small paint chips on your car hood that are starting
+  to catch your eye? Those tiny spots might seem harmless now, but they can quickly
+  turn int
 pubDate: 2026-05-09
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-paint-chips-on-car-hood&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hood Dents and Chips
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-paint-chips-on-car-hood&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you noticed small paint chips on your car hood that are starting to catch your eye? Those tiny spots might seem harmless now, but they can quickly turn into bigger problems like rust and damage.**

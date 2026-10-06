@@ -1,10 +1,14 @@
 ---
-title: "How to Top off Coolant 2019 Honda Odyssey: Easy Step-by-Step Guide"
-description: "Keeping your 2019 Honda Odyssey running smoothly means paying attention to the little things—like topping off the coolant. If you’re wondering how to do this sa"
+title: 'How to Top off Coolant 2019 Honda Odyssey: Easy Step-by-Step Guide'
+description: Keeping your 2019 Honda Odyssey running smoothly means paying attention
+  to the little things—like topping off the coolant. If you’re wondering how to do
+  this sa
 pubDate: 2026-01-21
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-top-off-cooland-2019-honda-odyssey&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Features and Fixes
+heroImage: https://tse1.mm.bing.net/th?q=how-to-top-off-cooland-2019-honda-odyssey&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Keeping your 2019 Honda Odyssey running smoothly means paying attention to the little things—like topping off the coolant. If you’re wondering how to do this safely and correctly, you’re in the right place.**

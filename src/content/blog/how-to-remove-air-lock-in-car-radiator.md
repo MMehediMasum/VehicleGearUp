@@ -1,10 +1,14 @@
 ---
-title: "How to Remove Air Lock in Car Radiator: Quick & Easy Fixes"
-description: "Is your car’s engine overheating or making strange noises? You might be dealing with an air lock in your radiator. This hidden problem can stop your cooling sys"
+title: 'How to Remove Air Lock in Car Radiator: Quick & Easy Fixes'
+description: Is your car’s engine overheating or making strange noises? You might
+  be dealing with an air lock in your radiator. This hidden problem can stop your
+  cooling sys
 pubDate: 2026-02-17
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-remove-air-lock-in-car-radiator&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Coolant and AC Recharge
+heroImage: https://tse1.mm.bing.net/th?q=how-to-remove-air-lock-in-car-radiator&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your car’s engine overheating or making strange noises? You might be dealing with an air lock in your radiator.**

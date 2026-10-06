@@ -1,10 +1,14 @@
 ---
-title: "Does the Ford Escape Have All Wheel Drive? Ultimate Guide 2025"
-description: "Are you thinking about getting a Ford Escape but wondering if it comes with all-wheel drive? You’re not alone. Knowing whether this SUV offers all-wheel drive c"
+title: Does the Ford Escape Have All Wheel Drive? Ultimate Guide 2025
+description: Are you thinking about getting a Ford Escape but wondering if it comes
+  with all-wheel drive? You’re not alone. Knowing whether this SUV offers all-wheel
+  drive c
 pubDate: 2025-10-20
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-the-ford-escape-have-all-wheel-drive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- All Wheel Drive Questions
+heroImage: https://tse1.mm.bing.net/th?q=does-the-ford-escape-have-all-wheel-drive&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you thinking about getting a Ford Escape but wondering if it comes with all-wheel drive? You’re not alone.**

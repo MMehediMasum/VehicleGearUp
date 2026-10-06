@@ -1,10 +1,14 @@
 ---
-title: "Will an Emp Kill a Car Battery? Shocking Truth Revealed!"
-description: "Have you ever wondered if an EMP could kill your car battery? If you're worried about protecting your vehicle and staying prepared, this question is more import"
+title: Will an Emp Kill a Car Battery? Shocking Truth Revealed!
+description: Have you ever wondered if an EMP could kill your car battery? If you're
+  worried about protecting your vehicle and staying prepared, this question is more
+  import
 pubDate: 2026-05-08
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=will-an-emp-kill-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Fixing Battery Drain
+heroImage: https://tse1.mm.bing.net/th?q=will-an-emp-kill-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if an EMP could kill your car battery? If you're worried about protecting your vehicle and staying prepared, this question is more important than you might think.**

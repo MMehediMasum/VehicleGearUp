@@ -1,10 +1,14 @@
 ---
-title: "What is the Correct Tire Pressure for a Toyota Camry: Essential Guide"
-description: "Are you sure your Toyota Camry’s tires have the right pressure? Keeping the correct tire pressure is more important than you might think. It affects your safety"
+title: 'What is the Correct Tire Pressure for a Toyota Camry: Essential Guide'
+description: Are you sure your Toyota Camry’s tires have the right pressure? Keeping
+  the correct tire pressure is more important than you might think. It affects your
+  safety
 pubDate: 2026-03-10
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-correct-tire-pressure-for-a-toyota-camry&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Tire Pressure Light
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-correct-tire-pressure-for-a-toyota-camry&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Are you sure your Toyota Camry’s tires have the right pressure? Keeping the correct tire pressure is more important than you might think.**

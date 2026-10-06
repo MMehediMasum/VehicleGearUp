@@ -1,10 +1,14 @@
 ---
-title: "How to Connect a Car Amplifier in Your Home: Easy Step-by-Step Guide"
-description: "Have you ever wondered how to bring the powerful sound of a car amplifier into your home? Imagine turning your living room into a mini concert hall with deep ba"
+title: 'How to Connect a Car Amplifier in Your Home: Easy Step-by-Step Guide'
+description: Have you ever wondered how to bring the powerful sound of a car amplifier
+  into your home? Imagine turning your living room into a mini concert hall with deep
+  ba
 pubDate: 2025-10-25
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-connect-a-car-amplifier-in-your-home&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Speakers and Amplifiers
+heroImage: https://tse1.mm.bing.net/th?q=how-to-connect-a-car-amplifier-in-your-home&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Have you ever wondered how to bring the powerful sound of a car amplifier into your home? Imagine turning your living room into a mini concert hall with deep bass and crystal-clear audio.**

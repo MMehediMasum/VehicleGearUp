@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Light on Toyota Prius: Quick & Easy Guide"
-description: "Your Toyota Prius just showed the oil light, and now you’re wondering what to do next. Don’t worry—resetting that oil light is easier than you might think. If y"
+title: 'How to Reset Oil Light on Toyota Prius: Quick & Easy Guide'
+description: Your Toyota Prius just showed the oil light, and now you’re wondering
+  what to do next. Don’t worry—resetting that oil light is easier than you might think.
+  If y
 pubDate: 2026-05-04
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-light-on-toyota-prius&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Hybrid Tires
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-light-on-toyota-prius&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Your Toyota Prius just showed the oil light, and now you’re wondering what to do next. Don’t worry—resetting that oil light is easier than you might think.**

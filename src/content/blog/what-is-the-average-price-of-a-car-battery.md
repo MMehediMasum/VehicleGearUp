@@ -1,10 +1,14 @@
 ---
-title: "What is the Average Price of a Car Battery: Ultimate Cost Guide"
-description: "Are you wondering how much you should expect to pay when it’s time to replace your car battery? Knowing the average price can help you avoid surprises and make "
+title: 'What is the Average Price of a Car Battery: Ultimate Cost Guide'
+description: 'Are you wondering how much you should expect to pay when it’s time to
+  replace your car battery? Knowing the average price can help you avoid surprises
+  and make '
 pubDate: 2026-04-17
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-average-price-of-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Price and Installation
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-average-price-of-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you wondering how much you should expect to pay when it’s time to replace your car battery? Knowing the average price can help you avoid surprises and make smarter decisions.**

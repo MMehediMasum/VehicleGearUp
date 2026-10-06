@@ -1,10 +1,14 @@
 ---
-title: "Best Fuel Injector Cleaner for Harley Davidsons: Top Picks for Peak Performance"
-description: "Keeping your Harley Davidson’s engine running smooth starts with clean fuel injectors. The right fuel injector cleaner removes deposits that block fuel flow and"
+title: 'Best Fuel Injector Cleaner for Harley Davidsons: Top Picks for Peak Performance'
+description: Keeping your Harley Davidson’s engine running smooth starts with clean
+  fuel injectors. The right fuel injector cleaner removes deposits that block fuel
+  flow and
 pubDate: 2026-07-05
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-fuel-injector-cleaner-for-harley-davidsons&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Fuel and Exhaust
+heroImage: https://tse1.mm.bing.net/th?q=best-fuel-injector-cleaner-for-harley-davidsons&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Keeping your Harley Davidson’s engine running smooth starts with clean fuel injectors. The right fuel injector cleaner removes deposits that block fuel flow and cause poor performance.**

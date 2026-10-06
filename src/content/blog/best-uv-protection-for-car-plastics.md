@@ -1,10 +1,14 @@
 ---
-title: "Best UV Protection for Car Plastics: Top Restorers to Prevent Fading"
-description: "Car plastics often fade, crack, and lose their color due to sun exposure. Protecting them with effective UV products keeps your car looking fresh and new. Sunli"
+title: 'Best UV Protection for Car Plastics: Top Restorers to Prevent Fading'
+description: Car plastics often fade, crack, and lose their color due to sun exposure.
+  Protecting them with effective UV products keeps your car looking fresh and new.
+  Sunli
 pubDate: 2026-06-24
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-uv-protection-for-car-plastics&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spray Paint and Scratch Repair
+heroImage: https://tse1.mm.bing.net/th?q=best-uv-protection-for-car-plastics&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Car plastics often fade, crack, and lose their color due to sun exposure. Protecting them with effective UV products keeps your car looking fresh and new.**

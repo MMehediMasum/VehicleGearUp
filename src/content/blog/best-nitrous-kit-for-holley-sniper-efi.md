@@ -1,10 +1,14 @@
 ---
-title: "Best Nitrous Kit for Holley Sniper EFI: Boost Performance Instantly"
-description: "Choosing the best nitrous kit for Holley Sniper EFI can boost your engine’s power safely and reliably. This guide highlights top nitrous kits and essential Holl"
+title: 'Best Nitrous Kit for Holley Sniper EFI: Boost Performance Instantly'
+description: Choosing the best nitrous kit for Holley Sniper EFI can boost your engine’s
+  power safely and reliably. This guide highlights top nitrous kits and essential
+  Holl
 pubDate: 2025-10-27
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-nitrous-kit-for-holley-sniper-efi&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Carburetor and Fuel Injection Kits
+heroImage: https://tse1.mm.bing.net/th?q=best-nitrous-kit-for-holley-sniper-efi&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best nitrous kit for Holley Sniper EFI can boost your engine’s power safely and reliably. This guide highlights top nitrous kits and essential Holley Sniper EFI components.**

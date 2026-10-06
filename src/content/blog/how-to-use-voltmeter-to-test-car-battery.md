@@ -1,10 +1,14 @@
 ---
-title: "How to Use Voltmeter to Test Car Battery: Easy & Accurate Guide"
-description: "Is your car struggling to start, or have you noticed dim headlights? Your car battery might be the culprit. But how can you be sure without spending money on a "
+title: 'How to Use Voltmeter to Test Car Battery: Easy & Accurate Guide'
+description: 'Is your car struggling to start, or have you noticed dim headlights?
+  Your car battery might be the culprit. But how can you be sure without spending
+  money on a '
 pubDate: 2026-04-15
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-use-voltmeter-to-test-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Selling Old Car Batteries
+heroImage: https://tse1.mm.bing.net/th?q=how-to-use-voltmeter-to-test-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your car struggling to start, or have you noticed dim headlights? Your car battery might be the culprit.**

@@ -1,10 +1,13 @@
 ---
-title: "How to Get Out of Manual Mode Jeep Grand Cherokee: Quick Fix Guide"
-description: "Are you stuck in manual mode with your Jeep Grand Cherokee and don’t know how to switch back? It can be frustrating when your vehicle won’t shift automatically,"
+title: 'How to Get Out of Manual Mode Jeep Grand Cherokee: Quick Fix Guide'
+description: Are you stuck in manual mode with your Jeep Grand Cherokee and don’t
+  know how to switch back? It can be frustrating when your vehicle won’t shift automatically,
 pubDate: 2026-02-13
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-get-out-of-manual-mode-jeep-grand-cherokee&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jeep Grand Cherokee Resets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-get-out-of-manual-mode-jeep-grand-cherokee&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are you stuck in manual mode with your Jeep Grand Cherokee and don’t know how to switch back? It can be frustrating when your vehicle won’t shift automatically, especially if you’re used to a smooth, hands-off driving experience.**

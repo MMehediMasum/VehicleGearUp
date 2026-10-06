@@ -1,10 +1,14 @@
 ---
-title: "How to Connect Trickle Charger to Car Battery: Easy Step-by-Step Guide"
-description: "If you want to keep your car battery healthy and ready to go, using a trickle charger is one of the best ways to do it. But how exactly do you connect a trickle"
+title: 'How to Connect Trickle Charger to Car Battery: Easy Step-by-Step Guide'
+description: If you want to keep your car battery healthy and ready to go, using a
+  trickle charger is one of the best ways to do it. But how exactly do you connect
+  a trickle
 pubDate: 2026-03-29
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-connect-trickle-charger-to-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Using Battery Chargers
+heroImage: https://tse1.mm.bing.net/th?q=how-to-connect-trickle-charger-to-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **If you want to keep your car battery healthy and ready to go, using a trickle charger is one of the best ways to do it. But how exactly do you connect a trickle charger to your car battery safely and correctly?**

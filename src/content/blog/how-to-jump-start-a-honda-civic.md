@@ -1,10 +1,14 @@
 ---
-title: "How to Jump Start a Honda Civic: Quick & Easy Step-by-Step Guide"
-description: "Have you ever faced the frustration of a Honda Civic that just won’t start? It’s a common problem, but knowing how to jump start your car can save you time, mon"
+title: 'How to Jump Start a Honda Civic: Quick & Easy Step-by-Step Guide'
+description: Have you ever faced the frustration of a Honda Civic that just won’t
+  start? It’s a common problem, but knowing how to jump start your car can save you
+  time, mon
 pubDate: 2026-02-09
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-jump-start-a-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jump Starting by Model
+heroImage: https://tse1.mm.bing.net/th?q=how-to-jump-start-a-honda-civic&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever faced the frustration of a Honda Civic that just won’t start? It’s a common problem, but knowing how to jump start your car can save you time, money, and stress.**

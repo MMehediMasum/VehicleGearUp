@@ -1,10 +1,14 @@
 ---
-title: "What to Connect First on Car Battery: Essential Safety Tips"
-description: "Are you about to connect a car battery but unsure where to start? The order in which you connect the battery terminals matters more than you might think. Gettin"
+title: 'What to Connect First on Car Battery: Essential Safety Tips'
+description: Are you about to connect a car battery but unsure where to start? The
+  order in which you connect the battery terminals matters more than you might think.
+  Gettin
 pubDate: 2026-04-08
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-connect-first-on-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Disconnect Order
+heroImage: https://tse1.mm.bing.net/th?q=what-to-connect-first-on-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you about to connect a car battery but unsure where to start? The order in which you connect the battery terminals matters more than you might think.**

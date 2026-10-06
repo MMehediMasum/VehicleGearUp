@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can You Look Up a Car Owner by License Plate: Ultimate Guide 2025"
 description: "Have you ever wondered if you can find out who owns a car just by using its license plate? Maybe you saw a vehicle parked suspiciously near your home, or you wa"
 pubDate: 2026-01-29

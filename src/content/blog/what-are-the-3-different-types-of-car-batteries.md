@@ -1,10 +1,14 @@
 ---
-title: "What are the 3 Different Types of Car Batteries: Ultimate Guide"
-description: "When it comes to your car, the battery is one of the most important parts you might often overlook. But do you know there are different types of car batteries d"
+title: 'What are the 3 Different Types of Car Batteries: Ultimate Guide'
+description: When it comes to your car, the battery is one of the most important parts
+  you might often overlook. But do you know there are different types of car batteries
+  d
 pubDate: 2025-09-16
-author: "herbertlangham"
-categories: ["Car Buying & Ownership"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-the-3-different-types-of-car-batteries&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Types and Value
+heroImage: https://tse1.mm.bing.net/th?q=what-are-the-3-different-types-of-car-batteries&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **When it comes to your car, the battery is one of the most important parts you might often overlook. But do you know there are different types of car batteries designed for various needs?**

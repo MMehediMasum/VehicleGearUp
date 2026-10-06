@@ -1,10 +1,14 @@
 ---
-title: "How to Tell If Car Speaker is Blown: Easy Signs to Detect Quickly"
-description: "Have you noticed strange sounds coming from your car’s speakers? Maybe the music feels off, or there’s a crackling noise that wasn’t there before. These could b"
+title: 'How to Tell If Car Speaker is Blown: Easy Signs to Detect Quickly'
+description: Have you noticed strange sounds coming from your car’s speakers? Maybe
+  the music feels off, or there’s a crackling noise that wasn’t there before. These
+  could b
 pubDate: 2026-05-29
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-tell-if-car-speaker-is-blown&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Entertainment Systems
+heroImage: https://tse1.mm.bing.net/th?q=how-to-tell-if-car-speaker-is-blown&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Have you noticed strange sounds coming from your car’s speakers? Maybe the music feels off, or there’s a crackling noise that wasn’t there before.**

@@ -1,10 +1,14 @@
 ---
-title: "Does a Car Speedometer Measure Speed Velocity Or Both? Explained!"
-description: "Have you ever glanced at your car’s speedometer and wondered what exactly it’s showing you? Is it measuring speed, velocity, or maybe both? Understanding this c"
+title: Does a Car Speedometer Measure Speed Velocity Or Both? Explained!
+description: Have you ever glanced at your car’s speedometer and wondered what exactly
+  it’s showing you? Is it measuring speed, velocity, or maybe both? Understanding
+  this c
 pubDate: 2026-03-11
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-a-car-speedometer-measure-speed-velocity-or-both&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Everyday Car Questions
+heroImage: https://tse1.mm.bing.net/th?q=does-a-car-speedometer-measure-speed-velocity-or-both&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Have you ever glanced at your car’s speedometer and wondered what exactly it’s showing you? Is it measuring speed, velocity, or maybe both?**

@@ -1,10 +1,14 @@
 ---
-title: "How to Change Fog Lights on 2018 Jeep Grand Cherokee: Easy Step-by-Step Guide"
-description: "If you’ve noticed your fog lights flickering or not working on your 2018 Jeep Grand Cherokee, it’s time for a change. Replacing fog lights might sound tricky, b"
+title: 'How to Change Fog Lights on 2018 Jeep Grand Cherokee: Easy Step-by-Step Guide'
+description: If you’ve noticed your fog lights flickering or not working on your 2018
+  Jeep Grand Cherokee, it’s time for a change. Replacing fog lights might sound tricky,
+  b
 pubDate: 2025-10-22
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-fog-lights-on-2018-jeep-grand-cherokee&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Interior Light Settings
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-fog-lights-on-2018-jeep-grand-cherokee&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If you’ve noticed your fog lights flickering or not working on your 2018 Jeep Grand Cherokee, it’s time for a change. Replacing fog lights might sound tricky, but with the right steps, you can do it yourself quickly and safely.**

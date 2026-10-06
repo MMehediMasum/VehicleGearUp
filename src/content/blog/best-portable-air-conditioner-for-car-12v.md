@@ -1,10 +1,14 @@
 ---
-title: "Best Portable Air Conditioner for Car 12V: Compact Cooling Solutions Reviewed"
-description: "Finding the best portable air conditioner for car 12V can make your drives cooler and more comfortable. Small, efficient units fit perfectly in tight spaces and"
+title: 'Best Portable Air Conditioner for Car 12V: Compact Cooling Solutions Reviewed'
+description: Finding the best portable air conditioner for car 12V can make your drives
+  cooler and more comfortable. Small, efficient units fit perfectly in tight spaces
+  and
 pubDate: 2026-06-04
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-portable-air-conditioner-for-car-12v&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Garage Car Lifts
+heroImage: https://tse1.mm.bing.net/th?q=best-portable-air-conditioner-for-car-12v&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Finding the best portable air conditioner for car 12V can make your drives cooler and more comfortable. Small, efficient units fit perfectly in tight spaces and run on your vehicle’s power.**

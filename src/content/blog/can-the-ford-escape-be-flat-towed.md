@@ -1,10 +1,14 @@
 ---
-title: "Can the Ford Escape Be Flat Towed: Essential Facts You Must Know"
-description: "Are you thinking about towing your Ford Escape behind your RV or another vehicle? Before you hook it up, you need to know if your Escape can be flat towed safel"
+title: 'Can the Ford Escape Be Flat Towed: Essential Facts You Must Know'
+description: Are you thinking about towing your Ford Escape behind your RV or another
+  vehicle? Before you hook it up, you need to know if your Escape can be flat towed
+  safel
 pubDate: 2025-09-21
-author: "herbertlangham"
-categories: ["Towing & Hauling"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-the-ford-escape-be-flat-towed&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Model Questions
+heroImage: https://tse1.mm.bing.net/th?q=can-the-ford-escape-be-flat-towed&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you thinking about towing your Ford Escape behind your RV or another vehicle? Before you hook it up, you need to know if your Escape can be flat towed safely.**

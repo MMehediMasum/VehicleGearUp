@@ -1,10 +1,14 @@
 ---
-title: "Best Aftermarket Wheels for Tesla Model Y: Top Stylish Rim Picks"
-description: "Choosing the best aftermarket wheels can enhance your Tesla Model Y’s look and performance. Quality wheels improve handling and add style. Tesla Model Y owners "
+title: 'Best Aftermarket Wheels for Tesla Model Y: Top Stylish Rim Picks'
+description: 'Choosing the best aftermarket wheels can enhance your Tesla Model Y’s
+  look and performance. Quality wheels improve handling and add style. Tesla Model
+  Y owners '
 pubDate: 2026-01-11
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-aftermarket-wheels-for-tesla-model-y&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Tires and Accessories
+heroImage: https://tse1.mm.bing.net/th?q=best-aftermarket-wheels-for-tesla-model-y&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best aftermarket wheels can enhance your Tesla Model Y’s look and performance. Quality wheels improve handling and add style.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Tell If U Need a New Car Battery: Signs & Solutions"
-description: "Is your car struggling to start, or are you hearing strange clicking sounds when you turn the key? These are common signs that your car battery might be failing"
+title: 'How to Tell If U Need a New Car Battery: Signs & Solutions'
+description: Is your car struggling to start, or are you hearing strange clicking
+  sounds when you turn the key? These are common signs that your car battery might
+  be failing
 pubDate: 2025-08-29
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-tell-if-u-need-a-new-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Signs of a Failing Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-tell-if-u-need-a-new-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your car struggling to start, or are you hearing strange clicking sounds when you turn the key? These are common signs that your car battery might be failing.**

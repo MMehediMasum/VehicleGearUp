@@ -1,10 +1,14 @@
 ---
-title: "How to Start Mazda Cx 5 Without Key Fob: Quick & Easy Guide"
-description: "Have you ever found yourself locked out of your Mazda CX-5 because your key fob isn’t working? It’s frustrating, and you might feel stuck, unsure of what to do "
+title: 'How to Start Mazda Cx 5 Without Key Fob: Quick & Easy Guide'
+description: 'Have you ever found yourself locked out of your Mazda CX-5 because your
+  key fob isn’t working? It’s frustrating, and you might feel stuck, unsure of what
+  to do '
 pubDate: 2026-03-11
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-start-mazda-cx-5-without-key-fob&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Starting Without Key Fob
+heroImage: https://tse1.mm.bing.net/th?q=how-to-start-mazda-cx-5-without-key-fob&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **Have you ever found yourself locked out of your Mazda CX-5 because your key fob isn’t working? It’s frustrating, and you might feel stuck, unsure of what to do next.**

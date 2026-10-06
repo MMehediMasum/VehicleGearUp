@@ -1,10 +1,14 @@
 ---
-title: "Best Car Wax for Older Cars to Restore Shine and Protect Paint"
-description: "Older cars need special care to keep their paint looking fresh. Choosing the best car wax helps restore shine and protect the surface. Older car paint often fad"
+title: Best Car Wax for Older Cars to Restore Shine and Protect Paint
+description: Older cars need special care to keep their paint looking fresh. Choosing
+  the best car wax helps restore shine and protect the surface. Older car paint often
+  fad
 pubDate: 2026-07-02
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-wax-for-older-cars&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wax by Paint Color
+heroImage: https://tse1.mm.bing.net/th?q=best-car-wax-for-older-cars&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Older cars need special care to keep their paint looking fresh. Choosing the best car wax helps restore shine and protect the surface.**

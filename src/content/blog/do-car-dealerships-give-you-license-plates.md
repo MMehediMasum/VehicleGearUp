@@ -1,10 +1,14 @@
 ---
-title: "Do Car Dealerships Give You License Plates? Essential Facts Revealed"
-description: "Are you wondering if car dealerships give you license plates when you buy a car? It’s a question many buyers have but rarely get a clear answer to. Knowing what"
+title: Do Car Dealerships Give You License Plates? Essential Facts Revealed
+description: Are you wondering if car dealerships give you license plates when you
+  buy a car? It’s a question many buyers have but rarely get a clear answer to. Knowing
+  what
 pubDate: 2026-01-21
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-car-dealerships-give-you-license-plates&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- License Plate Questions
+heroImage: https://tse1.mm.bing.net/th?q=do-car-dealerships-give-you-license-plates&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you wondering if car dealerships give you license plates when you buy a car? It’s a question many buyers have but rarely get a clear answer to.**

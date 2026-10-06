@@ -1,10 +1,14 @@
 ---
-title: "How to Change Windshield Wipers Hyundai Elantra: Easy Step-by-Step Guide"
-description: "Your Hyundai Elantra’s windshield wipers are key to keeping your view clear and your drives safe. But when was the last time you changed them? If your wipers le"
+title: 'How to Change Windshield Wipers Hyundai Elantra: Easy Step-by-Step Guide'
+description: Your Hyundai Elantra’s windshield wipers are key to keeping your view
+  clear and your drives safe. But when was the last time you changed them? If your
+  wipers le
 pubDate: 2025-11-19
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-windshield-wipers-hyundai-elantra&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Windshield Wipers
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-windshield-wipers-hyundai-elantra&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Your Hyundai Elantra’s windshield wipers are key to keeping your view clear and your drives safe. But when was the last time you changed them?**

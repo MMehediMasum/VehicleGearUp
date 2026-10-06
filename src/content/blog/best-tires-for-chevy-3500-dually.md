@@ -1,10 +1,13 @@
 ---
-title: "Best Tires for Chevy 3500 Dually: Top Picks for Ultimate Durability"
-description: "Choosing the best tires for your Chevy 3500 Dually ensures safety, durability, and strong performance. Proper tires support heavy loads and tough road condition"
+title: 'Best Tires for Chevy 3500 Dually: Top Picks for Ultimate Durability'
+description: Choosing the best tires for your Chevy 3500 Dually ensures safety, durability,
+  and strong performance. Proper tires support heavy loads and tough road condition
 pubDate: 2025-12-29
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-chevy-3500-dually&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Chevy and GMC Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-chevy-3500-dually&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your Chevy 3500 Dually ensures safety, durability, and strong performance. Proper tires support heavy loads and tough road conditions.**

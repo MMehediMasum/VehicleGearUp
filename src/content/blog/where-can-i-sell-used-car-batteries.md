@@ -1,10 +1,14 @@
 ---
-title: "Where Can I Sell Used Car Batteries: Top Places to Get Cash Fast"
-description: "Are you holding onto an old car battery and wondering where you can sell it? You’re not alone. Many people don’t realize that used car batteries still have valu"
+title: 'Where Can I Sell Used Car Batteries: Top Places to Get Cash Fast'
+description: Are you holding onto an old car battery and wondering where you can sell
+  it? You’re not alone. Many people don’t realize that used car batteries still have
+  valu
 pubDate: 2025-09-06
-author: "herbertlangham"
-categories: ["Car Buying & Ownership"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-sell-used-car-batteries&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Types and Value
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-sell-used-car-batteries&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you holding onto an old car battery and wondering where you can sell it? You’re not alone.**

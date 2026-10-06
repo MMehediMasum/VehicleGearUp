@@ -1,10 +1,14 @@
 ---
-title: "How to Fix Crack in Car Windshield: Quick & Easy DIY Tips"
-description: "A crack in your car windshield can be more than just an eyesore—it can affect your safety and make driving stressful. You might wonder if it’s something you can"
+title: 'How to Fix Crack in Car Windshield: Quick & Easy DIY Tips'
+description: A crack in your car windshield can be more than just an eyesore—it can
+  affect your safety and make driving stressful. You might wonder if it’s something
+  you can
 pubDate: 2025-09-22
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-crack-in-car-windshield&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Windshield and Mirror Repair
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-crack-in-car-windshield&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **A crack in your car windshield can be more than just an eyesore—it can affect your safety and make driving stressful. You might wonder if it’s something you can fix yourself or if it needs professional help.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Single Stage Paint for Cars: Top High Gloss Kits for a Perfect Finish"
-description: "Choosing the best single stage paint for cars ensures a smooth, shiny finish with less effort. This paint type combines color and gloss in one easy step. Single"
+title: 'Best Single Stage Paint for Cars: Top High Gloss Kits for a Perfect Finish'
+description: Choosing the best single stage paint for cars ensures a smooth, shiny
+  finish with less effort. This paint type combines color and gloss in one easy step.
+  Single
 pubDate: 2026-07-04
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-single-stage-paint-for-cars&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spray Paint and Scratch Repair
+heroImage: https://tse1.mm.bing.net/th?q=best-single-stage-paint-for-cars&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best single stage paint for cars ensures a smooth, shiny finish with less effort. This paint type combines color and gloss in one easy step.**

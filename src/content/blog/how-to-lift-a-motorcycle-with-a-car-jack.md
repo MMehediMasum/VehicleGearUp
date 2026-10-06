@@ -1,10 +1,14 @@
 ---
-title: "How to Lift a Motorcycle With a Car Jack: Easy & Safe Steps"
-description: "Lifting your motorcycle with a car jack might sound tricky, but it’s easier than you think—and it can save you time and effort. Whether you need to change a tir"
+title: 'How to Lift a Motorcycle With a Car Jack: Easy & Safe Steps'
+description: Lifting your motorcycle with a car jack might sound tricky, but it’s
+  easier than you think—and it can save you time and effort. Whether you need to change
+  a tir
 pubDate: 2026-01-16
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-lift-a-motorcycle-with-a-car-jack&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Batteries and Brakes
+heroImage: https://tse1.mm.bing.net/th?q=how-to-lift-a-motorcycle-with-a-car-jack&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Lifting your motorcycle with a car jack might sound tricky, but it’s easier than you think—and it can save you time and effort. Whether you need to change a tire, clean hard-to-reach spots, or do some quick repairs, knowing how to do this safely is a skill every rider should have.**

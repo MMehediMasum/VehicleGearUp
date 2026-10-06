@@ -1,10 +1,14 @@
 ---
-title: "How to Charge a Portable Car Battery Charger: Easy Step-by-Step Guide"
-description: "Have you ever found yourself stuck with a dead car battery and no way to jump-start it? A portable car battery charger can be a lifesaver in these moments—but o"
+title: 'How to Charge a Portable Car Battery Charger: Easy Step-by-Step Guide'
+description: Have you ever found yourself stuck with a dead car battery and no way
+  to jump-start it? A portable car battery charger can be a lifesaver in these moments—but
+  o
 pubDate: 2026-03-27
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-charge-a-portable-car-battery-charger&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Using Battery Chargers
+heroImage: https://tse1.mm.bing.net/th?q=how-to-charge-a-portable-car-battery-charger&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever found yourself stuck with a dead car battery and no way to jump-start it? A portable car battery charger can be a lifesaver in these moments—but only if it’s charged and ready to go.**

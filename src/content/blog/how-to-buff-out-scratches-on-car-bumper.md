@@ -1,10 +1,14 @@
 ---
-title: "How to Buff Out Scratches on Car Bumper: Easy DIY Fixes"
-description: "Have you noticed scratches on your car bumper that make your vehicle look less than perfect? Those annoying marks can catch your eye every time you walk by, and"
+title: 'How to Buff Out Scratches on Car Bumper: Easy DIY Fixes'
+description: Have you noticed scratches on your car bumper that make your vehicle
+  look less than perfect? Those annoying marks can catch your eye every time you walk
+  by, and
 pubDate: 2025-09-26
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-buff-out-scratches-on-car-bumper&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Bumper Dent and Scratch Repair
+heroImage: https://tse1.mm.bing.net/th?q=how-to-buff-out-scratches-on-car-bumper&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you noticed scratches on your car bumper that make your vehicle look less than perfect? Those annoying marks can catch your eye every time you walk by, and you might be wondering if there’s a simple way to fix them without spending a fortune.**

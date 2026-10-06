@@ -1,10 +1,13 @@
 ---
-title: "How to Jump Start a 2017 Ford Escape: Quick & Easy Guide"
-description: "Have you ever faced the frustration of a dead battery in your 2017 Ford Escape right when you need to go? It can throw off your entire day. But don’t worry—jump"
+title: 'How to Jump Start a 2017 Ford Escape: Quick & Easy Guide'
+description: Have you ever faced the frustration of a dead battery in your 2017 Ford
+  Escape right when you need to go? It can throw off your entire day. But don’t worry—jump
 pubDate: 2026-02-03
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-jump-start-a-2017-ford-escape&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jump Starting by Model
+heroImage: https://tse1.mm.bing.net/th?q=how-to-jump-start-a-2017-ford-escape&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever faced the frustration of a dead battery in your 2017 Ford Escape right when you need to go? It can throw off your entire day.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Air Compressor for Truck Tires: Top Portable Heavy Duty Picks"
-description: "Choosing the best air compressor for truck tires ensures quick, reliable inflation on the go. A good compressor saves time and keeps your tires safe. Truck tire"
+title: 'Best Air Compressor for Truck Tires: Top Portable Heavy Duty Picks'
+description: Choosing the best air compressor for truck tires ensures quick, reliable
+  inflation on the go. A good compressor saves time and keeps your tires safe. Truck
+  tire
 pubDate: 2025-12-21
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-air-compressor-for-truck-tires&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tire Inflators and Compressors
+heroImage: https://tse1.mm.bing.net/th?q=best-air-compressor-for-truck-tires&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best air compressor for truck tires ensures quick, reliable inflation on the go. A good compressor saves time and keeps your tires safe.**

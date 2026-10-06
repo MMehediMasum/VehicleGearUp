@@ -1,10 +1,14 @@
 ---
-title: "Best Tonneau Cover for the Money: Top Soft and Hard Truck Bed Covers"
-description: "Finding the best tonneau cover for the money can save truck owners time and effort. A good cover protects cargo and improves truck appearance without breaking t"
+title: 'Best Tonneau Cover for the Money: Top Soft and Hard Truck Bed Covers'
+description: Finding the best tonneau cover for the money can save truck owners time
+  and effort. A good cover protects cargo and improves truck appearance without breaking
+  t
 pubDate: 2026-07-16
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tonneau-cover-for-the-money&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tonneau Covers
+heroImage: https://tse1.mm.bing.net/th?q=best-tonneau-cover-for-the-money&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Finding the best tonneau cover for the money can save truck owners time and effort. A good cover protects cargo and improves truck appearance without breaking the bank.**

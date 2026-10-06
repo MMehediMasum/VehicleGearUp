@@ -1,10 +1,13 @@
 ---
-title: "What Do You Do When Your Car Battery Dies: Quick Fixes & Tips"
-description: "Your car battery dies at the worst possible moment. You’re stuck, frustrated, and unsure what to do next. But don’t worry—this situation is common, and you can "
+title: 'What Do You Do When Your Car Battery Dies: Quick Fixes & Tips'
+description: 'Your car battery dies at the worst possible moment. You’re stuck, frustrated,
+  and unsure what to do next. But don’t worry—this situation is common, and you can '
 pubDate: 2025-10-07
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-do-you-do-when-your-car-battery-dies&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- When to Replace a Battery
+heroImage: https://tse1.mm.bing.net/th?q=what-do-you-do-when-your-car-battery-dies&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Your car battery dies at the worst possible moment. You’re stuck, frustrated, and unsure what to do next.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Shocks for Heavy Duty Trucks to Boost Towing and Load Performance"
-description: "Heavy duty trucks need strong shocks for smooth rides and safe handling. Choosing the right shocks helps trucks carry heavy loads without damage. Heavy duty tru"
+title: Best Shocks for Heavy Duty Trucks to Boost Towing and Load Performance
+description: Heavy duty trucks need strong shocks for smooth rides and safe handling.
+  Choosing the right shocks helps trucks carry heavy loads without damage. Heavy duty
+  tru
 pubDate: 2026-06-03
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-shocks-for-heavy-duty-trucks&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Silverado and Sierra Shocks
+heroImage: https://tse1.mm.bing.net/th?q=best-shocks-for-heavy-duty-trucks&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Heavy duty trucks need strong shocks for smooth rides and safe handling. Choosing the right shocks helps trucks carry heavy loads without damage.**

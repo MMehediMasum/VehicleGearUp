@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Maintenance Reminder on Volvo XC90: Quick & Easy Guide"
-description: "If you drive a Volvo XC90, you know how important it is to keep up with regular maintenance. But what happens when that maintenance reminder won’t reset after a"
+title: 'How to Reset Maintenance Reminder on Volvo XC90: Quick & Easy Guide'
+description: If you drive a Volvo XC90, you know how important it is to keep up with
+  regular maintenance. But what happens when that maintenance reminder won’t reset
+  after a
 pubDate: 2025-12-10
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-maintenance-reminder-on-volvo-xc90&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Maintenance Light Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-maintenance-reminder-on-volvo-xc90&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you drive a Volvo XC90, you know how important it is to keep up with regular maintenance. But what happens when that maintenance reminder won’t reset after a service?**

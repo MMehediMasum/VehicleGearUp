@@ -1,10 +1,14 @@
 ---
-title: "How to Check Car Battery With Voltmeter: Easy & Accurate Steps"
-description: "Is your car acting sluggish or refusing to start? The problem might be your battery. But how can you be sure without spending money on a mechanic? You can quick"
+title: 'How to Check Car Battery With Voltmeter: Easy & Accurate Steps'
+description: Is your car acting sluggish or refusing to start? The problem might be
+  your battery. But how can you be sure without spending money on a mechanic? You
+  can quick
 pubDate: 2026-03-31
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-check-car-battery-with-voltmeter&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Warranty and Storage
+heroImage: https://tse1.mm.bing.net/th?q=how-to-check-car-battery-with-voltmeter&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your car acting sluggish or refusing to start? The problem might be your battery.**

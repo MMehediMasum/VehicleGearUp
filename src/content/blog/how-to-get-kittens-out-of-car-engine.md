@@ -1,10 +1,14 @@
 ---
-title: "How to Get Kittens Out of Car Engine: Safe and Quick Tips"
-description: "Have you ever heard a faint meow coming from under your car hood? Those tiny kittens might be hiding in your engine, seeking warmth and safety. But getting them"
+title: 'How to Get Kittens Out of Car Engine: Safe and Quick Tips'
+description: Have you ever heard a faint meow coming from under your car hood? Those
+  tiny kittens might be hiding in your engine, seeking warmth and safety. But getting
+  them
 pubDate: 2026-05-07
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-get-kittens-out-of-car-engine&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Keeping Pests Out of Engines
+heroImage: https://tse1.mm.bing.net/th?q=how-to-get-kittens-out-of-car-engine&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever heard a faint meow coming from under your car hood? Those tiny kittens might be hiding in your engine, seeking warmth and safety.**

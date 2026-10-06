@@ -1,10 +1,13 @@
 ---
-title: "How to Test a Car Battery Using a Multimeter: Quick & Easy Guide"
-description: "Is your car struggling to start, leaving you frustrated and stuck? Before rushing to the mechanic, you can quickly check if your car battery is the real culprit"
+title: 'How to Test a Car Battery Using a Multimeter: Quick & Easy Guide'
+description: Is your car struggling to start, leaving you frustrated and stuck? Before
+  rushing to the mechanic, you can quickly check if your car battery is the real culprit
 pubDate: 2026-04-16
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-test-a-car-battery-using-a-multimeter&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Testing Battery With Multimeter
+heroImage: https://tse1.mm.bing.net/th?q=how-to-test-a-car-battery-using-a-multimeter&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your car struggling to start, leaving you frustrated and stuck? Before rushing to the mechanic, you can quickly check if your car battery is the real culprit—all by yourself.**

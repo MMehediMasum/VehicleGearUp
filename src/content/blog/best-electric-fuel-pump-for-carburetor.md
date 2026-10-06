@@ -1,10 +1,14 @@
 ---
-title: "Best Electric Fuel Pump for Carburetor: Top Low Pressure Models Reviewed"
-description: "Choosing the best electric fuel pump for a carburetor ensures smooth engine performance and reliable fuel delivery. This guide reviews top low-pressure electric"
+title: 'Best Electric Fuel Pump for Carburetor: Top Low Pressure Models Reviewed'
+description: Choosing the best electric fuel pump for a carburetor ensures smooth
+  engine performance and reliable fuel delivery. This guide reviews top low-pressure
+  electric
 pubDate: 2026-06-13
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-electric-fuel-pump-for-carburetor&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Carburetor and Fuel Injection Kits
+heroImage: https://tse1.mm.bing.net/th?q=best-electric-fuel-pump-for-carburetor&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best electric fuel pump for a carburetor ensures smooth engine performance and reliable fuel delivery. This guide reviews top low-pressure electric pumps suited for various carburetor needs.**

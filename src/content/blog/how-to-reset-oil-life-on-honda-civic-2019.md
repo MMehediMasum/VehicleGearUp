@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Life on Honda Civic 2019: Quick & Easy Steps"
-description: "Keeping your 2019 Honda Civic running smoothly means paying close attention to its oil life. But once you’ve changed the oil, how do you reset the oil life indi"
+title: 'How to Reset Oil Life on Honda Civic 2019: Quick & Easy Steps'
+description: Keeping your 2019 Honda Civic running smoothly means paying close attention
+  to its oil life. But once you’ve changed the oil, how do you reset the oil life
+  indi
 pubDate: 2026-05-15
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-life-on-honda-civic-2019&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Oil Life Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-life-on-honda-civic-2019&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Keeping your 2019 Honda Civic running smoothly means paying close attention to its oil life. But once you’ve changed the oil, how do you reset the oil life indicator?**

@@ -1,10 +1,13 @@
 ---
-title: "Best Tires for Tundra TRD Pro: Top Picks for Ultimate Off-Road Performance"
-description: "Choosing the best tires for your Tundra TRD Pro improves safety and performance. The right tires fit well and handle tough terrains confidently. Your Tundra TRD"
+title: 'Best Tires for Tundra TRD Pro: Top Picks for Ultimate Off-Road Performance'
+description: Choosing the best tires for your Tundra TRD Pro improves safety and performance.
+  The right tires fit well and handle tough terrains confidently. Your Tundra TRD
 pubDate: 2025-12-31
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-tundra-trd-pro&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Trim Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-tundra-trd-pro&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your Tundra TRD Pro improves safety and performance. The right tires fit well and handle tough terrains confidently.**

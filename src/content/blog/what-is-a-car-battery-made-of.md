@@ -1,10 +1,14 @@
 ---
-title: "What is a Car Battery Made of: Essential Components Explained"
-description: "Have you ever wondered what’s inside your car battery that keeps your engine running and your lights shining? Understanding what a car battery is made of can gi"
+title: 'What is a Car Battery Made of: Essential Components Explained'
+description: Have you ever wondered what’s inside your car battery that keeps your
+  engine running and your lights shining? Understanding what a car battery is made
+  of can gi
 pubDate: 2026-04-19
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-a-car-battery-made-of&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Ratings Explained
+heroImage: https://tse1.mm.bing.net/th?q=what-is-a-car-battery-made-of&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered what’s inside your car battery that keeps your engine running and your lights shining? Understanding what a car battery is made of can give you a clearer picture of how it powers your vehicle and why it sometimes needs replacing.**

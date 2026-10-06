@@ -1,10 +1,14 @@
 ---
-title: "Can You Use Brake Cleaner on Motorcycle Chain? Expert Insights"
-description: "Are you wondering if brake cleaner is a good option for cleaning your motorcycle chain? You’re not alone. Many riders look for quick and effective ways to keep "
+title: Can You Use Brake Cleaner on Motorcycle Chain? Expert Insights
+description: 'Are you wondering if brake cleaner is a good option for cleaning your
+  motorcycle chain? You’re not alone. Many riders look for quick and effective ways
+  to keep '
 pubDate: 2026-05-06
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-use-brake-cleaner-on-motorcycle-chain&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Batteries and Brakes
+heroImage: https://tse1.mm.bing.net/th?q=can-you-use-brake-cleaner-on-motorcycle-chain&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you wondering if brake cleaner is a good option for cleaning your motorcycle chain? You’re not alone.**

@@ -1,10 +1,13 @@
 ---
-title: "Can High Outside Temperature Cause Car Battery to Go Dead? Find Out!"
-description: "Have you ever wondered why your car battery suddenly dies on a scorching hot day? You might think cold weather is the main culprit, but high outside temperature"
+title: Can High Outside Temperature Cause Car Battery to Go Dead? Find Out!
+description: Have you ever wondered why your car battery suddenly dies on a scorching
+  hot day? You might think cold weather is the main culprit, but high outside temperature
 pubDate: 2025-09-16
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-high-outside-temperature-cause-car-battery-to-go-dead&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Reviving a Dead Battery
+heroImage: https://tse1.mm.bing.net/th?q=can-high-outside-temperature-cause-car-battery-to-go-dead&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered why your car battery suddenly dies on a scorching hot day? You might think cold weather is the main culprit, but high outside temperatures can be just as damaging.**

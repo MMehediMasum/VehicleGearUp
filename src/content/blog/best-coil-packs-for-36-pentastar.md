@@ -1,10 +1,13 @@
 ---
-title: "Best Coil Packs for 3.6 Pentastar: Top Ignition Coils Reviewed"
-description: "Choosing the right coil pack improves your 3.6 Pentastar engine’s performance and reliability. Quality ignition coils ensure smooth starts and better fuel effic"
+title: 'Best Coil Packs for 3.6 Pentastar: Top Ignition Coils Reviewed'
+description: Choosing the right coil pack improves your 3.6 Pentastar engine’s performance
+  and reliability. Quality ignition coils ensure smooth starts and better fuel effic
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-coil-packs-for-36-pentastar&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Coil Packs and Ignition
+heroImage: https://tse1.mm.bing.net/th?q=best-coil-packs-for-36-pentastar&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the right coil pack improves your 3.6 Pentastar engine’s performance and reliability. Quality ignition coils ensure smooth starts and better fuel efficiency.**

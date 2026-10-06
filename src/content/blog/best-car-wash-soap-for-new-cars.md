@@ -1,10 +1,14 @@
 ---
-title: "Best Car Wash Soap for New Cars: Top Picks for a Spotless Shine"
-description: "Choosing the best car wash soap protects your new car’s paint and keeps it shining. The right soap cleans gently without causing scratches or damage. New cars n"
+title: 'Best Car Wash Soap for New Cars: Top Picks for a Spotless Shine'
+description: Choosing the best car wash soap protects your new car’s paint and keeps
+  it shining. The right soap cleans gently without causing scratches or damage. New
+  cars n
 pubDate: 2025-10-08
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-wash-soap-for-new-cars&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wash Soap Picks
+heroImage: https://tse1.mm.bing.net/th?q=best-car-wash-soap-for-new-cars&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best car wash soap protects your new car’s paint and keeps it shining. The right soap cleans gently without causing scratches or damage.**

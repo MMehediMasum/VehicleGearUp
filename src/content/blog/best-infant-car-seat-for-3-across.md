@@ -1,10 +1,14 @@
 ---
-title: "Best Infant Car Seat for 3 Across: Top Slim Fit Convertible Choices"
-description: "Finding the best infant car seat for 3 across can be tough. Space is tight, and safety is key for every child. Car seats that fit three across in the back seat "
+title: 'Best Infant Car Seat for 3 Across: Top Slim Fit Convertible Choices'
+description: 'Finding the best infant car seat for 3 across can be tough. Space is
+  tight, and safety is key for every child. Car seats that fit three across in the
+  back seat '
 pubDate: 2026-07-27
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-infant-car-seat-for-3-across&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Seat Accessories
+heroImage: https://tse1.mm.bing.net/th?q=best-infant-car-seat-for-3-across&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Finding the best infant car seat for 3 across can be tough. Space is tight, and safety is key for every child.**

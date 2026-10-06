@@ -1,10 +1,14 @@
 ---
-title: "How to Get Sap off Car Windshield: Easy & Effective Removal Tips"
-description: "Sap on your car windshield can be frustrating. It blocks your view and is tough to remove. If you’ve ever struggled with sticky, stubborn sap, you know how anno"
+title: 'How to Get Sap off Car Windshield: Easy & Effective Removal Tips'
+description: Sap on your car windshield can be frustrating. It blocks your view and
+  is tough to remove. If you’ve ever struggled with sticky, stubborn sap, you know
+  how anno
 pubDate: 2026-05-30
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-get-sap-off-car-windshield&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Windshield Sap and Scratches
+heroImage: https://tse1.mm.bing.net/th?q=how-to-get-sap-off-car-windshield&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Sap on your car windshield can be frustrating. It blocks your view and is tough to remove.**

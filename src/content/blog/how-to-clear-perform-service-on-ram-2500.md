@@ -1,10 +1,14 @@
 ---
-title: "How to Clear Perform Service on Ram 2500: Easy Step-by-Step Guide"
-description: "If you own a Ram 2500, you know how important it is to keep it running smoothly. When the “Perform Service” light comes on, it’s your truck’s way of telling you"
+title: 'How to Clear Perform Service on Ram 2500: Easy Step-by-Step Guide'
+description: If you own a Ram 2500, you know how important it is to keep it running
+  smoothly. When the “Perform Service” light comes on, it’s your truck’s way of telling
+  you
 pubDate: 2026-01-17
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clear-perform-service-on-ram-2500&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ram and Dodge Oil Life
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clear-perform-service-on-ram-2500&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a Ram 2500, you know how important it is to keep it running smoothly. When the “Perform Service” light comes on, it’s your truck’s way of telling you it’s time for maintenance.**

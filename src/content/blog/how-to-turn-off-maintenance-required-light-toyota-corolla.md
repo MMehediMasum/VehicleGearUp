@@ -1,10 +1,14 @@
 ---
-title: "How to Turn off Maintenance Required Light Toyota Corolla: Quick Fix Guide"
-description: "Is that annoying “Maintenance Required” light on your Toyota Corolla dashboard distracting you? You’re not alone. That little reminder pops up to keep your car "
+title: 'How to Turn off Maintenance Required Light Toyota Corolla: Quick Fix Guide'
+description: 'Is that annoying “Maintenance Required” light on your Toyota Corolla
+  dashboard distracting you? You’re not alone. That little reminder pops up to keep
+  your car '
 pubDate: 2026-05-24
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-maintenance-required-light-toyota-corolla&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Maintenance Required Message
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-maintenance-required-light-toyota-corolla&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is that annoying “Maintenance Required” light on your Toyota Corolla dashboard distracting you? You’re not alone.**

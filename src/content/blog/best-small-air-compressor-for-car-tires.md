@@ -1,10 +1,14 @@
 ---
-title: "Best Small Air Compressor for Car Tires: Top Portable Tire Inflators Reviewed"
-description: "Choosing the best small air compressor for car tires ensures quick, easy tire inflation anytime. Compact models fit in your car and save space. A reliable porta"
+title: 'Best Small Air Compressor for Car Tires: Top Portable Tire Inflators Reviewed'
+description: Choosing the best small air compressor for car tires ensures quick, easy
+  tire inflation anytime. Compact models fit in your car and save space. A reliable
+  porta
 pubDate: 2025-12-29
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-small-air-compressor-for-car-tires&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tire Inflators and Compressors
+heroImage: https://tse1.mm.bing.net/th?q=best-small-air-compressor-for-car-tires&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best small air compressor for car tires ensures quick, easy tire inflation anytime. Compact models fit in your car and save space.**

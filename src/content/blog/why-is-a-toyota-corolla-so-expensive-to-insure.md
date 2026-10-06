@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Why is a Toyota Corolla So Expensive to Insure: Shocking Reasons Revealed"
 description: "Have you ever wondered why your Toyota Corolla’s insurance bill feels so high? You might expect a car known for reliability and affordability to come with cheap"
 pubDate: 2026-01-31

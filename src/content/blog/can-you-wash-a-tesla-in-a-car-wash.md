@@ -1,10 +1,14 @@
 ---
-title: "Can You Wash a Tesla in a Car Wash? Expert Tips Revealed"
-description: "Are you wondering if you can safely wash your Tesla in a car wash? You want your sleek electric car to look spotless without risking any damage. But with all th"
+title: Can You Wash a Tesla in a Car Wash? Expert Tips Revealed
+description: Are you wondering if you can safely wash your Tesla in a car wash? You
+  want your sleek electric car to look spotless without risking any damage. But with
+  all th
 pubDate: 2025-11-02
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-wash-a-tesla-in-a-car-wash&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Washing Electric Cars
+heroImage: https://tse1.mm.bing.net/th?q=can-you-wash-a-tesla-in-a-car-wash&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you wondering if you can safely wash your Tesla in a car wash? You want your sleek electric car to look spotless without risking any damage.**

@@ -1,10 +1,14 @@
 ---
-title: "What Terminal to Disconnect First Car Battery: Expert Safety Tips"
-description: "If you’ve ever needed to disconnect your car battery, you might have wondered: which terminal should you disconnect first? Getting this step wrong can lead to s"
+title: 'What Terminal to Disconnect First Car Battery: Expert Safety Tips'
+description: 'If you’ve ever needed to disconnect your car battery, you might have
+  wondered: which terminal should you disconnect first? Getting this step wrong can
+  lead to s'
 pubDate: 2025-10-20
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-terminal-to-disconnect-first-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Disconnect Order
+heroImage: https://tse1.mm.bing.net/th?q=what-terminal-to-disconnect-first-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **If you’ve ever needed to disconnect your car battery, you might have wondered: which terminal should you disconnect first? Getting this step wrong can lead to sparks, damage, or even injury.**

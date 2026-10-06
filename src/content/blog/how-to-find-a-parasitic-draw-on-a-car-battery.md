@@ -1,10 +1,14 @@
 ---
-title: "How to Find a Parasitic Draw on a Car Battery: Quick Fix Tips"
-description: "Is your car battery dying faster than it should? You might be dealing with a parasitic draw—a hidden drain that slowly saps your battery’s power when your car i"
+title: 'How to Find a Parasitic Draw on a Car Battery: Quick Fix Tips'
+description: Is your car battery dying faster than it should? You might be dealing
+  with a parasitic draw—a hidden drain that slowly saps your battery’s power when
+  your car i
 pubDate: 2026-03-30
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-find-a-parasitic-draw-on-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Fixing Battery Drain
+heroImage: https://tse1.mm.bing.net/th?q=how-to-find-a-parasitic-draw-on-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your car battery dying faster than it should? You might be dealing with a parasitic draw—a hidden drain that slowly saps your battery’s power when your car is off.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for 3.0 Duramax to Boost Power and Efficiency"
-description: "Choosing the best cold air intake for your 3.0 Duramax can boost engine power and efficiency. A quality intake improves airflow and helps your truck perform bet"
+title: Best Cold Air Intake for 3.0 Duramax to Boost Power and Efficiency
+description: Choosing the best cold air intake for your 3.0 Duramax can boost engine
+  power and efficiency. A quality intake improves airflow and helps your truck perform
+  bet
 pubDate: 2026-06-24
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-30-duramax&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- GM Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-30-duramax&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best cold air intake for your 3.0 Duramax can boost engine power and efficiency. A quality intake improves airflow and helps your truck perform better.**

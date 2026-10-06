@@ -1,10 +1,14 @@
 ---
-title: "What Car Battery Voltage is Too Low: Signs & Solutions Revealed"
-description: "Have you ever wondered if your car battery is losing power before it leaves you stranded? Knowing what car battery voltage is too low can save you from unexpect"
+title: 'What Car Battery Voltage is Too Low: Signs & Solutions Revealed'
+description: Have you ever wondered if your car battery is losing power before it
+  leaves you stranded? Knowing what car battery voltage is too low can save you from
+  unexpect
 pubDate: 2026-03-26
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-car-battery-voltage-is-too-low&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Normal Battery Voltage
+heroImage: https://tse1.mm.bing.net/th?q=what-car-battery-voltage-is-too-low&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if your car battery is losing power before it leaves you stranded? Knowing what car battery voltage is too low can save you from unexpected breakdowns and costly repairs.**

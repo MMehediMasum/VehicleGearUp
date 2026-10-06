@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Audi Q7 Tire Pressure: Quick & Easy Guide"
-description: "If you own an Audi Q7, keeping your tire pressure just right is key to a smooth and safe drive. But what happens when your tire pressure warning light turns on?"
+title: 'How to Reset Audi Q7 Tire Pressure: Quick & Easy Guide'
+description: If you own an Audi Q7, keeping your tire pressure just right is key to
+  a smooth and safe drive. But what happens when your tire pressure warning light
+  turns on?
 pubDate: 2025-10-24
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-audi-q7-tire-pressure&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Tire Pressure Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-audi-q7-tire-pressure&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **If you own an Audi Q7, keeping your tire pressure just right is key to a smooth and safe drive. But what happens when your tire pressure warning light turns on?**

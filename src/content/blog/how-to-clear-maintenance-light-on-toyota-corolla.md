@@ -1,10 +1,14 @@
 ---
-title: "How to Clear Maintenance Light on Toyota Corolla: Easy Steps"
-description: "Is that annoying maintenance light on your Toyota Corolla distracting you every time you start the engine? You’re not alone. That little warning can cause a lot"
+title: 'How to Clear Maintenance Light on Toyota Corolla: Easy Steps'
+description: Is that annoying maintenance light on your Toyota Corolla distracting
+  you every time you start the engine? You’re not alone. That little warning can cause
+  a lot
 pubDate: 2026-05-24
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clear-maintenance-light-on-toyota-corolla&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Maintenance Light Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clear-maintenance-light-on-toyota-corolla&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is that annoying maintenance light on your Toyota Corolla distracting you every time you start the engine? You’re not alone.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Fix Ford Focus Transmission Problems: Expert Repair Tips"
-description: "Are you struggling with transmission problems in your Ford Focus? You’re not alone, and the good news is that many common issues can be fixed without breaking t"
+title: 'How to Fix Ford Focus Transmission Problems: Expert Repair Tips'
+description: Are you struggling with transmission problems in your Ford Focus? You’re
+  not alone, and the good news is that many common issues can be fixed without breaking
+  t
 pubDate: 2025-11-05
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-ford-focus-transmission-problems&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Third Row and Mileage
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-ford-focus-transmission-problems&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you struggling with transmission problems in your Ford Focus? You’re not alone, and the good news is that many common issues can be fixed without breaking the bank.**

@@ -1,10 +1,14 @@
 ---
-title: "How Often to Change Car Spark Plugs: Essential Maintenance Tips"
-description: "If you want your car to run smoothly and avoid unexpected breakdowns, knowing when to change your spark plugs is key. You might not think about them often, but "
+title: 'How Often to Change Car Spark Plugs: Essential Maintenance Tips'
+description: 'If you want your car to run smoothly and avoid unexpected breakdowns,
+  knowing when to change your spark plugs is key. You might not think about them often,
+  but '
 pubDate: 2026-03-03
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-often-to-change-car-spark-plugs&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spark Plug Maintenance
+heroImage: https://tse1.mm.bing.net/th?q=how-often-to-change-car-spark-plugs&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **If you want your car to run smoothly and avoid unexpected breakdowns, knowing when to change your spark plugs is key. You might not think about them often, but spark plugs play a crucial role in your engine’s performance.**

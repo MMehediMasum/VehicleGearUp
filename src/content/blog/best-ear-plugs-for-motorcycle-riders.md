@@ -1,10 +1,14 @@
 ---
-title: "Best Ear Plugs for Motorcycle Riders: Ultimate Noise Cancelling Comfort"
-description: "Riding a motorcycle can be loud and tiring for your ears. Good ear plugs help protect your hearing and make rides more comfortable. EARasers Noise Cancelling Ea"
+title: 'Best Ear Plugs for Motorcycle Riders: Ultimate Noise Cancelling Comfort'
+description: Riding a motorcycle can be loud and tiring for your ears. Good ear plugs
+  help protect your hearing and make rides more comfortable. EARasers Noise Cancelling
+  Ea
 pubDate: 2026-01-14
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-ear-plugs-for-motorcycle-riders&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Helmets and Boots
+heroImage: https://tse1.mm.bing.net/th?q=best-ear-plugs-for-motorcycle-riders&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Riding a motorcycle can be loud and tiring for your ears. Good ear plugs help protect your hearing and make rides more comfortable.**

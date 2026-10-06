@@ -1,10 +1,14 @@
 ---
-title: "What to Do After Installing New Car Battery: Essential Steps to Follow"
-description: "You just installed a new car battery—great job! But what comes next? If you think you’re done, think again. Taking the right steps after installation can save y"
+title: 'What to Do After Installing New Car Battery: Essential Steps to Follow'
+description: You just installed a new car battery—great job! But what comes next?
+  If you think you’re done, think again. Taking the right steps after installation
+  can save y
 pubDate: 2026-04-16
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-do-after-installing-new-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Price and Installation
+heroImage: https://tse1.mm.bing.net/th?q=what-to-do-after-installing-new-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **You just installed a new car battery—great job! But what comes next?**

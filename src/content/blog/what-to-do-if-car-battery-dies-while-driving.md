@@ -1,10 +1,14 @@
 ---
-title: "What to Do If Car Battery Dies While Driving: Essential Survival Tips"
-description: "Imagine you’re driving down the road, and suddenly your car’s electrical system starts acting up. The lights dim, the radio cuts out, and before you know it, yo"
+title: 'What to Do If Car Battery Dies While Driving: Essential Survival Tips'
+description: Imagine you’re driving down the road, and suddenly your car’s electrical
+  system starts acting up. The lights dim, the radio cuts out, and before you know
+  it, yo
 pubDate: 2026-04-11
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-do-if-car-battery-dies-while-driving&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Signs of a Failing Battery
+heroImage: https://tse1.mm.bing.net/th?q=what-to-do-if-car-battery-dies-while-driving&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Imagine you’re driving down the road, and suddenly your car’s electrical system starts acting up. The lights dim, the radio cuts out, and before you know it, your car stalls.**

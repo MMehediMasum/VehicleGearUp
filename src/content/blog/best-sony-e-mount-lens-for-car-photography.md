@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Sony E Mount Lens for Car Photography: Top Picks for Sharp Shots"
 description: "Choosing the right Sony E mount lens can greatly improve car photography results. Each lens offers unique features suited for capturing cars with clarity and st"
 pubDate: 2026-06-09

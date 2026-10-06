@@ -1,10 +1,14 @@
 ---
-title: "How to Turn off Oil Change Light Ford Escape: Quick & Easy Guide"
-description: "Your Ford Escape’s oil change light just came on, and you’re wondering how to turn it off. It can be annoying when that little warning stays on even after you’v"
+title: 'How to Turn off Oil Change Light Ford Escape: Quick & Easy Guide'
+description: Your Ford Escape’s oil change light just came on, and you’re wondering
+  how to turn it off. It can be annoying when that little warning stays on even after
+  you’v
 pubDate: 2026-04-24
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-oil-change-light-ford-escape&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Oil Change Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-oil-change-light-ford-escape&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Your Ford Escape’s oil change light just came on, and you’re wondering how to turn it off. It can be annoying when that little warning stays on even after you’ve changed the oil.**

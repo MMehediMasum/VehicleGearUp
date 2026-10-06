@@ -1,10 +1,14 @@
 ---
-title: "How to Replace Lexus Rx350 Wiper Blades: Quick & Easy Guide"
-description: "Your Lexus RX350 deserves clear vision, especially when rain or snow hits the road. If your wiper blades are streaking, squeaking, or just not working like they"
+title: 'How to Replace Lexus Rx350 Wiper Blades: Quick & Easy Guide'
+description: Your Lexus RX350 deserves clear vision, especially when rain or snow
+  hits the road. If your wiper blades are streaking, squeaking, or just not working
+  like they
 pubDate: 2026-04-22
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-replace-lexus-rx350-wiper-blades&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Best Wiper Blades
+heroImage: https://tse1.mm.bing.net/th?q=how-to-replace-lexus-rx350-wiper-blades&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Your Lexus RX350 deserves clear vision, especially when rain or snow hits the road. If your wiper blades are streaking, squeaking, or just not working like they should, it’s time for a change.**

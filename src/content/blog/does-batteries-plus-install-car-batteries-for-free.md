@@ -1,10 +1,14 @@
 ---
-title: "Does Batteries Plus Install Car Batteries for Free? Truth Revealed!"
-description: "Are you wondering if Batteries Plus offers free installation when you buy a car battery? You’re not alone. When your car battery dies, the last thing you want i"
+title: Does Batteries Plus Install Car Batteries for Free? Truth Revealed!
+description: Are you wondering if Batteries Plus offers free installation when you
+  buy a car battery? You’re not alone. When your car battery dies, the last thing
+  you want i
 pubDate: 2026-02-15
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-batteries-plus-install-car-batteries-for-free&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Retailers and Returns
+heroImage: https://tse1.mm.bing.net/th?q=does-batteries-plus-install-car-batteries-for-free&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you wondering if Batteries Plus offers free installation when you buy a car battery? You’re not alone.**

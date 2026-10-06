@@ -1,10 +1,14 @@
 ---
-title: "How to Put Tesla Model 3 in Neutral: Quick & Easy Guide"
-description: "If you own a Tesla Model 3, knowing how to put it in neutral is important for different situations, like towing or moving the car manually. But the process isn’"
+title: 'How to Put Tesla Model 3 in Neutral: Quick & Easy Guide'
+description: If you own a Tesla Model 3, knowing how to put it in neutral is important
+  for different situations, like towing or moving the car manually. But the process
+  isn’
 pubDate: 2025-10-06
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-put-tesla-model-3-in-neutral&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Model Y Features
+heroImage: https://tse1.mm.bing.net/th?q=how-to-put-tesla-model-3-in-neutral&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **If you own a Tesla Model 3, knowing how to put it in neutral is important for different situations, like towing or moving the car manually. But the process isn’t as straightforward as in traditional cars, and you might find yourself unsure what to do.**

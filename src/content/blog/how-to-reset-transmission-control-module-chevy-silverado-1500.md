@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Transmission Control Module Chevy Silverado 1500: Quick Fix Guide"
-description: "Is your Chevy Silverado 1500 acting up? Maybe it's shifting rough, hesitating, or showing warning lights. These issues often point to your Transmission Control "
+title: 'How to Reset Transmission Control Module Chevy Silverado 1500: Quick Fix Guide'
+description: 'Is your Chevy Silverado 1500 acting up? Maybe it''s shifting rough,
+  hesitating, or showing warning lights. These issues often point to your Transmission
+  Control '
 pubDate: 2026-05-14
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-transmission-control-module-chevy-silverado-1500&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Adding Transmission Fluid
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-transmission-control-module-chevy-silverado-1500&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your Chevy Silverado 1500 acting up? Maybe it's shifting rough, hesitating, or showing warning lights.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Change a Battery in a Mercedes C300: Easy Step-by-Step Guide"
-description: "Is your Mercedes C300 struggling to start or showing warning lights on the dashboard? It might be time to change your car’s battery. You don’t need to rush to a"
+title: 'How to Change a Battery in a Mercedes C300: Easy Step-by-Step Guide'
+description: Is your Mercedes C300 struggling to start or showing warning lights on
+  the dashboard? It might be time to change your car’s battery. You don’t need to
+  rush to a
 pubDate: 2026-04-14
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-a-battery-in-a-mercedes-c300&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing a Car Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-a-battery-in-a-mercedes-c300&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your Mercedes C300 struggling to start or showing warning lights on the dashboard? It might be time to change your car’s battery.**

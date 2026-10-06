@@ -1,10 +1,14 @@
 ---
-title: "Can I Drive My Car With Bad Spark Plugs: Risks & Safety Tips"
-description: "Have you noticed your car struggling to start or feeling less powerful lately? You might be wondering, “Can I drive my car with bad spark plugs?” It’s a common "
+title: 'Can I Drive My Car With Bad Spark Plugs: Risks & Safety Tips'
+description: 'Have you noticed your car struggling to start or feeling less powerful
+  lately? You might be wondering, “Can I drive my car with bad spark plugs?” It’s
+  a common '
 pubDate: 2026-03-09
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-i-drive-my-car-with-bad-spark-plugs&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spark Plug Misfire Symptoms
+heroImage: https://tse1.mm.bing.net/th?q=can-i-drive-my-car-with-bad-spark-plugs&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you noticed your car struggling to start or feeling less powerful lately? You might be wondering, “Can I drive my car with bad spark plugs?” It’s a common question, especially when your vehicle isn’t performing like it used to.**

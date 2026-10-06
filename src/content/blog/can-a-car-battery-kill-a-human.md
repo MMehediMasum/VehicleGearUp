@@ -1,10 +1,14 @@
 ---
-title: "Can a Car Battery Kill a Human: Shocking Truth Revealed"
-description: "Have you ever wondered if a car battery can actually harm you? It’s a question that might cross your mind when you’re handling your vehicle or jump-starting a f"
+title: 'Can a Car Battery Kill a Human: Shocking Truth Revealed'
+description: Have you ever wondered if a car battery can actually harm you? It’s a
+  question that might cross your mind when you’re handling your vehicle or jump-starting
+  a f
 pubDate: 2026-03-30
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-a-car-battery-kill-a-human&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Warranty and Storage
+heroImage: https://tse1.mm.bing.net/th?q=can-a-car-battery-kill-a-human&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if a car battery can actually harm you? It’s a question that might cross your mind when you’re handling your vehicle or jump-starting a friend’s car.**

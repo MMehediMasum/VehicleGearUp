@@ -1,10 +1,14 @@
 ---
-title: "How to Strap a Dirt Bike in a Truck Bed: Ultimate Safety Guide"
-description: "Strapping your dirt bike securely in a truck bed is more important than you might think. If you don’t do it right, your bike could shift, fall, or get damaged d"
+title: 'How to Strap a Dirt Bike in a Truck Bed: Ultimate Safety Guide'
+description: Strapping your dirt bike securely in a truck bed is more important than
+  you might think. If you don’t do it right, your bike could shift, fall, or get damaged
+  d
 pubDate: 2025-09-18
-author: "herbertlangham"
-categories: ["Towing & Hauling"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-strap-a-dirt-bike-in-a-truck-bed&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hauling Motorcycles in Trucks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-strap-a-dirt-bike-in-a-truck-bed&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Strapping your dirt bike securely in a truck bed is more important than you might think. If you don’t do it right, your bike could shift, fall, or get damaged during the ride.**

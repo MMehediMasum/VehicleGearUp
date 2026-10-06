@@ -1,10 +1,14 @@
 ---
-title: "Best Timing Light for Classic Cars: Top Digital Ignition Tools Reviewed"
-description: "Finding the best timing light for classic cars helps keep your engine running smoothly. Timing lights make tuning easier and more accurate. Classic cars need pr"
+title: 'Best Timing Light for Classic Cars: Top Digital Ignition Tools Reviewed'
+description: Finding the best timing light for classic cars helps keep your engine
+  running smoothly. Timing lights make tuning easier and more accurate. Classic cars
+  need pr
 pubDate: 2026-07-18
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-timing-light-for-classic-cars&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Coil Packs and Ignition
+heroImage: https://tse1.mm.bing.net/th?q=best-timing-light-for-classic-cars&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Finding the best timing light for classic cars helps keep your engine running smoothly. Timing lights make tuning easier and more accurate.**

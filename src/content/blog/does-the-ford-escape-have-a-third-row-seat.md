@@ -1,10 +1,14 @@
 ---
-title: "Does the Ford Escape Have a Third Row Seat? Ultimate Guide 2025"
-description: "Are you wondering if the Ford Escape can fit your whole family comfortably? If you need extra seating for kids, friends, or gear, knowing whether this popular S"
+title: Does the Ford Escape Have a Third Row Seat? Ultimate Guide 2025
+description: Are you wondering if the Ford Escape can fit your whole family comfortably?
+  If you need extra seating for kids, friends, or gear, knowing whether this popular
+  S
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-the-ford-escape-have-a-third-row-seat&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Third Row and Mileage
+heroImage: https://tse1.mm.bing.net/th?q=does-the-ford-escape-have-a-third-row-seat&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you wondering if the Ford Escape can fit your whole family comfortably? If you need extra seating for kids, friends, or gear, knowing whether this popular SUV has a third row is key.**

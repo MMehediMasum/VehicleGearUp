@@ -1,10 +1,14 @@
 ---
-title: "Best Run Flat Tires for Mercedes GLC 300: Top Picks for Safety & Performance"
-description: "Choosing the best run flat tires for your Mercedes GLC 300 ensures safety and performance on the road. Quality tires help maintain control during a puncture and"
+title: 'Best Run Flat Tires for Mercedes GLC 300: Top Picks for Safety & Performance'
+description: Choosing the best run flat tires for your Mercedes GLC 300 ensures safety
+  and performance on the road. Quality tires help maintain control during a puncture
+  and
 pubDate: 2025-10-09
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-run-flat-tires-for-mercedes-glc-300&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- European Car Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-run-flat-tires-for-mercedes-glc-300&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best run flat tires for your Mercedes GLC 300 ensures safety and performance on the road. Quality tires help maintain control during a puncture and improve driving comfort.**

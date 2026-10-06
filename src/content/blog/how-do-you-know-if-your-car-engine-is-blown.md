@@ -1,10 +1,14 @@
 ---
-title: "How Do You Know If Your Car Engine is Blown: Key Signs Revealed"
-description: "Have you ever wondered what it really means when your car engine is blown? It’s a situation no driver wants to face, but knowing the signs early can save you a "
+title: 'How Do You Know If Your Car Engine is Blown: Key Signs Revealed'
+description: 'Have you ever wondered what it really means when your car engine is
+  blown? It’s a situation no driver wants to face, but knowing the signs early can
+  save you a '
 pubDate: 2026-05-16
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-know-if-your-car-engine-is-blown&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Engine Noise and Heat
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-know-if-your-car-engine-is-blown&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you ever wondered what it really means when your car engine is blown? It’s a situation no driver wants to face, but knowing the signs early can save you a lot of stress and money.**

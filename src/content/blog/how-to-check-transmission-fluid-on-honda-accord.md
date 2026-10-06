@@ -1,10 +1,14 @@
 ---
-title: "How to Check Transmission Fluid on Honda Accord: Easy Step-by-Step Guide"
-description: "Your Honda Accord’s transmission fluid plays a big role in keeping your car running smoothly. But do you know how to check it properly? If you don’t, you could "
+title: 'How to Check Transmission Fluid on Honda Accord: Easy Step-by-Step Guide'
+description: 'Your Honda Accord’s transmission fluid plays a big role in keeping your
+  car running smoothly. But do you know how to check it properly? If you don’t, you
+  could '
 pubDate: 2026-04-29
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-check-transmission-fluid-on-honda-accord&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Transmission Fluid Checks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-check-transmission-fluid-on-honda-accord&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Your Honda Accord’s transmission fluid plays a big role in keeping your car running smoothly. But do you know how to check it properly?**

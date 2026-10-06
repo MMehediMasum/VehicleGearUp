@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Light on 2025 Hyundai Tucson: Quick & Easy Steps"
-description: "Is your 2024 Hyundai Tucson’s oil light on, and you’re not sure what to do next? Don’t worry—you’re in the right place. Resetting the oil light is a simple task"
+title: 'How to Reset Oil Light on 2025 Hyundai Tucson: Quick & Easy Steps'
+description: Is your 2024 Hyundai Tucson’s oil light on, and you’re not sure what
+  to do next? Don’t worry—you’re in the right place. Resetting the oil light is a
+  simple task
 pubDate: 2026-05-02
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-light-on-2024-hyundai-tucson&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Oil Light Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-light-on-2024-hyundai-tucson&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your 2024 Hyundai Tucson’s oil light on, and you’re not sure what to do next? Don’t worry—you’re in the right place.**

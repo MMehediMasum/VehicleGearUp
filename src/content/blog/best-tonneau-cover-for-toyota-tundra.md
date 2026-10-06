@@ -1,10 +1,14 @@
 ---
-title: "Best Tonneau Cover for Toyota Tundra: Top Durable Picks Reviewed"
-description: "Choosing the best tonneau cover for your Toyota Tundra protects your truck bed from weather and theft. It also improves fuel efficiency and keeps cargo secure. "
+title: 'Best Tonneau Cover for Toyota Tundra: Top Durable Picks Reviewed'
+description: 'Choosing the best tonneau cover for your Toyota Tundra protects your
+  truck bed from weather and theft. It also improves fuel efficiency and keeps cargo
+  secure. '
 pubDate: 2026-07-21
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tonneau-cover-for-toyota-tundra&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tonneau Covers
+heroImage: https://tse1.mm.bing.net/th?q=best-tonneau-cover-for-toyota-tundra&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Choosing the best tonneau cover for your Toyota Tundra protects your truck bed from weather and theft. It also improves fuel efficiency and keeps cargo secure.**

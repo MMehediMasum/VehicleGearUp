@@ -1,10 +1,14 @@
 ---
-title: "Can You Use a Car Battery for a Boat: Essential Facts Revealed"
-description: "Are you wondering if you can use a car battery for your boat? It’s a question many boat owners ask, especially when they want a quick and affordable power solut"
+title: 'Can You Use a Car Battery for a Boat: Essential Facts Revealed'
+description: Are you wondering if you can use a car battery for your boat? It’s a
+  question many boat owners ask, especially when they want a quick and affordable
+  power solut
 pubDate: 2026-03-24
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-use-a-car-battery-for-a-boat&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Choosing the Best Battery
+heroImage: https://tse1.mm.bing.net/th?q=can-you-use-a-car-battery-for-a-boat&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you wondering if you can use a car battery for your boat? It’s a question many boat owners ask, especially when they want a quick and affordable power solution.**

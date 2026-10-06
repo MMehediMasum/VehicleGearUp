@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Car Exhaust Quieter: Easy and Effective Tips"
-description: "Is your car’s loud exhaust disturbing your peace or attracting unwanted attention? You’re not alone. A noisy exhaust can be frustrating, drawing eyes and someti"
+title: 'How to Make a Car Exhaust Quieter: Easy and Effective Tips'
+description: Is your car’s loud exhaust disturbing your peace or attracting unwanted
+  attention? You’re not alone. A noisy exhaust can be frustrating, drawing eyes and
+  someti
 pubDate: 2026-01-31
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-car-exhaust-quieter&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Exhaust Systems
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-car-exhaust-quieter&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Is your car’s loud exhaust disturbing your peace or attracting unwanted attention? You’re not alone.**

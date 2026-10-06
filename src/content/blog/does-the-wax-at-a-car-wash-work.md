@@ -1,10 +1,14 @@
 ---
-title: "Does the Wax at a Car Wash Work: Truths You Need to Know"
-description: "Have you ever wondered if the wax applied during a car wash really makes a difference? You might be spending extra money and time, hoping it protects your car’s"
+title: 'Does the Wax at a Car Wash Work: Truths You Need to Know'
+description: Have you ever wondered if the wax applied during a car wash really makes
+  a difference? You might be spending extra money and time, hoping it protects your
+  car’s
 pubDate: 2025-11-13
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-the-wax-at-a-car-wash-work&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wash Basics
+heroImage: https://tse1.mm.bing.net/th?q=does-the-wax-at-a-car-wash-work&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever wondered if the wax applied during a car wash really makes a difference? You might be spending extra money and time, hoping it protects your car’s paint and keeps it shining longer.**

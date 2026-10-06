@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for Camaro V6 to Boost Performance and Acceleration"
-description: "Upgrading the cold air intake on your Camaro V6 improves engine breathing and boosts performance. Choosing the right system helps increase horsepower, torque, a"
+title: Best Cold Air Intake for Camaro V6 to Boost Performance and Acceleration
+description: Upgrading the cold air intake on your Camaro V6 improves engine breathing
+  and boosts performance. Choosing the right system helps increase horsepower, torque,
+  a
 pubDate: 2026-06-26
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-camaro-v6&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- GM Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-camaro-v6&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Upgrading the cold air intake on your Camaro V6 improves engine breathing and boosts performance. Choosing the right system helps increase horsepower, torque, and throttle response.**

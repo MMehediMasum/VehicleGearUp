@@ -1,10 +1,13 @@
 ---
-title: "How to Reset Oil Life in Honda Pilot: Easy Steps for Quick Reset"
-description: "If you own a Honda Pilot, keeping track of your oil life is key to running your vehicle smoothly. But what happens when it’s time to reset the oil life indicato"
+title: 'How to Reset Oil Life in Honda Pilot: Easy Steps for Quick Reset'
+description: If you own a Honda Pilot, keeping track of your oil life is key to running
+  your vehicle smoothly. But what happens when it’s time to reset the oil life indicato
 pubDate: 2026-05-04
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-life-in-honda-pilot&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Oil Life Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-life-in-honda-pilot&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a Honda Pilot, keeping track of your oil life is key to running your vehicle smoothly. But what happens when it’s time to reset the oil life indicator after an oil change?**

@@ -1,10 +1,13 @@
 ---
-title: "How to Set a Distributor on a 350 Chevy: Easy Step-by-Step Guide"
-description: "If you own a 350 Chevy engine, knowing how to set the distributor correctly is key to keeping your engine running smoothly. You might think it’s a tricky task, "
+title: 'How to Set a Distributor on a 350 Chevy: Easy Step-by-Step Guide'
+description: 'If you own a 350 Chevy engine, knowing how to set the distributor correctly
+  is key to keeping your engine running smoothly. You might think it’s a tricky task, '
 pubDate: 2025-12-08
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-set-a-distributor-on-a-350-chevy&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Chevy Engine Tuning
+heroImage: https://tse1.mm.bing.net/th?q=how-to-set-a-distributor-on-a-350-chevy&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **If you own a 350 Chevy engine, knowing how to set the distributor correctly is key to keeping your engine running smoothly. You might think it’s a tricky task, but with the right steps, you can do it yourself and save time and money.**

@@ -1,10 +1,14 @@
 ---
-title: "Why My Hyundai Sonata Won'T Start But Has Power: Top Fixes"
-description: "Have you ever turned the key in your Hyundai Sonata, only to find it won’t start—even though the dashboard lights up and everything seems powered on? It’s frust"
+title: 'Why My Hyundai Sonata Won''T Start But Has Power: Top Fixes'
+description: Have you ever turned the key in your Hyundai Sonata, only to find it
+  won’t start—even though the dashboard lights up and everything seems powered on?
+  It’s frust
 pubDate: 2026-02-05
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-my-hyundai-sonata-wont-start-but-has-power&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Not Starting Causes
+heroImage: https://tse1.mm.bing.net/th?q=why-my-hyundai-sonata-wont-start-but-has-power&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Have you ever turned the key in your Hyundai Sonata, only to find it won’t start—even though the dashboard lights up and everything seems powered on? It’s frustrating, confusing, and can leave you wondering what’s wrong with your car.**

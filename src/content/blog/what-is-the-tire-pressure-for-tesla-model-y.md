@@ -1,10 +1,14 @@
 ---
-title: "What is the Tire Pressure for Tesla Model Y: Essential Guide"
-description: "If you own a Tesla Model Y, you already know how important it is to keep your car in top shape. But have you ever wondered what the right tire pressure for your"
+title: 'What is the Tire Pressure for Tesla Model Y: Essential Guide'
+description: If you own a Tesla Model Y, you already know how important it is to keep
+  your car in top shape. But have you ever wondered what the right tire pressure for
+  your
 pubDate: 2026-02-11
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-tire-pressure-for-tesla-model-y&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Summon and Dog Mode
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-tire-pressure-for-tesla-model-y&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **If you own a Tesla Model Y, you already know how important it is to keep your car in top shape. But have you ever wondered what the right tire pressure for your Model Y should be?**

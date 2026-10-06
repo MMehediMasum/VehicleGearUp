@@ -1,10 +1,14 @@
 ---
-title: "Best Car Soap for Black Cars: Top Picks for a Deep Glossy Shine"
-description: "Black cars need special care to keep their shine and depth. Choosing the right car soap makes washing easier and protects the paint. Black paint shows dirt, wat"
+title: 'Best Car Soap for Black Cars: Top Picks for a Deep Glossy Shine'
+description: Black cars need special care to keep their shine and depth. Choosing
+  the right car soap makes washing easier and protects the paint. Black paint shows
+  dirt, wat
 pubDate: 2026-06-18
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-soap-for-black-cars&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wash Soap Picks
+heroImage: https://tse1.mm.bing.net/th?q=best-car-soap-for-black-cars&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Black cars need special care to keep their shine and depth. Choosing the right car soap makes washing easier and protects the paint.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Change Windshield Wiper Blades on a Toyota Camry: Easy Steps"
-description: "Your Toyota Camry’s windshield wiper blades are crucial for clear vision during rain or snow. But when was the last time you checked them? Worn-out blades can l"
+title: 'How to Change Windshield Wiper Blades on a Toyota Camry: Easy Steps'
+description: Your Toyota Camry’s windshield wiper blades are crucial for clear vision
+  during rain or snow. But when was the last time you checked them? Worn-out blades
+  can l
 pubDate: 2025-09-20
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-windshield-wiper-blades-on-a-toyota-camry&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Best Wiper Blades
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-windshield-wiper-blades-on-a-toyota-camry&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Your Toyota Camry’s windshield wiper blades are crucial for clear vision during rain or snow. But when was the last time you checked them?**

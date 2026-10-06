@@ -1,10 +1,14 @@
 ---
-title: "Best 2 Seater Electric Bike for Adults: Top Powerful & Durable Picks"
-description: "Finding the best 2 seater electric bike for adults helps you enjoy rides together with ease. These bikes offer comfort, power, and good battery life for daily u"
+title: 'Best 2 Seater Electric Bike for Adults: Top Powerful & Durable Picks'
+description: Finding the best 2 seater electric bike for adults helps you enjoy rides
+  together with ease. These bikes offer comfort, power, and good battery life for
+  daily u
 pubDate: 2026-07-28
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-2-seater-electric-bike-for-adults&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Electric and Mountain Bikes
+heroImage: https://tse1.mm.bing.net/th?q=best-2-seater-electric-bike-for-adults&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Finding the best 2 seater electric bike for adults helps you enjoy rides together with ease. These bikes offer comfort, power, and good battery life for daily use.**

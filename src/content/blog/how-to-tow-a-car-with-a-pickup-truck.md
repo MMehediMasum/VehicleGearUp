@@ -1,10 +1,14 @@
 ---
-title: "How to Tow a Car With a Pickup Truck: Essential Tips & Tricks"
-description: "Towing a car with your pickup truck might seem tricky, but it doesn’t have to be. Whether your car broke down or you need to move it across town, knowing the ri"
+title: 'How to Tow a Car With a Pickup Truck: Essential Tips & Tricks'
+description: Towing a car with your pickup truck might seem tricky, but it doesn’t
+  have to be. Whether your car broke down or you need to move it across town, knowing
+  the ri
 pubDate: 2025-09-09
-author: "herbertlangham"
-categories: ["Towing & Hauling"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-tow-a-car-with-a-pickup-truck&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Flat Towing Cars
+heroImage: https://tse1.mm.bing.net/th?q=how-to-tow-a-car-with-a-pickup-truck&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Towing a car with your pickup truck might seem tricky, but it doesn’t have to be. Whether your car broke down or you need to move it across town, knowing the right steps can save you time and stress.**

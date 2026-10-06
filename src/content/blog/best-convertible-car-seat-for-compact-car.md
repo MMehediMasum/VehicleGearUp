@@ -1,10 +1,14 @@
 ---
-title: "Best Convertible Car Seat for Compact Car: Top Space-Saving Picks"
-description: "Choosing the best convertible car seat for a compact car can be challenging. Space is limited, but safety and comfort remain top priorities. Compact cars need c"
+title: 'Best Convertible Car Seat for Compact Car: Top Space-Saving Picks'
+description: Choosing the best convertible car seat for a compact car can be challenging.
+  Space is limited, but safety and comfort remain top priorities. Compact cars need
+  c
 pubDate: 2026-07-20
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-convertible-car-seat-for-compact-car&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Seat Accessories
+heroImage: https://tse1.mm.bing.net/th?q=best-convertible-car-seat-for-compact-car&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best convertible car seat for a compact car can be challenging. Space is limited, but safety and comfort remain top priorities.**

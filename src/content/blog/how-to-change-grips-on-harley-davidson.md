@@ -1,10 +1,14 @@
 ---
-title: "How to Change Grips on Harley Davidson: Easy Step-by-Step Guide"
-description: "Changing the grips on your Harley Davidson can completely transform your riding experience. Whether your old grips are worn out or you simply want a fresh look,"
+title: 'How to Change Grips on Harley Davidson: Easy Step-by-Step Guide'
+description: Changing the grips on your Harley Davidson can completely transform your
+  riding experience. Whether your old grips are worn out or you simply want a fresh
+  look,
 pubDate: 2025-12-17
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-grips-on-harley-davidson&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Ownership Questions
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-grips-on-harley-davidson&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Changing the grips on your Harley Davidson can completely transform your riding experience. Whether your old grips are worn out or you simply want a fresh look, swapping them out is easier than you think.**

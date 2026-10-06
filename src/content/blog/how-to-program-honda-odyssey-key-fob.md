@@ -1,10 +1,14 @@
 ---
-title: "How to Program Honda Odyssey Key Fob: Easy Steps to Save Time"
-description: "Losing or replacing your Honda Odyssey key fob can be frustrating. But what if you could program it yourself, saving time and money? In this guide, you’ll learn"
+title: 'How to Program Honda Odyssey Key Fob: Easy Steps to Save Time'
+description: Losing or replacing your Honda Odyssey key fob can be frustrating. But
+  what if you could program it yourself, saving time and money? In this guide, you’ll
+  learn
 pubDate: 2025-12-06
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-program-honda-odyssey-key-fob&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Programming Key Fobs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-program-honda-odyssey-key-fob&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **Losing or replacing your Honda Odyssey key fob can be frustrating. But what if you could program it yourself, saving time and money?**

@@ -1,10 +1,14 @@
 ---
-title: "Best Running Boards for Lifted Trucks: Durable Steps for Easy Access"
-description: "Finding the best running boards for lifted trucks improves access and adds style. Choose durable, easy-to-install side steps that fit your truck model perfectly"
+title: 'Best Running Boards for Lifted Trucks: Durable Steps for Easy Access'
+description: Finding the best running boards for lifted trucks improves access and
+  adds style. Choose durable, easy-to-install side steps that fit your truck model
+  perfectly
 pubDate: 2026-06-23
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-running-boards-for-lifted-trucks&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Running Boards
+heroImage: https://tse1.mm.bing.net/th?q=best-running-boards-for-lifted-trucks&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Finding the best running boards for lifted trucks improves access and adds style. Choose durable, easy-to-install side steps that fit your truck model perfectly.**

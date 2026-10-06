@@ -1,10 +1,14 @@
 ---
-title: "How Does a Car Act When It Needs Transmission Fluid: Key Signs"
-description: "Have you ever noticed your car acting a little off but weren’t sure why? One common reason could be low or dirty transmission fluid. Your car’s transmission flu"
+title: 'How Does a Car Act When It Needs Transmission Fluid: Key Signs'
+description: Have you ever noticed your car acting a little off but weren’t sure why?
+  One common reason could be low or dirty transmission fluid. Your car’s transmission
+  flu
 pubDate: 2025-10-14
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-does-a-car-act-when-it-needs-transmission-fluid&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Adding Transmission Fluid
+heroImage: https://tse1.mm.bing.net/th?q=how-does-a-car-act-when-it-needs-transmission-fluid&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever noticed your car acting a little off but weren’t sure why? One common reason could be low or dirty transmission fluid.**

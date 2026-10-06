@@ -1,10 +1,13 @@
 ---
-title: "How to Change Wipers on Hyundai Santa Fe: Easy Step-by-Step Guide"
-description: "Your Hyundai Santa Fe’s wipers play a crucial role in keeping your windshield clear and your driving safe. But when was the last time you checked if they’re sti"
+title: 'How to Change Wipers on Hyundai Santa Fe: Easy Step-by-Step Guide'
+description: Your Hyundai Santa Fe’s wipers play a crucial role in keeping your windshield
+  clear and your driving safe. But when was the last time you checked if they’re sti
 pubDate: 2025-12-04
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-wipers-on-hyundai-santa-fe&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Windshield Wipers
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-wipers-on-hyundai-santa-fe&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Your Hyundai Santa Fe’s wipers play a crucial role in keeping your windshield clear and your driving safe. But when was the last time you checked if they’re still working well?**

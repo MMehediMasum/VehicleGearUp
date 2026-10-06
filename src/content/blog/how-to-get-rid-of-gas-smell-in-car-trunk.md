@@ -1,10 +1,14 @@
 ---
-title: "How to Get Rid of Gas Smell in Car Trunk: Easy & Effective Tips"
-description: "Have you ever opened your car trunk only to be hit by a strong, unpleasant gas smell? It’s not just annoying—it can be harmful and hard to ignore. If you’re dea"
+title: 'How to Get Rid of Gas Smell in Car Trunk: Easy & Effective Tips'
+description: Have you ever opened your car trunk only to be hit by a strong, unpleasant
+  gas smell? It’s not just annoying—it can be harmful and hard to ignore. If you’re
+  dea
 pubDate: 2026-02-02
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-get-rid-of-gas-smell-in-car-trunk&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Air Fresheners and Odors
+heroImage: https://tse1.mm.bing.net/th?q=how-to-get-rid-of-gas-smell-in-car-trunk&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever opened your car trunk only to be hit by a strong, unpleasant gas smell? It’s not just annoying—it can be harmful and hard to ignore.**

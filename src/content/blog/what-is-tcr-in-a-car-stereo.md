@@ -1,10 +1,13 @@
 ---
-title: "What is Tcr in a Car Stereo: Ultimate Guide to Sound Quality"
-description: "Have you ever wondered what TCR means on your car stereo and why it matters? Understanding this simple term can change the way you experience music on the road."
+title: 'What is Tcr in a Car Stereo: Ultimate Guide to Sound Quality'
+description: Have you ever wondered what TCR means on your car stereo and why it matters?
+  Understanding this simple term can change the way you experience music on the road.
 pubDate: 2025-10-03
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-tcr-in-a-car-stereo&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Stereo Installation Help
+heroImage: https://tse1.mm.bing.net/th?q=what-is-tcr-in-a-car-stereo&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Have you ever wondered what TCR means on your car stereo and why it matters? Understanding this simple term can change the way you experience music on the road.**

@@ -1,10 +1,14 @@
 ---
-title: "Does Garmin Dash Cam Drain Car Battery? Truth Revealed!"
-description: "Are you worried that your Garmin dash cam might be draining your car battery? You’re not alone. Many drivers wonder if leaving their dash cam on all the time co"
+title: Does Garmin Dash Cam Drain Car Battery? Truth Revealed!
+description: Are you worried that your Garmin dash cam might be draining your car
+  battery? You’re not alone. Many drivers wonder if leaving their dash cam on all
+  the time co
 pubDate: 2026-04-09
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-garmin-dash-cam-drain-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Cold Weather Battery Drain
+heroImage: https://tse1.mm.bing.net/th?q=does-garmin-dash-cam-drain-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you worried that your Garmin dash cam might be draining your car battery? You’re not alone.**

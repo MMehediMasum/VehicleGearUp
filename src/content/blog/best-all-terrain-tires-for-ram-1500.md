@@ -1,10 +1,14 @@
 ---
-title: "Best All Terrain Tires for Ram 1500: Top Picks for Off-Road Performance"
-description: "Choosing the best all terrain tires for your Ram 1500 can boost performance on and off the road. The right tires improve safety, traction, and ride comfort. Ram"
+title: 'Best All Terrain Tires for Ram 1500: Top Picks for Off-Road Performance'
+description: Choosing the best all terrain tires for your Ram 1500 can boost performance
+  on and off the road. The right tires improve safety, traction, and ride comfort.
+  Ram
 pubDate: 2026-01-05
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-all-terrain-tires-for-ram-1500&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- All Terrain Truck Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-all-terrain-tires-for-ram-1500&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best all terrain tires for your Ram 1500 can boost performance on and off the road. The right tires improve safety, traction, and ride comfort.**

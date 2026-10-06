@@ -1,10 +1,14 @@
 ---
-title: "How to Change Cabin Air Filter Toyota Corolla: Easy Step-by-Step Guide"
-description: "Your Toyota Corolla’s cabin air filter plays a big role in keeping the air inside your car fresh and clean. Over time, it gets clogged with dust, pollen, and ot"
+title: 'How to Change Cabin Air Filter Toyota Corolla: Easy Step-by-Step Guide'
+description: Your Toyota Corolla’s cabin air filter plays a big role in keeping the
+  air inside your car fresh and clean. Over time, it gets clogged with dust, pollen,
+  and ot
 pubDate: 2025-12-11
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-cabin-air-filter-toyota-corolla&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Cabin Air Filters
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-cabin-air-filter-toyota-corolla&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Your Toyota Corolla’s cabin air filter plays a big role in keeping the air inside your car fresh and clean. Over time, it gets clogged with dust, pollen, and other particles, making your drive less comfortable and even affecting your health.**

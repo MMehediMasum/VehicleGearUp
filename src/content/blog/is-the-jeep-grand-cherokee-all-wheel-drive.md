@@ -1,10 +1,14 @@
 ---
-title: "Is the Jeep Grand Cherokee All Wheel Drive: Ultimate Off-Road Power?"
-description: "Are you wondering if the Jeep Grand Cherokee comes with all-wheel drive? If you’re planning your next adventure or just want a vehicle that handles well in all "
+title: 'Is the Jeep Grand Cherokee All Wheel Drive: Ultimate Off-Road Power?'
+description: 'Are you wondering if the Jeep Grand Cherokee comes with all-wheel drive?
+  If you’re planning your next adventure or just want a vehicle that handles well
+  in all '
 pubDate: 2026-05-30
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-the-jeep-grand-cherokee-all-wheel-drive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- All Wheel Drive Questions
+heroImage: https://tse1.mm.bing.net/th?q=is-the-jeep-grand-cherokee-all-wheel-drive&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you wondering if the Jeep Grand Cherokee comes with all-wheel drive? If you’re planning your next adventure or just want a vehicle that handles well in all weather, this is an important question.**

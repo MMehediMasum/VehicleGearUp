@@ -1,10 +1,14 @@
 ---
-title: "What Can I Use to Clean My Car Headlights: Ultimate DIY Solutions"
-description: "Are your car headlights looking dull or cloudy? You might be surprised how much this can affect your driving safety at night. If you’ve been wondering, \"What ca"
+title: 'What Can I Use to Clean My Car Headlights: Ultimate DIY Solutions'
+description: Are your car headlights looking dull or cloudy? You might be surprised
+  how much this can affect your driving safety at night. If you’ve been wondering,
+  "What ca
 pubDate: 2025-11-15
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-can-i-use-to-clean-my-car-headlights&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Headlight Cleaning and Upgrades
+heroImage: https://tse1.mm.bing.net/th?q=what-can-i-use-to-clean-my-car-headlights&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are your car headlights looking dull or cloudy? You might be surprised how much this can affect your driving safety at night.**

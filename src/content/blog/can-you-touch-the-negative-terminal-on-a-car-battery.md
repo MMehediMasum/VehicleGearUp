@@ -1,10 +1,14 @@
 ---
-title: "Can You Touch the Negative Terminal on a Car Battery Safely?"
-description: "Have you ever wondered if it’s safe to touch the negative terminal on your car battery? It might seem like a simple question, but the answer can protect you fro"
+title: Can You Touch the Negative Terminal on a Car Battery Safely?
+description: Have you ever wondered if it’s safe to touch the negative terminal on
+  your car battery? It might seem like a simple question, but the answer can protect
+  you fro
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-touch-the-negative-terminal-on-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Terminal Care
+heroImage: https://tse1.mm.bing.net/th?q=can-you-touch-the-negative-terminal-on-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if it’s safe to touch the negative terminal on your car battery? It might seem like a simple question, but the answer can protect you from unexpected shocks or damage.**

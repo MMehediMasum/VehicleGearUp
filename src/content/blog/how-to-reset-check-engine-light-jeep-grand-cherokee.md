@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Check Engine Light Jeep Grand Cherokee: Quick & Easy Steps"
-description: "Is your Jeep Grand Cherokee’s check engine light glowing and you’re not sure what to do next? That little warning can be frustrating and even a bit alarming. Bu"
+title: 'How to Reset Check Engine Light Jeep Grand Cherokee: Quick & Easy Steps'
+description: Is your Jeep Grand Cherokee’s check engine light glowing and you’re not
+  sure what to do next? That little warning can be frustrating and even a bit alarming.
+  Bu
 pubDate: 2026-05-05
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-check-engine-light-jeep-grand-cherokee&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Resetting Check Engine Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-check-engine-light-jeep-grand-cherokee&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Is your Jeep Grand Cherokee’s check engine light glowing and you’re not sure what to do next? That little warning can be frustrating and even a bit alarming.**

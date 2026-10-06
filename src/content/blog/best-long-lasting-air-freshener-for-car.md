@@ -1,10 +1,14 @@
 ---
-title: "Best Long Lasting Air Freshener for Car: Top Picks for Powerful Odor Control"
-description: "A fresh-smelling car makes every drive more pleasant. Choosing the best long lasting air freshener keeps your vehicle smelling clean for weeks. Many air freshen"
+title: 'Best Long Lasting Air Freshener for Car: Top Picks for Powerful Odor Control'
+description: A fresh-smelling car makes every drive more pleasant. Choosing the best
+  long lasting air freshener keeps your vehicle smelling clean for weeks. Many air
+  freshen
 pubDate: 2025-11-13
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-long-lasting-air-freshener-for-car&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Air Fresheners and Odors
+heroImage: https://tse1.mm.bing.net/th?q=best-long-lasting-air-freshener-for-car&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **A fresh-smelling car makes every drive more pleasant. Choosing the best long lasting air freshener keeps your vehicle smelling clean for weeks.**

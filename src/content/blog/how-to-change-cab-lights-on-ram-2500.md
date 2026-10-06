@@ -1,10 +1,14 @@
 ---
-title: "How to Change Cab Lights on Ram 2500: Easy Step-by-Step Guide"
-description: "Are your Ram 2500’s cab lights dim or not working at all? Changing them yourself can save you time and money, but only if you know the right steps. In this guid"
+title: 'How to Change Cab Lights on Ram 2500: Easy Step-by-Step Guide'
+description: Are your Ram 2500’s cab lights dim or not working at all? Changing them
+  yourself can save you time and money, but only if you know the right steps. In this
+  guid
 pubDate: 2026-05-25
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-cab-lights-on-ram-2500&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Interior Light Settings
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-cab-lights-on-ram-2500&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are your Ram 2500’s cab lights dim or not working at all? Changing them yourself can save you time and money, but only if you know the right steps.**

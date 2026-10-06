@@ -1,10 +1,14 @@
 ---
-title: "How to Fix Powertrain Fault Ford Fusion: Quick & Easy Solutions"
-description: "Is your Ford Fusion showing a powertrain fault warning? This problem can be confusing and frustrating, especially when you don’t know what’s causing it. But don"
+title: 'How to Fix Powertrain Fault Ford Fusion: Quick & Easy Solutions'
+description: Is your Ford Fusion showing a powertrain fault warning? This problem
+  can be confusing and frustrating, especially when you don’t know what’s causing
+  it. But don
 pubDate: 2026-05-15
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-powertrain-fault-ford-fusion&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Dashboard Lights and Noises
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-powertrain-fault-ford-fusion&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your Ford Fusion showing a powertrain fault warning? This problem can be confusing and frustrating, especially when you don’t know what’s causing it.**

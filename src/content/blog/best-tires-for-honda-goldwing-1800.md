@@ -1,10 +1,13 @@
 ---
-title: "Best Tires for Honda Goldwing 1800: Top Picks for Ultimate Ride Quality"
-description: "Choosing the best tires for your Honda Goldwing 1800 ensures safety and smooth rides. Quality tires improve handling, grip, and comfort on every trip. Selecting"
+title: 'Best Tires for Honda Goldwing 1800: Top Picks for Ultimate Ride Quality'
+description: Choosing the best tires for your Honda Goldwing 1800 ensures safety and
+  smooth rides. Quality tires improve handling, grip, and comfort on every trip. Selecting
 pubDate: 2026-01-02
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-honda-goldwing-1800&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-honda-goldwing-1800&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best tires for your Honda Goldwing 1800 ensures safety and smooth rides. Quality tires improve handling, grip, and comfort on every trip.**

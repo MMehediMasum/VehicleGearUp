@@ -1,10 +1,13 @@
 ---
-title: "Best Carb Cleaner Fuel Additive for Motorcycles to Boost Performance"
-description: "Choosing the best carb cleaner fuel additive keeps your motorcycle running smoothly. It removes deposits and improves engine performance quickly. Fuel additives"
+title: Best Carb Cleaner Fuel Additive for Motorcycles to Boost Performance
+description: Choosing the best carb cleaner fuel additive keeps your motorcycle running
+  smoothly. It removes deposits and improves engine performance quickly. Fuel additives
 pubDate: 2026-07-08
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-carb-cleaner-fuel-additive-for-motorcycles&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Fuel and Exhaust
+heroImage: https://tse1.mm.bing.net/th?q=best-carb-cleaner-fuel-additive-for-motorcycles&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best carb cleaner fuel additive keeps your motorcycle running smoothly. It removes deposits and improves engine performance quickly.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Gas Additive for Cleaning Fuel Injectors to Boost Engine Performance"
-description: "Fuel injectors can get clogged, causing poor engine performance and lower fuel efficiency. Using the right gas additive helps clean these injectors and keeps yo"
+title: Best Gas Additive for Cleaning Fuel Injectors to Boost Engine Performance
+description: Fuel injectors can get clogged, causing poor engine performance and lower
+  fuel efficiency. Using the right gas additive helps clean these injectors and keeps
+  yo
 pubDate: 2025-10-22
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-gas-additive-for-cleaning-fuel-injectors&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Diesel Fuel Filters and Additives
+heroImage: https://tse1.mm.bing.net/th?q=best-gas-additive-for-cleaning-fuel-injectors&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Fuel injectors can get clogged, causing poor engine performance and lower fuel efficiency. Using the right gas additive helps clean these injectors and keeps your engine running smoothly.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Put Oil in the Car Engine: Easy Steps for Engine Care"
-description: "Knowing how to put oil in your car engine is one of the simplest yet most important skills every driver should have. If you don’t keep your engine properly lubr"
+title: 'How to Put Oil in the Car Engine: Easy Steps for Engine Care'
+description: Knowing how to put oil in your car engine is one of the simplest yet
+  most important skills every driver should have. If you don’t keep your engine properly
+  lubr
 pubDate: 2025-10-16
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-put-oil-in-the-car-engine&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- How Car Engines Work
+heroImage: https://tse1.mm.bing.net/th?q=how-to-put-oil-in-the-car-engine&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Knowing how to put oil in your car engine is one of the simplest yet most important skills every driver should have. If you don’t keep your engine properly lubricated, your car could face serious problems that cost you time and money.**

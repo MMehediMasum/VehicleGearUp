@@ -1,10 +1,14 @@
 ---
-title: "What Engine is Available for the 2025 Ford F150: Ultimate Power Options"
-description: "Are you curious about what powers the 2025 Ford F150? Whether you rely on your truck for work, adventure, or everyday driving, the engine under the hood matters"
+title: 'What Engine is Available for the 2025 Ford F150: Ultimate Power Options'
+description: Are you curious about what powers the 2025 Ford F150? Whether you rely
+  on your truck for work, adventure, or everyday driving, the engine under the hood
+  matters
 pubDate: 2026-05-17
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-engine-is-available-for-the-2025-ford-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Third Row and Mileage
+heroImage: https://tse1.mm.bing.net/th?q=what-engine-is-available-for-the-2025-ford-f150&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you curious about what powers the 2025 Ford F150? Whether you rely on your truck for work, adventure, or everyday driving, the engine under the hood matters more than ever.**

@@ -1,10 +1,14 @@
 ---
-title: "Why Does My Car Battery Keep Corroding: Shocking Causes & Fixes"
-description: "Have you ever opened your car’s hood only to find a white, crusty buildup around your battery terminals? It’s frustrating, isn’t it? You keep cleaning it, but t"
+title: 'Why Does My Car Battery Keep Corroding: Shocking Causes & Fixes'
+description: Have you ever opened your car’s hood only to find a white, crusty buildup
+  around your battery terminals? It’s frustrating, isn’t it? You keep cleaning it,
+  but t
 pubDate: 2026-04-12
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-does-my-car-battery-keep-corroding&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Terminal Care
+heroImage: https://tse1.mm.bing.net/th?q=why-does-my-car-battery-keep-corroding&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever opened your car’s hood only to find a white, crusty buildup around your battery terminals? It’s frustrating, isn’t it?**

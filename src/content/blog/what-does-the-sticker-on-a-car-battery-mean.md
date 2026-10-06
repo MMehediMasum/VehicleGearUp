@@ -1,10 +1,14 @@
 ---
-title: "What Does the Sticker on a Car Battery Mean: Decoding Vital Info"
-description: "Have you ever looked at the sticker on your car battery and wondered what all those numbers and symbols actually mean? That little label holds important informa"
+title: 'What Does the Sticker on a Car Battery Mean: Decoding Vital Info'
+description: Have you ever looked at the sticker on your car battery and wondered
+  what all those numbers and symbols actually mean? That little label holds important
+  informa
 pubDate: 2026-03-28
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-does-the-sticker-on-a-car-battery-mean&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Ratings Explained
+heroImage: https://tse1.mm.bing.net/th?q=what-does-the-sticker-on-a-car-battery-mean&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever looked at the sticker on your car battery and wondered what all those numbers and symbols actually mean? That little label holds important information that can affect your car’s performance and your safety on the road.**

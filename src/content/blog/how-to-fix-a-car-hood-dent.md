@@ -1,10 +1,14 @@
 ---
-title: "How to Fix a Car Hood Dent: Easy DIY Tips That Work Fast"
-description: "Have you noticed a dent on your car hood and wondered how to fix it without spending a fortune? That small dent might seem harmless, but it can affect your car’"
+title: 'How to Fix a Car Hood Dent: Easy DIY Tips That Work Fast'
+description: Have you noticed a dent on your car hood and wondered how to fix it without
+  spending a fortune? That small dent might seem harmless, but it can affect your
+  car’
 pubDate: 2026-04-22
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-a-car-hood-dent&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hood Dents and Chips
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-a-car-hood-dent&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you noticed a dent on your car hood and wondered how to fix it without spending a fortune? That small dent might seem harmless, but it can affect your car’s look and value.**

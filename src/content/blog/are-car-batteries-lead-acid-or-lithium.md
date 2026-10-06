@@ -1,10 +1,14 @@
 ---
-title: "Are Car Batteries Lead Acid Or Lithium: Which Powers Best?"
-description: "Are you curious about what kind of battery powers your car? You might have heard about lead acid and lithium batteries but aren’t sure which one your vehicle us"
+title: 'Are Car Batteries Lead Acid Or Lithium: Which Powers Best?'
+description: Are you curious about what kind of battery powers your car? You might
+  have heard about lead acid and lithium batteries but aren’t sure which one your
+  vehicle us
 pubDate: 2026-03-02
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-car-batteries-lead-acid-or-lithium&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Types and Value
+heroImage: https://tse1.mm.bing.net/th?q=are-car-batteries-lead-acid-or-lithium&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you curious about what kind of battery powers your car? You might have heard about lead acid and lithium batteries but aren’t sure which one your vehicle uses—or which one is better for you.**

@@ -1,10 +1,14 @@
 ---
-title: "Can I Use Windex on My Car Windshield: Safe or Risky?"
-description: "Have you ever reached for Windex to clean your car windshield and then stopped, wondering if it’s really safe to use? You want your view to be crystal clear, bu"
+title: 'Can I Use Windex on My Car Windshield: Safe or Risky?'
+description: Have you ever reached for Windex to clean your car windshield and then
+  stopped, wondering if it’s really safe to use? You want your view to be crystal
+  clear, bu
 pubDate: 2026-03-20
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-i-use-windex-on-my-car-windshield&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Windshield and Mirror Repair
+heroImage: https://tse1.mm.bing.net/th?q=can-i-use-windex-on-my-car-windshield&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever reached for Windex to clean your car windshield and then stopped, wondering if it’s really safe to use? You want your view to be crystal clear, but you also don’t want to risk damaging your glass or leaving streaks that make driving tricky.**

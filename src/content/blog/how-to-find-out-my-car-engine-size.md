@@ -1,10 +1,14 @@
 ---
-title: "How to Find Out My Car Engine Size: Easy Steps Revealed"
-description: "Are you curious about your car’s engine size but don’t know where to start? Knowing your engine size is more important than you might think. It affects your car"
+title: 'How to Find Out My Car Engine Size: Easy Steps Revealed'
+description: Are you curious about your car’s engine size but don’t know where to
+  start? Knowing your engine size is more important than you might think. It affects
+  your car
 pubDate: 2026-05-30
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-find-out-my-car-engine-size&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- How Car Engines Work
+heroImage: https://tse1.mm.bing.net/th?q=how-to-find-out-my-car-engine-size&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Are you curious about your car’s engine size but don’t know where to start? Knowing your engine size is more important than you might think.**

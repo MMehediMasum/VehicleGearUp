@@ -1,10 +1,14 @@
 ---
-title: "What Oil Does a 2015 Ford Explorer Take: Ultimate Guide Revealed"
-description: "If you own a 2015 Ford Explorer, you know how important it is to keep your engine running smoothly. But do you know exactly what oil your vehicle needs? Using t"
+title: 'What Oil Does a 2015 Ford Explorer Take: Ultimate Guide Revealed'
+description: If you own a 2015 Ford Explorer, you know how important it is to keep
+  your engine running smoothly. But do you know exactly what oil your vehicle needs?
+  Using t
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-oil-does-a-2015-ford-explorer-take&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- What Oil to Use
+heroImage: https://tse1.mm.bing.net/th?q=what-oil-does-a-2015-ford-explorer-take&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a 2015 Ford Explorer, you know how important it is to keep your engine running smoothly. But do you know exactly what oil your vehicle needs?**

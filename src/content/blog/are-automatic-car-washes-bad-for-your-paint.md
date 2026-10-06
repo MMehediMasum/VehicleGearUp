@@ -1,10 +1,14 @@
 ---
-title: "Are Automatic Car Washes Bad for Your Paint? Shocking Truths Revealed"
-description: "Have you ever wondered if those automatic car washes could be harming your car’s paint? You want your vehicle to look great and last long, but some quick washes"
+title: Are Automatic Car Washes Bad for Your Paint? Shocking Truths Revealed
+description: Have you ever wondered if those automatic car washes could be harming
+  your car’s paint? You want your vehicle to look great and last long, but some quick
+  washes
 pubDate: 2026-03-17
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-automatic-car-washes-bad-for-your-paint&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Do Car Washes Damage Paint
+heroImage: https://tse1.mm.bing.net/th?q=are-automatic-car-washes-bad-for-your-paint&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever wondered if those automatic car washes could be harming your car’s paint? You want your vehicle to look great and last long, but some quick washes might be doing more damage than good.**

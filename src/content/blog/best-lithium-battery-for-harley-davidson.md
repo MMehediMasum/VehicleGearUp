@@ -1,10 +1,14 @@
 ---
-title: "Best Lithium Battery for Harley Davidson: Top High-Performance Picks"
-description: "Choosing the best lithium battery for your Harley Davidson ensures strong starts and long rides. High-quality lithium batteries offer better performance and lon"
+title: 'Best Lithium Battery for Harley Davidson: Top High-Performance Picks'
+description: Choosing the best lithium battery for your Harley Davidson ensures strong
+  starts and long rides. High-quality lithium batteries offer better performance and
+  lon
 pubDate: 2025-11-03
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lithium-battery-for-harley-davidson&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Ownership Questions
+heroImage: https://tse1.mm.bing.net/th?q=best-lithium-battery-for-harley-davidson&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best lithium battery for your Harley Davidson ensures strong starts and long rides. High-quality lithium batteries offer better performance and longer life than traditional lead-acid types.**

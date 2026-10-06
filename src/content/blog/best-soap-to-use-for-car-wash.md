@@ -1,10 +1,14 @@
 ---
-title: "Best Soap to Use for Car Wash: Top Picks for a Spotless Shine"
-description: "Choosing the best soap for car wash helps keep your vehicle clean and shiny. The right soap protects paint and removes dirt gently. Car wash soaps differ in cle"
+title: 'Best Soap to Use for Car Wash: Top Picks for a Spotless Shine'
+description: Choosing the best soap for car wash helps keep your vehicle clean and
+  shiny. The right soap protects paint and removes dirt gently. Car wash soaps differ
+  in cle
 pubDate: 2026-07-05
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-soap-to-use-for-car-wash&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Using Car Wash Vacuums
+heroImage: https://tse1.mm.bing.net/th?q=best-soap-to-use-for-car-wash&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best soap for car wash helps keep your vehicle clean and shiny. The right soap protects paint and removes dirt gently.**

@@ -1,10 +1,13 @@
 ---
-title: "What to Do If Car Battery Dies Without Jumper Cables: Quick Fixes"
-description: "Picture this: you’re ready to hit the road, but your car won’t start. Your battery is dead, and you don’t have jumper cables. What do you do? It’s a frustrating"
+title: 'What to Do If Car Battery Dies Without Jumper Cables: Quick Fixes'
+description: 'Picture this: you’re ready to hit the road, but your car won’t start.
+  Your battery is dead, and you don’t have jumper cables. What do you do? It’s a frustrating'
 pubDate: 2025-11-10
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-do-if-car-battery-dies-without-jumper-cables&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Polarity and Acid
+heroImage: https://tse1.mm.bing.net/th?q=what-to-do-if-car-battery-dies-without-jumper-cables&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Picture this: you’re ready to hit the road, but your car won’t start. Your battery is dead, and you don’t have jumper cables.**

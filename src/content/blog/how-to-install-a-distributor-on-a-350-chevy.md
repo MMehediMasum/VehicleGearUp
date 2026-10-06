@@ -1,10 +1,14 @@
 ---
-title: "How to Install a Distributor on a 350 Chevy: Easy Step-by-Step Guide"
-description: "If you’re working on your 350 Chevy engine, installing the distributor correctly is key to making sure your ride runs smoothly. You might think it’s a tough job"
+title: 'How to Install a Distributor on a 350 Chevy: Easy Step-by-Step Guide'
+description: If you’re working on your 350 Chevy engine, installing the distributor
+  correctly is key to making sure your ride runs smoothly. You might think it’s a
+  tough job
 pubDate: 2026-02-26
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-install-a-distributor-on-a-350-chevy&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Chevy Engine Tuning
+heroImage: https://tse1.mm.bing.net/th?q=how-to-install-a-distributor-on-a-350-chevy&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **If you’re working on your 350 Chevy engine, installing the distributor correctly is key to making sure your ride runs smoothly. You might think it’s a tough job, but with the right steps, you can do it yourself and save time and money.**

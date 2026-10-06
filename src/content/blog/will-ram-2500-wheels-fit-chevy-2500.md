@@ -1,10 +1,14 @@
 ---
-title: "Will Ram 2500 Wheels Fit Chevy 2500? Expert Fitment Guide"
-description: "Are you thinking about swapping wheels between your Ram 2500 and Chevy 2500? It’s a common question for truck owners who want to upgrade their ride without brea"
+title: Will Ram 2500 Wheels Fit Chevy 2500? Expert Fitment Guide
+description: Are you thinking about swapping wheels between your Ram 2500 and Chevy
+  2500? It’s a common question for truck owners who want to upgrade their ride without
+  brea
 pubDate: 2025-11-01
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=will-ram-2500-wheels-fit-chevy-2500&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jeep Wheels and Rims
+heroImage: https://tse1.mm.bing.net/th?q=will-ram-2500-wheels-fit-chevy-2500&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Are you thinking about swapping wheels between your Ram 2500 and Chevy 2500? It’s a common question for truck owners who want to upgrade their ride without breaking the bank.**

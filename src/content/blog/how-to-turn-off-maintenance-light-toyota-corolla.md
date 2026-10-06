@@ -1,10 +1,14 @@
 ---
-title: "How to Turn off Maintenance Light Toyota Corolla: Easy Step-by-Step Guide"
-description: "If you own a Toyota Corolla, you’ve probably seen that annoying maintenance light pop up on your dashboard. It can be confusing and even a little stressful when"
+title: 'How to Turn off Maintenance Light Toyota Corolla: Easy Step-by-Step Guide'
+description: If you own a Toyota Corolla, you’ve probably seen that annoying maintenance
+  light pop up on your dashboard. It can be confusing and even a little stressful
+  when
 pubDate: 2026-05-26
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-maintenance-light-toyota-corolla&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Maintenance Required Message
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-maintenance-light-toyota-corolla&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a Toyota Corolla, you’ve probably seen that annoying maintenance light pop up on your dashboard. It can be confusing and even a little stressful when you don’t know how to turn it off.**

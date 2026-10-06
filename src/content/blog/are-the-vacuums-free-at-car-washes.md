@@ -1,10 +1,14 @@
 ---
-title: "Are the Vacuums Free at Car Washes: Truth Behind the Cost"
-description: "Have you ever pulled into a car wash and wondered if the vacuums are free to use? You’re not alone. Many drivers want a clean car inside and out but hesitate wh"
+title: 'Are the Vacuums Free at Car Washes: Truth Behind the Cost'
+description: Have you ever pulled into a car wash and wondered if the vacuums are
+  free to use? You’re not alone. Many drivers want a clean car inside and out but
+  hesitate wh
 pubDate: 2025-10-05
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-the-vacuums-free-at-car-washes&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Do Car Washes Damage Paint
+heroImage: https://tse1.mm.bing.net/th?q=are-the-vacuums-free-at-car-washes&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever pulled into a car wash and wondered if the vacuums are free to use? You’re not alone.**

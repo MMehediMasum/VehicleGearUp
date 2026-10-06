@@ -1,10 +1,14 @@
 ---
-title: "Best Car Wash Kit for Ceramic Coating: Ultimate Shine and Protection Guide"
-description: "Choosing the best car wash kit for ceramic coating helps protect and shine your vehicle’s finish. Using the right products keeps the ceramic coating strong and "
+title: 'Best Car Wash Kit for Ceramic Coating: Ultimate Shine and Protection Guide'
+description: 'Choosing the best car wash kit for ceramic coating helps protect and
+  shine your vehicle’s finish. Using the right products keeps the ceramic coating
+  strong and '
 pubDate: 2026-07-07
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-wash-kit-for-ceramic-coating&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Washing Ceramic Coated Cars
+heroImage: https://tse1.mm.bing.net/th?q=best-car-wash-kit-for-ceramic-coating&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best car wash kit for ceramic coating helps protect and shine your vehicle’s finish. Using the right products keeps the ceramic coating strong and lasting longer.**

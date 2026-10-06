@@ -1,10 +1,14 @@
 ---
-title: "What to Do If Car Battery is Smoking: Immediate Safety Steps"
-description: "Imagine you’re about to start your car, and suddenly you see smoke coming from under the hood. What do you do? A smoking car battery is a sign of a serious prob"
+title: 'What to Do If Car Battery is Smoking: Immediate Safety Steps'
+description: Imagine you’re about to start your car, and suddenly you see smoke coming
+  from under the hood. What do you do? A smoking car battery is a sign of a serious
+  prob
 pubDate: 2026-04-12
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-do-if-car-battery-is-smoking&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Price and Installation
+heroImage: https://tse1.mm.bing.net/th?q=what-to-do-if-car-battery-is-smoking&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Imagine you’re about to start your car, and suddenly you see smoke coming from under the hood. What do you do?**

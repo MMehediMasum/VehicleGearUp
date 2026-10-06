@@ -1,10 +1,14 @@
 ---
-title: "Best Dewalt Impact Wrench for Lug Nuts: Top Picks for Maximum Torque"
-description: "Choosing the best DEWALT impact wrench for lug nuts can save time and effort. These tools deliver strong torque and reliable performance for tire changes. A goo"
+title: 'Best Dewalt Impact Wrench for Lug Nuts: Top Picks for Maximum Torque'
+description: Choosing the best DEWALT impact wrench for lug nuts can save time and
+  effort. These tools deliver strong torque and reliable performance for tire changes.
+  A goo
 pubDate: 2026-06-02
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-dewalt-impact-wrench-for-lug-nuts&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spare Tires and Tire Changing
+heroImage: https://tse1.mm.bing.net/th?q=best-dewalt-impact-wrench-for-lug-nuts&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best DEWALT impact wrench for lug nuts can save time and effort. These tools deliver strong torque and reliable performance for tire changes.**

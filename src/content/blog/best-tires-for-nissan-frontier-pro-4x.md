@@ -1,10 +1,13 @@
 ---
-title: "Best Tires for Nissan Frontier Pro 4X: Top Picks for Ultimate Performance"
-description: "Choosing the right tires for your Nissan Frontier Pro 4X improves performance and safety. The best tires match your truck’s style and driving needs. Nissan Fron"
+title: 'Best Tires for Nissan Frontier Pro 4X: Top Picks for Ultimate Performance'
+description: Choosing the right tires for your Nissan Frontier Pro 4X improves performance
+  and safety. The best tires match your truck’s style and driving needs. Nissan Fron
 pubDate: 2026-01-05
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-nissan-frontier-pro-4x&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Mud Street and RV Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-nissan-frontier-pro-4x&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the right tires for your Nissan Frontier Pro 4X improves performance and safety. The best tires match your truck’s style and driving needs.**

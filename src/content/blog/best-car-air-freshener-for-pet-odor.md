@@ -1,10 +1,14 @@
 ---
-title: "Best Car Air Freshener for Pet Odor: Top Odor Eliminators Reviewed"
-description: "Pet odors can make your car smell unpleasant and uncomfortable. Choosing the right air freshener helps keep your vehicle smelling fresh and clean. Pet smells of"
+title: 'Best Car Air Freshener for Pet Odor: Top Odor Eliminators Reviewed'
+description: Pet odors can make your car smell unpleasant and uncomfortable. Choosing
+  the right air freshener helps keep your vehicle smelling fresh and clean. Pet smells
+  of
 pubDate: 2026-06-25
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-air-freshener-for-pet-odor&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Pets and Babies in Cars
+heroImage: https://tse1.mm.bing.net/th?q=best-car-air-freshener-for-pet-odor&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Pet odors can make your car smell unpleasant and uncomfortable. Choosing the right air freshener helps keep your vehicle smelling fresh and clean.**

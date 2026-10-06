@@ -1,10 +1,14 @@
 ---
-title: "Can the Cold Kill a Car Battery: Shocking Truth Revealed!"
-description: "Have you ever tried to start your car on a freezing cold morning, only to hear a weak click or nothing at all? If so, you’re not alone. Cold weather can be toug"
+title: 'Can the Cold Kill a Car Battery: Shocking Truth Revealed!'
+description: Have you ever tried to start your car on a freezing cold morning, only
+  to hear a weak click or nothing at all? If so, you’re not alone. Cold weather can
+  be toug
 pubDate: 2025-11-16
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-the-cold-kill-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Cold Weather Battery Drain
+heroImage: https://tse1.mm.bing.net/th?q=can-the-cold-kill-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever tried to start your car on a freezing cold morning, only to hear a weak click or nothing at all? If so, you’re not alone.**

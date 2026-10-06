@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Life on Honda Accord 2009: Quick & Easy Steps"
-description: "If you own a 2009 Honda Accord, knowing how to reset the oil life indicator is key to keeping your car running smoothly. Ignoring this step can lead to missed m"
+title: 'How to Reset Oil Life on Honda Accord 2009: Quick & Easy Steps'
+description: If you own a 2009 Honda Accord, knowing how to reset the oil life indicator
+  is key to keeping your car running smoothly. Ignoring this step can lead to missed
+  m
 pubDate: 2026-04-29
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-life-on-honda-accord-2009&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Oil Life Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-life-on-honda-accord-2009&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a 2009 Honda Accord, knowing how to reset the oil life indicator is key to keeping your car running smoothly. Ignoring this step can lead to missed maintenance and costly repairs.**

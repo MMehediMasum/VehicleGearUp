@@ -1,10 +1,14 @@
 ---
-title: "Best Motorcycle Gear for Cold Weather: Top Winter Riding Essentials"
-description: "Riding a motorcycle in cold weather needs the right gear to stay warm and safe. Cold wind and low temperatures can cause discomfort and distraction. Choosing th"
+title: 'Best Motorcycle Gear for Cold Weather: Top Winter Riding Essentials'
+description: Riding a motorcycle in cold weather needs the right gear to stay warm
+  and safe. Cold wind and low temperatures can cause discomfort and distraction. Choosing
+  th
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-motorcycle-gear-for-cold-weather&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Weather Gear
+heroImage: https://tse1.mm.bing.net/th?q=best-motorcycle-gear-for-cold-weather&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Riding a motorcycle in cold weather needs the right gear to stay warm and safe. Cold wind and low temperatures can cause discomfort and distraction.**

@@ -1,10 +1,14 @@
 ---
-title: "Why Does My Car Steering Wheel Shake: Causes & Quick Fixes"
-description: "Have you ever noticed your car’s steering wheel shaking while you’re driving? It’s not just annoying—it can be a sign that something needs your attention. When "
+title: 'Why Does My Car Steering Wheel Shake: Causes & Quick Fixes'
+description: 'Have you ever noticed your car’s steering wheel shaking while you’re
+  driving? It’s not just annoying—it can be a sign that something needs your attention.
+  When '
 pubDate: 2025-10-22
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-does-my-car-steering-wheel-shake&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Steering Wheel Problems and Covers
+heroImage: https://tse1.mm.bing.net/th?q=why-does-my-car-steering-wheel-shake&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever noticed your car’s steering wheel shaking while you’re driving? It’s not just annoying—it can be a sign that something needs your attention.**

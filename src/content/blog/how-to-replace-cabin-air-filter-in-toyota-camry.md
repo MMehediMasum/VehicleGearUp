@@ -1,10 +1,14 @@
 ---
-title: "How to Replace Cabin Air Filter in Toyota Camry: Easy Step-by-Step Guide"
-description: "If you’ve noticed dust piling up inside your Toyota Camry or the air conditioning isn’t as fresh as it used to be, it might be time to replace your cabin air fi"
+title: 'How to Replace Cabin Air Filter in Toyota Camry: Easy Step-by-Step Guide'
+description: If you’ve noticed dust piling up inside your Toyota Camry or the air
+  conditioning isn’t as fresh as it used to be, it might be time to replace your cabin
+  air fi
 pubDate: 2026-05-19
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-replace-cabin-air-filter-in-toyota-camry&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Cabin Air Filters
+heroImage: https://tse1.mm.bing.net/th?q=how-to-replace-cabin-air-filter-in-toyota-camry&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you’ve noticed dust piling up inside your Toyota Camry or the air conditioning isn’t as fresh as it used to be, it might be time to replace your cabin air filter. This small part plays a big role in keeping the air inside your car clean and comfortable.**

@@ -1,10 +1,14 @@
 ---
-title: "What is a 1 Din Car Stereo: Ultimate Guide to Features & Benefits"
-description: "Are you thinking about upgrading your car’s audio system but feel confused by all the technical terms? Understanding what a 1 DIN car stereo is can make your de"
+title: 'What is a 1 Din Car Stereo: Ultimate Guide to Features & Benefits'
+description: Are you thinking about upgrading your car’s audio system but feel confused
+  by all the technical terms? Understanding what a 1 DIN car stereo is can make your
+  de
 pubDate: 2026-05-30
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-a-1-din-car-stereo&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Stereo Installation Help
+heroImage: https://tse1.mm.bing.net/th?q=what-is-a-1-din-car-stereo&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are you thinking about upgrading your car’s audio system but feel confused by all the technical terms? Understanding what a 1 DIN car stereo is can make your decision much easier.**

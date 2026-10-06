@@ -1,10 +1,14 @@
 ---
-title: "How to Lock Honda Accord While Running: Easy & Secure Steps"
-description: "Have you ever needed to step away from your Honda Accord for a moment but wanted to keep the engine running? Maybe you’re waiting for someone or keeping the car"
+title: 'How to Lock Honda Accord While Running: Easy & Secure Steps'
+description: Have you ever needed to step away from your Honda Accord for a moment
+  but wanted to keep the engine running? Maybe you’re waiting for someone or keeping
+  the car
 pubDate: 2026-02-11
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-lock-honda-accord-while-running&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Features and Fixes
+heroImage: https://tse1.mm.bing.net/th?q=how-to-lock-honda-accord-while-running&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Have you ever needed to step away from your Honda Accord for a moment but wanted to keep the engine running? Maybe you’re waiting for someone or keeping the car cool on a hot day.**

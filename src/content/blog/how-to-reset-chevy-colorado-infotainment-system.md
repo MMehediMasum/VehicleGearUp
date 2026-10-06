@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Chevy Colorado Infotainment System: Quick & Easy Guide"
-description: "Is your Chevy Colorado’s infotainment system acting up? Maybe it’s frozen, unresponsive, or just not working like it should. You’re not alone, and the good news"
+title: 'How to Reset Chevy Colorado Infotainment System: Quick & Easy Guide'
+description: Is your Chevy Colorado’s infotainment system acting up? Maybe it’s frozen,
+  unresponsive, or just not working like it should. You’re not alone, and the good
+  news
 pubDate: 2026-02-14
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-chevy-colorado-infotainment-system&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Radio Codes and Resets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-chevy-colorado-infotainment-system&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your Chevy Colorado’s infotainment system acting up? Maybe it’s frozen, unresponsive, or just not working like it should.**

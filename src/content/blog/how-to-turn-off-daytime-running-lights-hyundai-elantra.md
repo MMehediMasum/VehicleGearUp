@@ -1,10 +1,14 @@
 ---
-title: "How to Turn off Daytime Running Lights Hyundai Elantra: Quick Guide"
-description: "If you drive a Hyundai Elantra, you might have noticed the daytime running lights (DRLs) always stay on. While these lights help with safety, there are times wh"
+title: 'How to Turn off Daytime Running Lights Hyundai Elantra: Quick Guide'
+description: If you drive a Hyundai Elantra, you might have noticed the daytime running
+  lights (DRLs) always stay on. While these lights help with safety, there are times
+  wh
 pubDate: 2026-05-27
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-daytime-running-lights-hyundai-elantra&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Interior Light Settings
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-daytime-running-lights-hyundai-elantra&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If you drive a Hyundai Elantra, you might have noticed the daytime running lights (DRLs) always stay on. While these lights help with safety, there are times when you want to turn them off—maybe to save battery or reduce glare.**

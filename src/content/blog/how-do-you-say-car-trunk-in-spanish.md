@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How Do You Say Car Trunk in Spanish: Quick & Easy Guide"
 description: "Have you ever found yourself stuck trying to say something as simple as \"car trunk\" in Spanish? Maybe you wanted to ask for help, describe where your luggage is"
 pubDate: 2025-09-17

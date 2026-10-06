@@ -1,10 +1,14 @@
 ---
-title: "How to Disconnect Car Battery to Reset Computer: Easy Step-by-Step Guide"
-description: "Have you ever wondered if disconnecting your car battery could fix those annoying glitches in your vehicle’s computer? Maybe your check engine light just won’t "
+title: 'How to Disconnect Car Battery to Reset Computer: Easy Step-by-Step Guide'
+description: 'Have you ever wondered if disconnecting your car battery could fix those
+  annoying glitches in your vehicle’s computer? Maybe your check engine light just
+  won’t '
 pubDate: 2026-04-19
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-disconnect-car-battery-to-reset-computer&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Terminal Care
+heroImage: https://tse1.mm.bing.net/th?q=how-to-disconnect-car-battery-to-reset-computer&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if disconnecting your car battery could fix those annoying glitches in your vehicle’s computer? Maybe your check engine light just won’t turn off, or your car feels sluggish and unresponsive.**

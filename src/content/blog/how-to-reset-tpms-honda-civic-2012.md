@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Tpms Honda Civic 2012: Quick & Easy Guide"
-description: "If you’ve seen the tire pressure warning light on your 2012 Honda Civic and aren’t sure how to fix it, you’re not alone. Knowing how to reset the TPMS (Tire Pre"
+title: 'How to Reset Tpms Honda Civic 2012: Quick & Easy Guide'
+description: If you’ve seen the tire pressure warning light on your 2012 Honda Civic
+  and aren’t sure how to fix it, you’re not alone. Knowing how to reset the TPMS (Tire
+  Pre
 pubDate: 2025-12-10
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-tpms-honda-civic-2012&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Resetting Honda TPMS
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-tpms-honda-civic-2012&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **If you’ve seen the tire pressure warning light on your 2012 Honda Civic and aren’t sure how to fix it, you’re not alone. Knowing how to reset the TPMS (Tire Pressure Monitoring System) can save you time, money, and stress.**

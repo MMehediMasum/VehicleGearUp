@@ -1,10 +1,14 @@
 ---
-title: "How to Start a Car With a Clogged Catalytic Converter: Quick Fix Tips"
-description: "Have you ever turned your key, only to find your car struggling or refusing to start? A clogged catalytic converter might be the hidden culprit behind this frus"
+title: 'How to Start a Car With a Clogged Catalytic Converter: Quick Fix Tips'
+description: Have you ever turned your key, only to find your car struggling or refusing
+  to start? A clogged catalytic converter might be the hidden culprit behind this
+  frus
 pubDate: 2026-02-02
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-start-a-car-with-a-clogged-catalytic-converter&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Catalytic Converter Questions
+heroImage: https://tse1.mm.bing.net/th?q=how-to-start-a-car-with-a-clogged-catalytic-converter&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you ever turned your key, only to find your car struggling or refusing to start? A clogged catalytic converter might be the hidden culprit behind this frustrating problem.**

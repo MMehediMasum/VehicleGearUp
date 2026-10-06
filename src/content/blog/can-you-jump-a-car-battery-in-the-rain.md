@@ -1,10 +1,14 @@
 ---
-title: "Can You Jump a Car Battery in the Rain: Safety Tips & Tricks"
-description: "Have you ever found yourself stuck with a dead car battery while it’s pouring rain outside? It’s frustrating, and you might wonder if it’s even safe to jump-sta"
+title: 'Can You Jump a Car Battery in the Rain: Safety Tips & Tricks'
+description: Have you ever found yourself stuck with a dead car battery while it’s
+  pouring rain outside? It’s frustrating, and you might wonder if it’s even safe to
+  jump-sta
 pubDate: 2025-11-15
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-jump-a-car-battery-in-the-rain&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jump Starting Special Cases
+heroImage: https://tse1.mm.bing.net/th?q=can-you-jump-a-car-battery-in-the-rain&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever found yourself stuck with a dead car battery while it’s pouring rain outside? It’s frustrating, and you might wonder if it’s even safe to jump-start your car in such wet conditions.**

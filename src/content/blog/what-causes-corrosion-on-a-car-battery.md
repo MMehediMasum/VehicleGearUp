@@ -1,10 +1,14 @@
 ---
-title: "What Causes Corrosion on a Car Battery: Top Reasons Revealed"
-description: "Have you ever opened your car’s hood and noticed a white, powdery substance around the battery terminals? That’s corrosion, and it can cause serious problems fo"
+title: 'What Causes Corrosion on a Car Battery: Top Reasons Revealed'
+description: Have you ever opened your car’s hood and noticed a white, powdery substance
+  around the battery terminals? That’s corrosion, and it can cause serious problems
+  fo
 pubDate: 2026-04-13
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-causes-corrosion-on-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Polarity and Acid
+heroImage: https://tse1.mm.bing.net/th?q=what-causes-corrosion-on-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever opened your car’s hood and noticed a white, powdery substance around the battery terminals? That’s corrosion, and it can cause serious problems for your vehicle.**

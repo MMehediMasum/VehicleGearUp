@@ -1,10 +1,14 @@
 ---
-title: "Do Car Batteries Have Liquid in Them? Unveiling the Truth"
-description: "Have you ever wondered what’s inside your car battery? You might think it’s just a solid box powering your vehicle, but there’s more to it. Understanding whethe"
+title: Do Car Batteries Have Liquid in Them? Unveiling the Truth
+description: Have you ever wondered what’s inside your car battery? You might think
+  it’s just a solid box powering your vehicle, but there’s more to it. Understanding
+  whethe
 pubDate: 2026-02-17
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-car-batteries-have-liquid-in-them&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Polarity and Acid
+heroImage: https://tse1.mm.bing.net/th?q=do-car-batteries-have-liquid-in-them&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered what’s inside your car battery? You might think it’s just a solid box powering your vehicle, but there’s more to it.**

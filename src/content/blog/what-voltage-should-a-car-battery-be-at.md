@@ -1,10 +1,14 @@
 ---
-title: "What Voltage Should a Car Battery Be at: Essential Guide"
-description: "Are you wondering if your car battery has the right voltage to keep your vehicle running smoothly? Knowing the correct voltage is key to avoiding unexpected bre"
+title: 'What Voltage Should a Car Battery Be at: Essential Guide'
+description: Are you wondering if your car battery has the right voltage to keep your
+  vehicle running smoothly? Knowing the correct voltage is key to avoiding unexpected
+  bre
 pubDate: 2026-04-05
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-voltage-should-a-car-battery-be-at&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Normal Battery Voltage
+heroImage: https://tse1.mm.bing.net/th?q=what-voltage-should-a-car-battery-be-at&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you wondering if your car battery has the right voltage to keep your vehicle running smoothly? Knowing the correct voltage is key to avoiding unexpected breakdowns and costly repairs.**

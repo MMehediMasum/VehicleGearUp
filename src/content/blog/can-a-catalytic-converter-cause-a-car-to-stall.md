@@ -1,10 +1,14 @@
 ---
-title: "Can a Catalytic Converter Cause a Car to Stall? Shocking Truths Revealed"
-description: "Have you ever experienced your car suddenly stalling while driving or idling, leaving you frustrated and worried? One surprising culprit might be your catalytic"
+title: Can a Catalytic Converter Cause a Car to Stall? Shocking Truths Revealed
+description: Have you ever experienced your car suddenly stalling while driving or
+  idling, leaving you frustrated and worried? One surprising culprit might be your
+  catalytic
 pubDate: 2026-03-11
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-a-catalytic-converter-cause-a-car-to-stall&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Catalytic Converter Questions
+heroImage: https://tse1.mm.bing.net/th?q=can-a-catalytic-converter-cause-a-car-to-stall&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you ever experienced your car suddenly stalling while driving or idling, leaving you frustrated and worried? One surprising culprit might be your catalytic converter.**

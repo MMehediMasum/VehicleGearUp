@@ -1,10 +1,13 @@
 ---
-title: "How to Activate Full Self Driving Tesla Model 3: Ultimate Guide"
-description: "Are you ready to unlock the full potential of your Tesla Model 3? Activating Full Self Driving (FSD) can transform your driving experience, giving you more conv"
+title: 'How to Activate Full Self Driving Tesla Model 3: Ultimate Guide'
+description: Are you ready to unlock the full potential of your Tesla Model 3? Activating
+  Full Self Driving (FSD) can transform your driving experience, giving you more conv
 pubDate: 2025-11-02
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-activate-full-self-driving-tesla-model-3&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Model Y Features
+heroImage: https://tse1.mm.bing.net/th?q=how-to-activate-full-self-driving-tesla-model-3&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you ready to unlock the full potential of your Tesla Model 3? Activating Full Self Driving (FSD) can transform your driving experience, giving you more convenience, safety, and control.**

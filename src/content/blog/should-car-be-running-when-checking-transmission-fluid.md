@@ -1,10 +1,14 @@
 ---
-title: "Should Car Be Running When Checking Transmission Fluid: Essential Tips"
-description: "Are you wondering whether your car should be running when you check the transmission fluid? It’s a simple task, but getting it wrong can lead to confusing resul"
+title: 'Should Car Be Running When Checking Transmission Fluid: Essential Tips'
+description: Are you wondering whether your car should be running when you check the
+  transmission fluid? It’s a simple task, but getting it wrong can lead to confusing
+  resul
 pubDate: 2026-05-02
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=should-car-be-running-when-checking-transmission-fluid&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Adding Transmission Fluid
+heroImage: https://tse1.mm.bing.net/th?q=should-car-be-running-when-checking-transmission-fluid&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Are you wondering whether your car should be running when you check the transmission fluid? It’s a simple task, but getting it wrong can lead to confusing results or even damage.**

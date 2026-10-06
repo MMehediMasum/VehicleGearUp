@@ -1,10 +1,14 @@
 ---
-title: "Is a Car Battery Covered under Warranty: What You Need to Know"
-description: "Are you wondering if your car battery is covered under warranty? It’s a question many car owners ask but don’t always get clear answers to. Knowing whether your"
+title: 'Is a Car Battery Covered under Warranty: What You Need to Know'
+description: Are you wondering if your car battery is covered under warranty? It’s
+  a question many car owners ask but don’t always get clear answers to. Knowing whether
+  your
 pubDate: 2026-03-31
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-a-car-battery-covered-under-warranty&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Warranty and Storage
+heroImage: https://tse1.mm.bing.net/th?q=is-a-car-battery-covered-under-warranty&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you wondering if your car battery is covered under warranty? It’s a question many car owners ask but don’t always get clear answers to.**

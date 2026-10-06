@@ -1,10 +1,14 @@
 ---
-title: "Best Budget Electric Pressure Washer for Car Detailing: Portable & Powerful Choice"
-description: "Finding a budget electric pressure washer for car detailing can save time and effort. Choosing the right model ensures effective cleaning without overspending. "
+title: 'Best Budget Electric Pressure Washer for Car Detailing: Portable & Powerful
+  Choice'
+description: 'Finding a budget electric pressure washer for car detailing can save
+  time and effort. Choosing the right model ensures effective cleaning without overspending. '
 pubDate: 2025-10-27
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-budget-electric-pressure-washer-for-car-detailing&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Detailing Equipment
+heroImage: https://tse1.mm.bing.net/th?q=best-budget-electric-pressure-washer-for-car-detailing&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Finding a budget electric pressure washer for car detailing can save time and effort. Choosing the right model ensures effective cleaning without overspending.**

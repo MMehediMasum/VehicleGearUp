@@ -1,10 +1,14 @@
 ---
-title: "Best Mud Flaps for Tesla Model Y: Ultimate Protection Without Drilling"
-description: "Protecting your Tesla Model Y from mud, dirt, and road debris keeps it looking new longer. Choosing the right mud flaps can save you time and money on cleaning "
+title: 'Best Mud Flaps for Tesla Model Y: Ultimate Protection Without Drilling'
+description: 'Protecting your Tesla Model Y from mud, dirt, and road debris keeps
+  it looking new longer. Choosing the right mud flaps can save you time and money
+  on cleaning '
 pubDate: 2026-06-04
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-mud-flaps-for-tesla-model-y&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Model Y Features
+heroImage: https://tse1.mm.bing.net/th?q=best-mud-flaps-for-tesla-model-y&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Protecting your Tesla Model Y from mud, dirt, and road debris keeps it looking new longer. Choosing the right mud flaps can save you time and money on cleaning and repairs.**

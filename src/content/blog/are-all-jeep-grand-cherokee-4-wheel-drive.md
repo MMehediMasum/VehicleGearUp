@@ -1,10 +1,14 @@
 ---
-title: "Are All Jeep Grand Cherokee 4 Wheel Drive? Uncover the Truth!"
-description: "Are you wondering if every Jeep Grand Cherokee comes with 4-wheel drive? If you’re shopping for one or just curious about its capabilities, this question is imp"
+title: Are All Jeep Grand Cherokee 4 Wheel Drive? Uncover the Truth!
+description: Are you wondering if every Jeep Grand Cherokee comes with 4-wheel drive?
+  If you’re shopping for one or just curious about its capabilities, this question
+  is imp
 pubDate: 2025-12-17
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-all-jeep-grand-cherokee-4-wheel-drive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- All Wheel Drive Questions
+heroImage: https://tse1.mm.bing.net/th?q=are-all-jeep-grand-cherokee-4-wheel-drive&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you wondering if every Jeep Grand Cherokee comes with 4-wheel drive? If you’re shopping for one or just curious about its capabilities, this question is important.**

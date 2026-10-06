@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Abs Light on Harley Davidson: Quick & Easy Guide"
-description: "Is your Harley Davidson’s ABS light staying on and you’re not sure what to do? That little warning can be frustrating and confusing, especially if you rely on y"
+title: 'How to Reset Abs Light on Harley Davidson: Quick & Easy Guide'
+description: Is your Harley Davidson’s ABS light staying on and you’re not sure what
+  to do? That little warning can be frustrating and confusing, especially if you rely
+  on y
 pubDate: 2026-05-24
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-abs-light-on-harley-davidson&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Ownership Questions
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-abs-light-on-harley-davidson&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Is your Harley Davidson’s ABS light staying on and you’re not sure what to do? That little warning can be frustrating and confusing, especially if you rely on your bike every day.**

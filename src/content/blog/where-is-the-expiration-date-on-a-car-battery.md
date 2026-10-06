@@ -1,10 +1,14 @@
 ---
-title: "Where is the Expiration Date on a Car Battery: Find It Fast!"
-description: "Have you ever wondered how long your car battery will last? Knowing the expiration date on your car battery can save you from unexpected breakdowns and costly r"
+title: 'Where is the Expiration Date on a Car Battery: Find It Fast!'
+description: Have you ever wondered how long your car battery will last? Knowing the
+  expiration date on your car battery can save you from unexpected breakdowns and
+  costly r
 pubDate: 2026-04-17
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-is-the-expiration-date-on-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Types and Specs
+heroImage: https://tse1.mm.bing.net/th?q=where-is-the-expiration-date-on-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered how long your car battery will last? Knowing the expiration date on your car battery can save you from unexpected breakdowns and costly repairs.**

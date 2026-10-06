@@ -1,10 +1,13 @@
 ---
-title: "Best Tires for a Boat Trailer: Top Durable and Reliable Picks"
-description: "Choosing the best tires for a boat trailer ensures safe and smooth transportation of your boat. Good tires protect your trailer from damage and improve towing s"
+title: 'Best Tires for a Boat Trailer: Top Durable and Reliable Picks'
+description: Choosing the best tires for a boat trailer ensures safe and smooth transportation
+  of your boat. Good tires protect your trailer from damage and improve towing s
 pubDate: 2025-11-14
-author: "herbertlangham"
-categories: ["Towing & Hauling"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-a-boat-trailer&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Trailer Gear and Accessories
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-a-boat-trailer&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Choosing the best tires for a boat trailer ensures safe and smooth transportation of your boat. Good tires protect your trailer from damage and improve towing stability.**

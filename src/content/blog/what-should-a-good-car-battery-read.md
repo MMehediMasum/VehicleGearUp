@@ -1,10 +1,14 @@
 ---
-title: "What Should a Good Car Battery Read: Essential Voltage Guide"
-description: "Have you ever wondered if your car battery is really healthy? Knowing what a good car battery should read can save you from unexpected breakdowns and costly rep"
+title: 'What Should a Good Car Battery Read: Essential Voltage Guide'
+description: Have you ever wondered if your car battery is really healthy? Knowing
+  what a good car battery should read can save you from unexpected breakdowns and
+  costly rep
 pubDate: 2025-10-17
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-should-a-good-car-battery-read&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Price and Installation
+heroImage: https://tse1.mm.bing.net/th?q=what-should-a-good-car-battery-read&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if your car battery is really healthy? Knowing what a good car battery should read can save you from unexpected breakdowns and costly repairs.**

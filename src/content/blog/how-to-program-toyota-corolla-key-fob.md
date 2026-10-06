@@ -1,10 +1,14 @@
 ---
-title: "How to Program Toyota Corolla Key Fob: Quick & Easy Guide"
-description: "Losing or replacing your Toyota Corolla key fob can be frustrating, especially when you don’t know how to set it up. But what if you could program your key fob "
+title: 'How to Program Toyota Corolla Key Fob: Quick & Easy Guide'
+description: 'Losing or replacing your Toyota Corolla key fob can be frustrating,
+  especially when you don’t know how to set it up. But what if you could program your
+  key fob '
 pubDate: 2026-03-05
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-program-toyota-corolla-key-fob&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Programming Key Fobs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-program-toyota-corolla-key-fob&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **Losing or replacing your Toyota Corolla key fob can be frustrating, especially when you don’t know how to set it up. But what if you could program your key fob yourself, quickly and without spending a fortune?**

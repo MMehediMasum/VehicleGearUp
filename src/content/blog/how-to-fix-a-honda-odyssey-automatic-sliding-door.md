@@ -1,10 +1,14 @@
 ---
-title: "How to Fix a Honda Odyssey Automatic Sliding Door: Easy DIY Tips"
-description: "Is your Honda Odyssey’s automatic sliding door acting up? You’re not alone. A stuck or slow door can be frustrating, especially when you need quick and easy acc"
+title: 'How to Fix a Honda Odyssey Automatic Sliding Door: Easy DIY Tips'
+description: Is your Honda Odyssey’s automatic sliding door acting up? You’re not
+  alone. A stuck or slow door can be frustrating, especially when you need quick and
+  easy acc
 pubDate: 2026-04-30
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-a-honda-odyssey-automatic-sliding-door&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Features and Fixes
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-a-honda-odyssey-automatic-sliding-door&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your Honda Odyssey’s automatic sliding door acting up? You’re not alone.**

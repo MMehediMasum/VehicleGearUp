@@ -1,10 +1,13 @@
 ---
-title: "How to Clean Car Battery Corrosion Without Baking Soda: Easy Hacks"
-description: "Is your car battery showing signs of corrosion, but you don’t have baking soda on hand? Don’t worry—you can still clean it effectively and keep your car running"
+title: 'How to Clean Car Battery Corrosion Without Baking Soda: Easy Hacks'
+description: Is your car battery showing signs of corrosion, but you don’t have baking
+  soda on hand? Don’t worry—you can still clean it effectively and keep your car running
 pubDate: 2026-04-18
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-car-battery-corrosion-without-baking-soda&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Polarity and Acid
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-car-battery-corrosion-without-baking-soda&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your car battery showing signs of corrosion, but you don’t have baking soda on hand? Don’t worry—you can still clean it effectively and keep your car running smoothly.**

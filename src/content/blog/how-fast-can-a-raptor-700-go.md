@@ -1,10 +1,14 @@
 ---
-title: "How Fast Can a Raptor 700 Go: Unleashing Its Top Speed Potential"
-description: "Are you curious about just how fast a Raptor 700 can go? Whether you’re thinking about buying one or already own this powerful machine, knowing its top speed ca"
+title: 'How Fast Can a Raptor 700 Go: Unleashing Its Top Speed Potential'
+description: Are you curious about just how fast a Raptor 700 can go? Whether you’re
+  thinking about buying one or already own this powerful machine, knowing its top
+  speed ca
 pubDate: 2025-12-20
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-fast-can-a-raptor-700-go&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- ATV Tires and Speed
+heroImage: https://tse1.mm.bing.net/th?q=how-fast-can-a-raptor-700-go&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you curious about just how fast a Raptor 700 can go? Whether you’re thinking about buying one or already own this powerful machine, knowing its top speed can help you get the most out of your ride.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Fifth Wheel Hitch for Short Bed Trucks: Top Sliding & Roller Picks"
-description: "Choosing the best fifth wheel hitch for a short bed truck can be tricky. The right hitch ensures safe and smooth towing with limited space. Short bed trucks nee"
+title: 'Best Fifth Wheel Hitch for Short Bed Trucks: Top Sliding & Roller Picks'
+description: Choosing the best fifth wheel hitch for a short bed truck can be tricky.
+  The right hitch ensures safe and smooth towing with limited space. Short bed trucks
+  nee
 pubDate: 2025-11-03
-author: "herbertlangham"
-categories: ["Towing & Hauling"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-fifth-wheel-hitch-for-short-bed&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Best Trucks for Towing
+heroImage: https://tse1.mm.bing.net/th?q=best-fifth-wheel-hitch-for-short-bed&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Choosing the best fifth wheel hitch for a short bed truck can be tricky. The right hitch ensures safe and smooth towing with limited space.**

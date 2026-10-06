@@ -1,10 +1,14 @@
 ---
-title: "Best Cleaner for Synthetic Leather Car Seats: Top Picks for Deep Cleaning"
-description: "Choosing the best cleaner for synthetic leather car seats keeps them fresh and lasting longer. Proper care removes dirt without damaging the material. Synthetic"
+title: 'Best Cleaner for Synthetic Leather Car Seats: Top Picks for Deep Cleaning'
+description: Choosing the best cleaner for synthetic leather car seats keeps them
+  fresh and lasting longer. Proper care removes dirt without damaging the material.
+  Synthetic
 pubDate: 2025-09-26
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cleaner-for-synthetic-leather-car-seats&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Best Engine Oils
+heroImage: https://tse1.mm.bing.net/th?q=best-cleaner-for-synthetic-leather-car-seats&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Choosing the best cleaner for synthetic leather car seats keeps them fresh and lasting longer. Proper care removes dirt without damaging the material.**

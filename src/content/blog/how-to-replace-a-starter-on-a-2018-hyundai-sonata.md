@@ -1,10 +1,14 @@
 ---
-title: "How to Replace a Starter on a 2018 Hyundai Sonata: Easy Step-by-Step Guide"
-description: "If your 2018 Hyundai Sonata struggles to start or makes a clicking noise when you turn the key, your starter might be the problem. Knowing how to replace the st"
+title: 'How to Replace a Starter on a 2018 Hyundai Sonata: Easy Step-by-Step Guide'
+description: If your 2018 Hyundai Sonata struggles to start or makes a clicking noise
+  when you turn the key, your starter might be the problem. Knowing how to replace
+  the st
 pubDate: 2025-10-17
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-replace-a-starter-on-a-2018-hyundai-sonata&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Starter Problems
+heroImage: https://tse1.mm.bing.net/th?q=how-to-replace-a-starter-on-a-2018-hyundai-sonata&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **If your 2018 Hyundai Sonata struggles to start or makes a clicking noise when you turn the key, your starter might be the problem. Knowing how to replace the starter yourself can save you time and money.**

@@ -1,10 +1,14 @@
 ---
-title: "What Dia is 3 Gauge Car Battery Cable: Ultimate Size Guide"
-description: "Are you wondering what diameter a 3 gauge car battery cable actually is? Choosing the right cable size is crucial for your vehicle’s performance and safety. If "
+title: 'What Dia is 3 Gauge Car Battery Cable: Ultimate Size Guide'
+description: 'Are you wondering what diameter a 3 gauge car battery cable actually
+  is? Choosing the right cable size is crucial for your vehicle’s performance and
+  safety. If '
 pubDate: 2025-09-26
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-dia-is-3-gauge-car-battery-cable&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Polarity and Acid
+heroImage: https://tse1.mm.bing.net/th?q=what-dia-is-3-gauge-car-battery-cable&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you wondering what diameter a 3 gauge car battery cable actually is? Choosing the right cable size is crucial for your vehicle’s performance and safety.**

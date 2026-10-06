@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Tpms on Honda Accord: Quick & Easy Guide"
-description: "If your Honda Accord’s tire pressure monitoring system (TPMS) light is on, it can be confusing and even a little frustrating. You might wonder what triggered it"
+title: 'How to Reset Tpms on Honda Accord: Quick & Easy Guide'
+description: If your Honda Accord’s tire pressure monitoring system (TPMS) light is
+  on, it can be confusing and even a little frustrating. You might wonder what triggered
+  it
 pubDate: 2026-02-16
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-tpms-on-honda-accord&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Resetting Honda TPMS
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-tpms-on-honda-accord&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **If your Honda Accord’s tire pressure monitoring system (TPMS) light is on, it can be confusing and even a little frustrating. You might wonder what triggered it and how to fix it quickly.**

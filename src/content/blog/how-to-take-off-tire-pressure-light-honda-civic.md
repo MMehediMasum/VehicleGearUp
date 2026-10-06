@@ -1,10 +1,14 @@
 ---
-title: "How to Take off Tire Pressure Light Honda Civic: Quick Fix Guide"
-description: "Is your Honda Civic’s tire pressure light on, and you’re not sure how to turn it off? That little warning can be annoying and confusing. You might wonder if the"
+title: 'How to Take off Tire Pressure Light Honda Civic: Quick Fix Guide'
+description: Is your Honda Civic’s tire pressure light on, and you’re not sure how
+  to turn it off? That little warning can be annoying and confusing. You might wonder
+  if the
 pubDate: 2026-05-20
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-take-off-tire-pressure-light-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Tire Pressure Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-take-off-tire-pressure-light-honda-civic&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Is your Honda Civic’s tire pressure light on, and you’re not sure how to turn it off? That little warning can be annoying and confusing.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Seat Covers for Volvo Xc90: Durable, Waterproof, and Custom Fit Options"
-description: "Finding the best seat covers for your Volvo XC90 protects your seats and adds style. Quality covers fit well, resist wear, and are easy to clean. Volvo XC90 own"
+title: 'Best Seat Covers for Volvo Xc90: Durable, Waterproof, and Custom Fit Options'
+description: Finding the best seat covers for your Volvo XC90 protects your seats
+  and adds style. Quality covers fit well, resist wear, and are easy to clean. Volvo
+  XC90 own
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-seat-covers-for-volvo-xc90&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Nissan and Fabric Seat Covers
+heroImage: https://tse1.mm.bing.net/th?q=best-seat-covers-for-volvo-xc90&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Finding the best seat covers for your Volvo XC90 protects your seats and adds style. Quality covers fit well, resist wear, and are easy to clean.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Change Headlight Bulb Toyota Corolla: Quick Easy Guide"
-description: "Is your Toyota Corolla’s headlight dim or completely out? Driving without proper lighting isn’t just unsafe—it’s also illegal. But don’t worry, changing your he"
+title: 'How to Change Headlight Bulb Toyota Corolla: Quick Easy Guide'
+description: Is your Toyota Corolla’s headlight dim or completely out? Driving without
+  proper lighting isn’t just unsafe—it’s also illegal. But don’t worry, changing your
+  he
 pubDate: 2026-05-20
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-headlight-bulb-toyota-corolla&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Headlight Bulbs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-headlight-bulb-toyota-corolla&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your Toyota Corolla’s headlight dim or completely out? Driving without proper lighting isn’t just unsafe—it’s also illegal.**

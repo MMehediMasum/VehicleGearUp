@@ -1,10 +1,14 @@
 ---
-title: "Best Cigarette Smoke Eliminator for Cars: Top Odor-Free Solutions Reviewed"
-description: "Cigarette smoke can leave a strong, unpleasant odor in your car. Finding the best cigarette smoke eliminator keeps your vehicle fresh and clean. Smoke and ash b"
+title: 'Best Cigarette Smoke Eliminator for Cars: Top Odor-Free Solutions Reviewed'
+description: Cigarette smoke can leave a strong, unpleasant odor in your car. Finding
+  the best cigarette smoke eliminator keeps your vehicle fresh and clean. Smoke and
+  ash b
 pubDate: 2026-06-18
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cigarette-smoke-eliminator-for-cars&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Air Fresheners and Odors
+heroImage: https://tse1.mm.bing.net/th?q=best-cigarette-smoke-eliminator-for-cars&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Cigarette smoke can leave a strong, unpleasant odor in your car. Finding the best cigarette smoke eliminator keeps your vehicle fresh and clean.**

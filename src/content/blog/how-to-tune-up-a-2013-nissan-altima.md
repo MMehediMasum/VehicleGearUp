@@ -1,10 +1,14 @@
 ---
-title: "How to Tune Up a 2013 Nissan Altima: Essential DIY Tips"
-description: "Is your 2013 Nissan Altima not running as smoothly as it used to? You might be surprised how a simple tune-up can bring back that fresh, powerful feel every tim"
+title: 'How to Tune Up a 2013 Nissan Altima: Essential DIY Tips'
+description: Is your 2013 Nissan Altima not running as smoothly as it used to? You
+  might be surprised how a simple tune-up can bring back that fresh, powerful feel
+  every tim
 pubDate: 2026-02-27
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-tune-up-a-2013-nissan-altima&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Carburetor and Fuel Injection Kits
+heroImage: https://tse1.mm.bing.net/th?q=how-to-tune-up-a-2013-nissan-altima&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Is your 2013 Nissan Altima not running as smoothly as it used to? You might be surprised how a simple tune-up can bring back that fresh, powerful feel every time you hit the road.**

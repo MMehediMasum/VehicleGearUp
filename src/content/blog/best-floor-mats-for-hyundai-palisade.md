@@ -1,10 +1,14 @@
 ---
-title: "Best Floor Mats for Hyundai Palisade: Ultimate Protection and Style Guide"
-description: "Choosing the best floor mats for your Hyundai Palisade protects your vehicle’s interior from dirt and spills. Quality mats fit well and last long. Floor mats ke"
+title: 'Best Floor Mats for Hyundai Palisade: Ultimate Protection and Style Guide'
+description: Choosing the best floor mats for your Hyundai Palisade protects your
+  vehicle’s interior from dirt and spills. Quality mats fit well and last long. Floor
+  mats ke
 pubDate: 2026-07-22
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-floor-mats-for-hyundai-palisade&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Floor Mats and Cargo Liners
+heroImage: https://tse1.mm.bing.net/th?q=best-floor-mats-for-hyundai-palisade&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best floor mats for your Hyundai Palisade protects your vehicle’s interior from dirt and spills. Quality mats fit well and last long.**

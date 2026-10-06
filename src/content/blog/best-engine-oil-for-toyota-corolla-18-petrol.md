@@ -1,10 +1,13 @@
 ---
-title: "Best Engine Oil for Toyota Corolla 1.8 Petrol: Top Full Synthetic Picks"
-description: "Choosing the best engine oil for your Toyota Corolla 1.8 petrol is essential for smooth engine performance. The right oil protects your engine and improves fuel"
+title: 'Best Engine Oil for Toyota Corolla 1.8 Petrol: Top Full Synthetic Picks'
+description: Choosing the best engine oil for your Toyota Corolla 1.8 petrol is essential
+  for smooth engine performance. The right oil protects your engine and improves fuel
 pubDate: 2025-10-02
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-engine-oil-for-toyota-corolla-18-petrol&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Best Engine Oils
+heroImage: https://tse1.mm.bing.net/th?q=best-engine-oil-for-toyota-corolla-18-petrol&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Choosing the best engine oil for your Toyota Corolla 1.8 petrol is essential for smooth engine performance. The right oil protects your engine and improves fuel efficiency.**

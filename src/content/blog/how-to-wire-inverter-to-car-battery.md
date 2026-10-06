@@ -1,10 +1,14 @@
 ---
-title: "How to Wire Inverter to Car Battery: Easy Step-by-Step Guide"
-description: "If you’ve ever needed to power your devices on the go, knowing how to wire an inverter to your car battery is a game-changer. It might sound tricky, but with th"
+title: 'How to Wire Inverter to Car Battery: Easy Step-by-Step Guide'
+description: If you’ve ever needed to power your devices on the go, knowing how to
+  wire an inverter to your car battery is a game-changer. It might sound tricky, but
+  with th
 pubDate: 2026-03-30
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-wire-inverter-to-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing a Car Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-wire-inverter-to-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **If you’ve ever needed to power your devices on the go, knowing how to wire an inverter to your car battery is a game-changer. It might sound tricky, but with the right steps, you can safely and easily turn your car into a portable power source.**

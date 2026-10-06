@@ -1,10 +1,14 @@
 ---
-title: "How to Jump a 2014 Ford Escape: Quick & Safe Guide"
-description: "Have you ever found yourself stranded with a dead battery in your 2014 Ford Escape? It’s frustrating, stressful, and can throw off your entire day. But don’t wo"
+title: 'How to Jump a 2014 Ford Escape: Quick & Safe Guide'
+description: Have you ever found yourself stranded with a dead battery in your 2014
+  Ford Escape? It’s frustrating, stressful, and can throw off your entire day. But
+  don’t wo
 pubDate: 2026-02-12
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-jump-a-2014-ford-escape&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jump Starting by Model
+heroImage: https://tse1.mm.bing.net/th?q=how-to-jump-a-2014-ford-escape&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever found yourself stranded with a dead battery in your 2014 Ford Escape? It’s frustrating, stressful, and can throw off your entire day.**

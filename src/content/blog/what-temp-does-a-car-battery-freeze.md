@@ -1,10 +1,13 @@
 ---
-title: "What Temp Does a Car Battery Freeze: Essential Cold Weather Facts"
-description: "Have you ever wondered what temperature causes your car battery to freeze? Knowing this could save you from unexpected trouble on a cold morning. When temperatu"
+title: 'What Temp Does a Car Battery Freeze: Essential Cold Weather Facts'
+description: Have you ever wondered what temperature causes your car battery to freeze?
+  Knowing this could save you from unexpected trouble on a cold morning. When temperatu
 pubDate: 2026-04-15
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-temp-does-a-car-battery-freeze&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Ratings Explained
+heroImage: https://tse1.mm.bing.net/th?q=what-temp-does-a-car-battery-freeze&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered what temperature causes your car battery to freeze? Knowing this could save you from unexpected trouble on a cold morning.**

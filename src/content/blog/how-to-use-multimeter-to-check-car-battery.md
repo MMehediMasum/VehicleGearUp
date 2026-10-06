@@ -1,10 +1,14 @@
 ---
-title: "How to Use Multimeter to Check Car Battery: Easy & Accurate Guide"
-description: "Is your car struggling to start, or are you worried your battery might be dying? Knowing how to check your car battery with a multimeter can save you time, mone"
+title: 'How to Use Multimeter to Check Car Battery: Easy & Accurate Guide'
+description: Is your car struggling to start, or are you worried your battery might
+  be dying? Knowing how to check your car battery with a multimeter can save you time,
+  mone
 pubDate: 2026-04-07
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-use-multimeter-to-check-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Testing Battery With Multimeter
+heroImage: https://tse1.mm.bing.net/th?q=how-to-use-multimeter-to-check-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your car struggling to start, or are you worried your battery might be dying? Knowing how to check your car battery with a multimeter can save you time, money, and stress.**

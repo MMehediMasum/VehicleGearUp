@@ -1,10 +1,14 @@
 ---
-title: "What Amperage to Charge a Car Battery: Essential Guide for Safety"
-description: "Are you wondering what amperage to use when charging your car battery? Choosing the right amperage is key to charging your battery safely and efficiently. Too m"
+title: 'What Amperage to Charge a Car Battery: Essential Guide for Safety'
+description: Are you wondering what amperage to use when charging your car battery?
+  Choosing the right amperage is key to charging your battery safely and efficiently.
+  Too m
 pubDate: 2026-05-10
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-amperage-to-charge-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Charging a Car Battery
+heroImage: https://tse1.mm.bing.net/th?q=what-amperage-to-charge-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you wondering what amperage to use when charging your car battery? Choosing the right amperage is key to charging your battery safely and efficiently.**

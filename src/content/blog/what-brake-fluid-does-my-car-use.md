@@ -1,10 +1,13 @@
 ---
-title: "What Brake Fluid Does My Car Use: Ultimate Guide for Safe Driving"
-description: "Do you know what type of brake fluid your car needs? Using the wrong brake fluid can cause serious problems and put your safety at risk. But don’t worry—figurin"
+title: 'What Brake Fluid Does My Car Use: Ultimate Guide for Safe Driving'
+description: Do you know what type of brake fluid your car needs? Using the wrong
+  brake fluid can cause serious problems and put your safety at risk. But don’t worry—figurin
 pubDate: 2026-05-05
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-brake-fluid-does-my-car-use&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Brake and Washer Fluids
+heroImage: https://tse1.mm.bing.net/th?q=what-brake-fluid-does-my-car-use&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Do you know what type of brake fluid your car needs? Using the wrong brake fluid can cause serious problems and put your safety at risk.**

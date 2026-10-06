@@ -1,10 +1,14 @@
 ---
-title: "Best Engine Oil for Four Stroke Bike: Top Synthetic Oils Reviewed"
-description: "Choosing the best engine oil for a four-stroke bike keeps your engine running smoothly and lasts longer. Using the right oil protects parts and improves bike pe"
+title: 'Best Engine Oil for Four Stroke Bike: Top Synthetic Oils Reviewed'
+description: Choosing the best engine oil for a four-stroke bike keeps your engine
+  running smoothly and lasts longer. Using the right oil protects parts and improves
+  bike pe
 pubDate: 2026-07-15
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-engine-oil-for-four-stroke-bike&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Best Engine Oils
+heroImage: https://tse1.mm.bing.net/th?q=best-engine-oil-for-four-stroke-bike&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Choosing the best engine oil for a four-stroke bike keeps your engine running smoothly and lasts longer. Using the right oil protects parts and improves bike performance.**

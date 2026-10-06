@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Honda CRV: Top Spare Tire Kits and Alloy Wheels"
-description: "Choosing the best tires for your 2022 Honda CR-V improves safety and driving comfort. Tires affect handling, fuel efficiency, and ride smoothness. The 2022 Hond"
+title: 'Best Tires for Honda CRV: Top Spare Tire Kits and Alloy Wheels'
+description: Choosing the best tires for your 2022 Honda CR-V improves safety and
+  driving comfort. Tires affect handling, fuel efficiency, and ride smoothness. The
+  2022 Hond
 pubDate: 2025-10-31
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-honda-crv-2022&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-honda-crv-2022&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your 2022 Honda CR-V improves safety and driving comfort. Tires affect handling, fuel efficiency, and ride smoothness.**

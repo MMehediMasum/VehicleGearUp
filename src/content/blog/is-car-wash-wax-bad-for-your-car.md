@@ -1,10 +1,14 @@
 ---
-title: "Is Car Wash Wax Bad for Your Car? Shocking Truth Revealed!"
-description: "Have you ever wondered if the wax used at car washes is actually good for your car? You might think it makes your vehicle shine and protects the paint, but is i"
+title: Is Car Wash Wax Bad for Your Car? Shocking Truth Revealed!
+description: Have you ever wondered if the wax used at car washes is actually good
+  for your car? You might think it makes your vehicle shine and protects the paint,
+  but is i
 pubDate: 2026-03-16
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-car-wash-wax-bad-for-your-car&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wash Basics
+heroImage: https://tse1.mm.bing.net/th?q=is-car-wash-wax-bad-for-your-car&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever wondered if the wax used at car washes is actually good for your car? You might think it makes your vehicle shine and protects the paint, but is it really that simple?**

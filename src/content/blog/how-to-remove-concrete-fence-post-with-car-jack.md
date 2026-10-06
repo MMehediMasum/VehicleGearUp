@@ -1,10 +1,14 @@
 ---
-title: "How to Remove Concrete Fence Post With Car Jack: Easy DIY Guide"
-description: "Are you struggling with a stubborn concrete fence post that won’t budge? Removing it might seem like a tough and messy job, but what if you could make it easier"
+title: 'How to Remove Concrete Fence Post With Car Jack: Easy DIY Guide'
+description: Are you struggling with a stubborn concrete fence post that won’t budge?
+  Removing it might seem like a tough and messy job, but what if you could make it
+  easier
 pubDate: 2025-12-07
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-remove-concrete-fence-post-with-car-jack&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Jacks and Jack Stands
+heroImage: https://tse1.mm.bing.net/th?q=how-to-remove-concrete-fence-post-with-car-jack&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Are you struggling with a stubborn concrete fence post that won’t budge? Removing it might seem like a tough and messy job, but what if you could make it easier with something you already have—a car jack?**

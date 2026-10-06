@@ -1,10 +1,14 @@
 ---
-title: "Best GPS Tracker for Car Without Subscription: Top Hidden Magnetic Devices"
-description: "Finding a reliable GPS tracker for your car without paying monthly fees is possible. Many devices offer real-time tracking without subscriptions. Car GPS tracke"
+title: 'Best GPS Tracker for Car Without Subscription: Top Hidden Magnetic Devices'
+description: Finding a reliable GPS tracker for your car without paying monthly fees
+  is possible. Many devices offer real-time tracking without subscriptions. Car GPS
+  tracke
 pubDate: 2026-06-03
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-gps-tracker-for-car-without-subscription&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- GPS Trackers for Cars
+heroImage: https://tse1.mm.bing.net/th?q=best-gps-tracker-for-car-without-subscription&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **Finding a reliable GPS tracker for your car without paying monthly fees is possible. Many devices offer real-time tracking without subscriptions.**

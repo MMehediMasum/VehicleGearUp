@@ -1,10 +1,14 @@
 ---
-title: "What is the Cca on a Car Battery: Essential Power Explained"
-description: "Have you ever wondered what those letters \"CCA\" on your car battery really mean? If you’ve faced trouble starting your car on a cold morning, understanding CCA "
+title: 'What is the Cca on a Car Battery: Essential Power Explained'
+description: 'Have you ever wondered what those letters "CCA" on your car battery
+  really mean? If you’ve faced trouble starting your car on a cold morning, understanding
+  CCA '
 pubDate: 2026-03-27
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-cca-on-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Ratings Explained
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-cca-on-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered what those letters "CCA" on your car battery really mean? If you’ve faced trouble starting your car on a cold morning, understanding CCA could be the key to solving that problem.**

@@ -1,10 +1,14 @@
 ---
-title: "How Fast Can You Go in 4 High F150: Ultimate Speed Guide"
-description: "Have you ever wondered just how fast you can go in 4 High on your Ford F150? Whether you're cruising down the highway or tackling tough terrain, knowing the lim"
+title: 'How Fast Can You Go in 4 High F150: Ultimate Speed Guide'
+description: Have you ever wondered just how fast you can go in 4 High on your Ford
+  F150? Whether you're cruising down the highway or tackling tough terrain, knowing
+  the lim
 pubDate: 2026-02-17
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-fast-can-you-go-in-4-high-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Speed and Drive
+heroImage: https://tse1.mm.bing.net/th?q=how-fast-can-you-go-in-4-high-f150&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Have you ever wondered just how fast you can go in 4 High on your Ford F150? Whether you're cruising down the highway or tackling tough terrain, knowing the limits of your truck can change the way you drive.**

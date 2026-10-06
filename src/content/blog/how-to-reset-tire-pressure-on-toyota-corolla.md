@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Tire Pressure on Toyota Corolla: Easy Step-by-Step Guide"
-description: "If your Toyota Corolla’s tire pressure warning light just came on, you might be wondering what to do next. Knowing how to reset your tire pressure is key to kee"
+title: 'How to Reset Tire Pressure on Toyota Corolla: Easy Step-by-Step Guide'
+description: If your Toyota Corolla’s tire pressure warning light just came on, you
+  might be wondering what to do next. Knowing how to reset your tire pressure is key
+  to kee
 pubDate: 2026-02-26
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-tire-pressure-on-toyota-corolla&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Tire Pressure Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-tire-pressure-on-toyota-corolla&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **If your Toyota Corolla’s tire pressure warning light just came on, you might be wondering what to do next. Knowing how to reset your tire pressure is key to keeping your car safe and running smoothly.**

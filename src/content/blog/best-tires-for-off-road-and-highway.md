@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Off Road and Highway: Top Durable All-Terrain Picks"
-description: "Choosing the best tires for both off-road and highway driving ensures safety and performance. The right tires handle rough trails and smooth roads with ease. Ti"
+title: 'Best Tires for Off Road and Highway: Top Durable All-Terrain Picks'
+description: Choosing the best tires for both off-road and highway driving ensures
+  safety and performance. The right tires handle rough trails and smooth roads with
+  ease. Ti
 pubDate: 2025-12-31
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-off-road-and-highway&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jeep Off Road Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-off-road-and-highway&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for both off-road and highway driving ensures safety and performance. The right tires handle rough trails and smooth roads with ease.**

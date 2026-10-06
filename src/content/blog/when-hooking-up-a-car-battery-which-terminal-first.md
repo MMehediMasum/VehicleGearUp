@@ -1,10 +1,14 @@
 ---
-title: "When Hooking Up a Car Battery Which Terminal First: Essential Safety Tips"
-description: "When hooking up a car battery, you might wonder: which terminal should you connect first? This simple step can make a big difference in your safety and your car"
+title: 'When Hooking Up a Car Battery Which Terminal First: Essential Safety Tips'
+description: 'When hooking up a car battery, you might wonder: which terminal should
+  you connect first? This simple step can make a big difference in your safety and
+  your car'
 pubDate: 2026-03-28
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=when-hooking-up-a-car-battery-which-terminal-first&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Disconnect Order
+heroImage: https://tse1.mm.bing.net/th?q=when-hooking-up-a-car-battery-which-terminal-first&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **When hooking up a car battery, you might wonder: which terminal should you connect first? This simple step can make a big difference in your safety and your car’s performance.**

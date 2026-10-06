@@ -1,10 +1,14 @@
 ---
-title: "Best Motorcycle Tyres for Track Days: Top Picks for Ultimate Performance"
-description: "Choosing the best motorcycle tyres for track days ensures safety, grip, and top performance on the racetrack. The right tyre improves cornering, braking, and ov"
+title: 'Best Motorcycle Tyres for Track Days: Top Picks for Ultimate Performance'
+description: Choosing the best motorcycle tyres for track days ensures safety, grip,
+  and top performance on the racetrack. The right tyre improves cornering, braking,
+  and ov
 pubDate: 2025-10-27
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-motorcycle-tyres-for-track-days&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-motorcycle-tyres-for-track-days&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best motorcycle tyres for track days ensures safety, grip, and top performance on the racetrack. The right tyre improves cornering, braking, and overall control during high-speed riding.**

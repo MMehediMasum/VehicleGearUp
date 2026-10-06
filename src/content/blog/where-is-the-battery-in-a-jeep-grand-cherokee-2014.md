@@ -1,10 +1,14 @@
 ---
-title: "Where is the Battery in a Jeep Grand Cherokee 2014: Quick Guide"
-description: "Are you wondering where the battery is located in your 2014 Jeep Grand Cherokee? Finding the battery quickly can save you time and frustration, especially when "
+title: 'Where is the Battery in a Jeep Grand Cherokee 2014: Quick Guide'
+description: 'Are you wondering where the battery is located in your 2014 Jeep Grand
+  Cherokee? Finding the battery quickly can save you time and frustration, especially
+  when '
 pubDate: 2026-03-30
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-is-the-battery-in-a-jeep-grand-cherokee-2014&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Finding the Battery Location
+heroImage: https://tse1.mm.bing.net/th?q=where-is-the-battery-in-a-jeep-grand-cherokee-2014&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you wondering where the battery is located in your 2014 Jeep Grand Cherokee? Finding the battery quickly can save you time and frustration, especially when your vehicle won’t start or you need a jump.**

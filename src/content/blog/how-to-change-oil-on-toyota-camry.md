@@ -1,10 +1,14 @@
 ---
-title: "How to Change Oil on Toyota Camry: Easy Step-by-Step Guide"
-description: "Changing the oil on your Toyota Camry might seem tricky, but it’s easier than you think. Doing this yourself saves you money and helps your car run smoothly for"
+title: 'How to Change Oil on Toyota Camry: Easy Step-by-Step Guide'
+description: Changing the oil on your Toyota Camry might seem tricky, but it’s easier
+  than you think. Doing this yourself saves you money and helps your car run smoothly
+  for
 pubDate: 2026-04-22
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-oil-on-toyota-camry&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Checking Oil Levels
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-oil-on-toyota-camry&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Changing the oil on your Toyota Camry might seem tricky, but it’s easier than you think. Doing this yourself saves you money and helps your car run smoothly for years.**

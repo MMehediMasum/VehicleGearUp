@@ -1,10 +1,13 @@
 ---
-title: "How to Know When Car Battery is Dying: Key Signs to Watch For"
-description: "Have you ever turned the key in your car only to hear nothing but a click or a slow crank? That frustrating moment might mean your car battery is dying. Knowing"
+title: 'How to Know When Car Battery is Dying: Key Signs to Watch For'
+description: Have you ever turned the key in your car only to hear nothing but a click
+  or a slow crank? That frustrating moment might mean your car battery is dying. Knowing
 pubDate: 2026-04-19
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-know-when-car-battery-is-dying&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- When to Replace a Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-know-when-car-battery-is-dying&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever turned the key in your car only to hear nothing but a click or a slow crank? That frustrating moment might mean your car battery is dying.**

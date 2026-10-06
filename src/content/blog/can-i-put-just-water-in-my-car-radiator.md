@@ -1,10 +1,14 @@
 ---
-title: "Can I Put Just Water in My Car Radiator: Risks & Tips Explained"
-description: "Have you ever wondered if you can put just water in your car radiator? Maybe you’re stuck on the side of the road, or you’re trying to save money on car mainten"
+title: 'Can I Put Just Water in My Car Radiator: Risks & Tips Explained'
+description: Have you ever wondered if you can put just water in your car radiator?
+  Maybe you’re stuck on the side of the road, or you’re trying to save money on car
+  mainten
 pubDate: 2026-01-16
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-i-put-just-water-in-my-car-radiator&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Coolant and AC Recharge
+heroImage: https://tse1.mm.bing.net/th?q=can-i-put-just-water-in-my-car-radiator&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever wondered if you can put just water in your car radiator? Maybe you’re stuck on the side of the road, or you’re trying to save money on car maintenance.**

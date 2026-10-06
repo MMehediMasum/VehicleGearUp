@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Heater for a 2 Car Garage: Top Efficient and Quiet Picks"
 description: "Choosing the best heater for a 2 car garage ensures a warm, comfortable space during cold months. A reliable heater keeps the garage cozy without high energy co"
 pubDate: 2026-06-05

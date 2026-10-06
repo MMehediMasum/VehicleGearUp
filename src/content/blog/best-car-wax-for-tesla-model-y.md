@@ -1,10 +1,14 @@
 ---
-title: "Best Car Wax for Tesla Model Y: Ultimate Shine and Protection Guide"
-description: "Choosing the best car wax for your Tesla Model Y helps keep its paint shiny and protected. The right wax shields against dirt, UV rays, and weather damage. Tesl"
+title: 'Best Car Wax for Tesla Model Y: Ultimate Shine and Protection Guide'
+description: Choosing the best car wax for your Tesla Model Y helps keep its paint
+  shiny and protected. The right wax shields against dirt, UV rays, and weather damage.
+  Tesl
 pubDate: 2025-11-12
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-wax-for-tesla-model-y&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Tires and Accessories
+heroImage: https://tse1.mm.bing.net/th?q=best-car-wax-for-tesla-model-y&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best car wax for your Tesla Model Y helps keep its paint shiny and protected. The right wax shields against dirt, UV rays, and weather damage.**

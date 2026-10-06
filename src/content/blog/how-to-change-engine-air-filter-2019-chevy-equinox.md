@@ -1,10 +1,14 @@
 ---
-title: "How to Change Engine Air Filter 2019 Chevy Equinox: Easy Step-by-Step Guide"
-description: "If you drive a 2019 Chevy Equinox, keeping your engine air filter clean is one of the easiest ways to boost your car’s performance and fuel efficiency. But how "
+title: 'How to Change Engine Air Filter 2019 Chevy Equinox: Easy Step-by-Step Guide'
+description: 'If you drive a 2019 Chevy Equinox, keeping your engine air filter clean
+  is one of the easiest ways to boost your car’s performance and fuel efficiency.
+  But how '
 pubDate: 2025-09-15
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-engine-air-filter-2019-chevy-equinox&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Cabin Air Filters
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-engine-air-filter-2019-chevy-equinox&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you drive a 2019 Chevy Equinox, keeping your engine air filter clean is one of the easiest ways to boost your car’s performance and fuel efficiency. But how do you change it yourself without spending a lot on repairs?**

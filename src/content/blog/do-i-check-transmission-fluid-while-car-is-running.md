@@ -1,10 +1,13 @@
 ---
-title: "Do I Check Transmission Fluid While Car is Running: Essential Tips"
-description: "Have you ever wondered if you should check your car’s transmission fluid while the engine is running? It’s a simple task that can save you from costly repairs, "
+title: 'Do I Check Transmission Fluid While Car is Running: Essential Tips'
+description: 'Have you ever wondered if you should check your car’s transmission fluid
+  while the engine is running? It’s a simple task that can save you from costly repairs, '
 pubDate: 2026-05-17
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-i-check-transmission-fluid-while-car-is-running&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Transmission Fluid Checks
+heroImage: https://tse1.mm.bing.net/th?q=do-i-check-transmission-fluid-while-car-is-running&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever wondered if you should check your car’s transmission fluid while the engine is running? It’s a simple task that can save you from costly repairs, but doing it the wrong way might lead to confusing results or even damage.**

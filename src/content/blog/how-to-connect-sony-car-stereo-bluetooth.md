@@ -1,10 +1,14 @@
 ---
-title: "How to Connect Sony Car Stereo Bluetooth: Quick & Easy Guide"
-description: "Struggling to get your Sony car stereo Bluetooth connected? You’re not alone. Imagine driving with your favorite tunes or taking calls hands-free without fumbli"
+title: 'How to Connect Sony Car Stereo Bluetooth: Quick & Easy Guide'
+description: Struggling to get your Sony car stereo Bluetooth connected? You’re not
+  alone. Imagine driving with your favorite tunes or taking calls hands-free without
+  fumbli
 pubDate: 2026-05-19
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-connect-sony-car-stereo-bluetooth&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Bluetooth for Car Stereos
+heroImage: https://tse1.mm.bing.net/th?q=how-to-connect-sony-car-stereo-bluetooth&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Struggling to get your Sony car stereo Bluetooth connected? You’re not alone.**

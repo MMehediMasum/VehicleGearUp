@@ -1,10 +1,14 @@
 ---
-title: "How to Clear Low Tire Pressure Honda Civic: Quick & Easy Fixes"
-description: "Have you ever noticed that little warning light blinking on your Honda Civic’s dashboard? That’s your car telling you the tire pressure is too low. Ignoring it "
+title: 'How to Clear Low Tire Pressure Honda Civic: Quick & Easy Fixes'
+description: 'Have you ever noticed that little warning light blinking on your Honda
+  Civic’s dashboard? That’s your car telling you the tire pressure is too low. Ignoring
+  it '
 pubDate: 2026-02-01
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clear-low-tire-pressure-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Checking Tire Pressure
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clear-low-tire-pressure-honda-civic&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Have you ever noticed that little warning light blinking on your Honda Civic’s dashboard? That’s your car telling you the tire pressure is too low.**

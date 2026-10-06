@@ -1,10 +1,14 @@
 ---
-title: "Who Pays the Most for Old Car Batteries: Top Cash Offers Revealed"
-description: "Are you holding onto an old car battery and wondering if it’s worth anything? You might be surprised to learn just how much money you could get for it. Knowing "
+title: 'Who Pays the Most for Old Car Batteries: Top Cash Offers Revealed'
+description: 'Are you holding onto an old car battery and wondering if it’s worth
+  anything? You might be surprised to learn just how much money you could get for
+  it. Knowing '
 pubDate: 2026-01-17
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=who-pays-the-most-for-old-car-batteries&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Types and Value
+heroImage: https://tse1.mm.bing.net/th?q=who-pays-the-most-for-old-car-batteries&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you holding onto an old car battery and wondering if it’s worth anything? You might be surprised to learn just how much money you could get for it.**

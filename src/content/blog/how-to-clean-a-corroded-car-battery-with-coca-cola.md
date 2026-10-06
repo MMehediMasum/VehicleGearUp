@@ -1,10 +1,14 @@
 ---
-title: "How to Clean a Corroded Car Battery With Coca Cola: Easy & Effective Tips"
-description: "Is your car battery looking corroded and dirty? That white, crusty buildup can stop your battery from working properly, leaving you stranded when you least expe"
+title: 'How to Clean a Corroded Car Battery With Coca Cola: Easy & Effective Tips'
+description: Is your car battery looking corroded and dirty? That white, crusty buildup
+  can stop your battery from working properly, leaving you stranded when you least
+  expe
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-a-corroded-car-battery-with-coca-cola&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Polarity and Acid
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-a-corroded-car-battery-with-coca-cola&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your car battery looking corroded and dirty? That white, crusty buildup can stop your battery from working properly, leaving you stranded when you least expect it.**

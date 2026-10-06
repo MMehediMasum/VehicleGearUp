@@ -1,10 +1,14 @@
 ---
-title: "Best All Terrain Motorcycle Tires for Off Road Desert Riding: Top Picks"
-description: "Choosing the best all-terrain motorcycle tires is essential for safe and fun desert riding. The right tires improve grip, control, and durability on sandy trail"
+title: 'Best All Terrain Motorcycle Tires for Off Road Desert Riding: Top Picks'
+description: Choosing the best all-terrain motorcycle tires is essential for safe
+  and fun desert riding. The right tires improve grip, control, and durability on
+  sandy trail
 pubDate: 2025-11-01
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-all-terrain-motorcycle-tires-for-off-road-desert-riding&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-all-terrain-motorcycle-tires-for-off-road-desert-riding&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best all-terrain motorcycle tires is essential for safe and fun desert riding. The right tires improve grip, control, and durability on sandy trails.**

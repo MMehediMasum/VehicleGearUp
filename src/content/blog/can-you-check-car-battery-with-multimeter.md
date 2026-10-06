@@ -1,10 +1,14 @@
 ---
-title: "Can You Check Car Battery With Multimeter: Easy DIY Guide"
-description: "Have you ever faced the frustration of a car that won’t start, wondering if the battery is the culprit? You don’t need to guess or rush to a mechanic right away"
+title: 'Can You Check Car Battery With Multimeter: Easy DIY Guide'
+description: Have you ever faced the frustration of a car that won’t start, wondering
+  if the battery is the culprit? You don’t need to guess or rush to a mechanic right
+  away
 pubDate: 2025-11-19
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-check-car-battery-with-multimeter&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Testing Battery With Multimeter
+heroImage: https://tse1.mm.bing.net/th?q=can-you-check-car-battery-with-multimeter&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever faced the frustration of a car that won’t start, wondering if the battery is the culprit? You don’t need to guess or rush to a mechanic right away.**

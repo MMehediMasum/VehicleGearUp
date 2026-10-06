@@ -1,10 +1,14 @@
 ---
-title: "Why is My Nissan Altima Not Starting: Top Causes & Fixes"
-description: "Is your Nissan Altima refusing to start right when you need it most? You’re not alone, and it’s incredibly frustrating. When you turn the key or push the button"
+title: 'Why is My Nissan Altima Not Starting: Top Causes & Fixes'
+description: Is your Nissan Altima refusing to start right when you need it most?
+  You’re not alone, and it’s incredibly frustrating. When you turn the key or push
+  the button
 pubDate: 2026-03-06
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-is-my-nissan-altima-not-starting&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Not Starting Causes
+heroImage: https://tse1.mm.bing.net/th?q=why-is-my-nissan-altima-not-starting&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your Nissan Altima refusing to start right when you need it most? You’re not alone, and it’s incredibly frustrating.**

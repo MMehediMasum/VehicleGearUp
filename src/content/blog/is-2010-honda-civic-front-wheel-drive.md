@@ -1,10 +1,14 @@
 ---
-title: "Is 2010 Honda Civic Front Wheel Drive: Ultimate Handling Guide"
-description: "Are you curious about how the 2010 Honda Civic handles the road? Knowing whether your car is front-wheel drive can change the way you drive, maintain it, and ev"
+title: 'Is 2010 Honda Civic Front Wheel Drive: Ultimate Handling Guide'
+description: Are you curious about how the 2010 Honda Civic handles the road? Knowing
+  whether your car is front-wheel drive can change the way you drive, maintain it,
+  and ev
 pubDate: 2025-09-27
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-2010-honda-civic-front-wheel-drive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota 4WD Questions
+heroImage: https://tse1.mm.bing.net/th?q=is-2010-honda-civic-front-wheel-drive&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you curious about how the 2010 Honda Civic handles the road? Knowing whether your car is front-wheel drive can change the way you drive, maintain it, and even choose the right tires.**

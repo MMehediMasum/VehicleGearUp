@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Car Seat for Traveling on a Plane: Top Picks for Hassle-Free Travel"
 description: "Choosing the best car seat for traveling on a plane ensures your child's safety and comfort during flights. It also makes airport navigation easier for parents "
 pubDate: 2026-07-30

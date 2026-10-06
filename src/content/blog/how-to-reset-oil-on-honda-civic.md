@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil on Honda Civic: Quick & Easy Step-by-Step Guide"
-description: "If you own a Honda Civic, knowing how to reset the oil light is essential. Ignoring this step after an oil change can cause confusion and might even lead to cos"
+title: 'How to Reset Oil on Honda Civic: Quick & Easy Step-by-Step Guide'
+description: If you own a Honda Civic, knowing how to reset the oil light is essential.
+  Ignoring this step after an oil change can cause confusion and might even lead to
+  cos
 pubDate: 2025-11-17
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-on-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Oil Gauge Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-on-honda-civic&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a Honda Civic, knowing how to reset the oil light is essential. Ignoring this step after an oil change can cause confusion and might even lead to costly engine issues.**

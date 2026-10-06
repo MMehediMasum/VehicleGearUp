@@ -1,10 +1,14 @@
 ---
-title: "What Oil Does a Bmw X5 Take: Ultimate Guide for Peak Performance"
-description: "If you own a BMW X5, you know how important it is to keep your engine running smoothly. But do you know what oil your BMW X5 needs to perform at its best? Using"
+title: 'What Oil Does a Bmw X5 Take: Ultimate Guide for Peak Performance'
+description: If you own a BMW X5, you know how important it is to keep your engine
+  running smoothly. But do you know what oil your BMW X5 needs to perform at its best?
+  Using
 pubDate: 2026-04-26
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-oil-does-a-bmw-x5-take&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- What Oil to Use
+heroImage: https://tse1.mm.bing.net/th?q=what-oil-does-a-bmw-x5-take&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a BMW X5, you know how important it is to keep your engine running smoothly. But do you know what oil your BMW X5 needs to perform at its best?**

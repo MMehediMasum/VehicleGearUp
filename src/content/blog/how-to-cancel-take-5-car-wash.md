@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Cancel Take 5 Car Wash: Quick & Easy Steps Guide"
 description: "Are you stuck trying to figure out how to cancel your Take 5 Car Wash subscription? You’re not alone. Sometimes, plans change, and you need a quick, simple way "
 pubDate: 2026-03-20

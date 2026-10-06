@@ -1,10 +1,14 @@
 ---
-title: "How Hard is It to Wrap a Car Hood: Expert Tips Revealed"
-description: "Thinking about wrapping your car hood but not sure how tough it really is? You’re not alone. Many car owners wonder if this task is something they can handle th"
+title: 'How Hard is It to Wrap a Car Hood: Expert Tips Revealed'
+description: Thinking about wrapping your car hood but not sure how tough it really
+  is? You’re not alone. Many car owners wonder if this task is something they can
+  handle th
 pubDate: 2025-12-07
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-hard-is-it-to-wrap-a-car-hood&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hood Dents and Chips
+heroImage: https://tse1.mm.bing.net/th?q=how-hard-is-it-to-wrap-a-car-hood&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Thinking about wrapping your car hood but not sure how tough it really is? You’re not alone.**

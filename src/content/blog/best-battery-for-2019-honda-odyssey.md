@@ -1,10 +1,14 @@
 ---
-title: "Best Battery for Honda Odyssey: Top Reliable Choices for Ultimate Power"
-description: "Choosing the best battery for your 2019 Honda Odyssey ensures reliable starts and long-lasting power. A good battery keeps your vehicle running smoothly in all "
+title: 'Best Battery for Honda Odyssey: Top Reliable Choices for Ultimate Power'
+description: 'Choosing the best battery for your 2019 Honda Odyssey ensures reliable
+  starts and long-lasting power. A good battery keeps your vehicle running smoothly
+  in all '
 pubDate: 2026-07-10
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-battery-for-2019-honda-odyssey&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Best Truck and SUV Batteries
+heroImage: https://tse1.mm.bing.net/th?q=best-battery-for-2019-honda-odyssey&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Choosing the best battery for your 2019 Honda Odyssey ensures reliable starts and long-lasting power. A good battery keeps your vehicle running smoothly in all conditions.**

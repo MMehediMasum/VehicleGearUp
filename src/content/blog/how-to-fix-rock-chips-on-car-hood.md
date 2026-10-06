@@ -1,10 +1,14 @@
 ---
-title: "How to Fix Rock Chips on Car Hood: Easy DIY Repair Tips"
-description: "Have you noticed small rock chips ruining the look of your car hood? Those tiny dents and scratches might seem harmless at first, but left untreated, they can l"
+title: 'How to Fix Rock Chips on Car Hood: Easy DIY Repair Tips'
+description: Have you noticed small rock chips ruining the look of your car hood?
+  Those tiny dents and scratches might seem harmless at first, but left untreated,
+  they can l
 pubDate: 2026-05-03
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-rock-chips-on-car-hood&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hood Dents and Chips
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-rock-chips-on-car-hood&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you noticed small rock chips ruining the look of your car hood? Those tiny dents and scratches might seem harmless at first, but left untreated, they can lead to rust and bigger problems.**

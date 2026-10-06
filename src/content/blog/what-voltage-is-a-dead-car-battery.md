@@ -1,10 +1,14 @@
 ---
-title: "What Voltage is a Dead Car Battery: Key Signs & Solutions"
-description: "Have you ever tried to start your car, only to find it won’t budge? One common culprit is a dead car battery. But how can you tell if your battery is truly dead"
+title: 'What Voltage is a Dead Car Battery: Key Signs & Solutions'
+description: Have you ever tried to start your car, only to find it won’t budge? One
+  common culprit is a dead car battery. But how can you tell if your battery is truly
+  dead
 pubDate: 2026-04-07
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-voltage-is-a-dead-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Normal Battery Voltage
+heroImage: https://tse1.mm.bing.net/th?q=what-voltage-is-a-dead-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever tried to start your car, only to find it won’t budge? One common culprit is a dead car battery.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Service Stabilitrak Light Chevy Silverado 1500: Quick Fix Guide"
-description: "If you’re seeing the Service Stabilitrak light on your Chevy Silverado 1500, it can be confusing and a bit worrying. You might wonder what it means and how to f"
+title: 'How to Reset Service Stabilitrak Light Chevy Silverado 1500: Quick Fix Guide'
+description: If you’re seeing the Service Stabilitrak light on your Chevy Silverado
+  1500, it can be confusing and a bit worrying. You might wonder what it means and
+  how to f
 pubDate: 2025-09-23
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-service-stabilitrak-light-chevy-silverado-1500&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Dashboard Lights and Noises
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-service-stabilitrak-light-chevy-silverado-1500&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If you’re seeing the Service Stabilitrak light on your Chevy Silverado 1500, it can be confusing and a bit worrying. You might wonder what it means and how to fix it quickly.**

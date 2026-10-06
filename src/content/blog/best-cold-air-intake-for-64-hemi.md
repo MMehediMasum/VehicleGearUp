@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for 6.4 Hemi: Top Performance Upgrades Reviewed"
-description: "Choosing the best cold air intake for the 6.4 Hemi improves engine power and efficiency. A quality intake boosts airflow and enhances performance. The 6. 4 Hemi"
+title: 'Best Cold Air Intake for 6.4 Hemi: Top Performance Upgrades Reviewed'
+description: Choosing the best cold air intake for the 6.4 Hemi improves engine power
+  and efficiency. A quality intake boosts airflow and enhances performance. The 6.
+  4 Hemi
 pubDate: 2025-10-30
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-64-hemi&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hemi Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-64-hemi&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best cold air intake for the 6.4 Hemi improves engine power and efficiency. A quality intake boosts airflow and enhances performance.**

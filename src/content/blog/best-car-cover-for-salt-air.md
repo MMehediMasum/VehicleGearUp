@@ -1,10 +1,14 @@
 ---
-title: "Best Car Cover for Salt Air: Ultimate Protection Against Corrosion"
-description: "Salt air can quickly damage your car’s paint and metal parts. Choosing the best car cover protects your vehicle from rust, salt, and harsh weather. Salt air con"
+title: 'Best Car Cover for Salt Air: Ultimate Protection Against Corrosion'
+description: Salt air can quickly damage your car’s paint and metal parts. Choosing
+  the best car cover protects your vehicle from rust, salt, and harsh weather. Salt
+  air con
 pubDate: 2026-07-16
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-cover-for-salt-air&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Covers
+heroImage: https://tse1.mm.bing.net/th?q=best-car-cover-for-salt-air&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Salt air can quickly damage your car’s paint and metal parts. Choosing the best car cover protects your vehicle from rust, salt, and harsh weather.**

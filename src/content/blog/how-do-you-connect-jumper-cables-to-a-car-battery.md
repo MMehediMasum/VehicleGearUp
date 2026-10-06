@@ -1,10 +1,14 @@
 ---
-title: "How Do You Connect Jumper Cables to a Car Battery: Step-by-Step Guide"
-description: "Have you ever faced the frustration of a dead car battery at the worst possible moment? Knowing how to connect jumper cables to your car battery can save you fr"
+title: 'How Do You Connect Jumper Cables to a Car Battery: Step-by-Step Guide'
+description: Have you ever faced the frustration of a dead car battery at the worst
+  possible moment? Knowing how to connect jumper cables to your car battery can save
+  you fr
 pubDate: 2026-04-20
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-connect-jumper-cables-to-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Terminal Care
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-connect-jumper-cables-to-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever faced the frustration of a dead car battery at the worst possible moment? Knowing how to connect jumper cables to your car battery can save you from hours of waiting and costly towing.**

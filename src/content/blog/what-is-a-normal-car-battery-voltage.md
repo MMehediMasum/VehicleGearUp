@@ -1,10 +1,14 @@
 ---
-title: "What is a Normal Car Battery Voltage: Essential Facts Revealed"
-description: "Have you ever wondered if your car battery is working just right? Knowing the normal car battery voltage can save you from unexpected breakdowns and costly repa"
+title: 'What is a Normal Car Battery Voltage: Essential Facts Revealed'
+description: Have you ever wondered if your car battery is working just right? Knowing
+  the normal car battery voltage can save you from unexpected breakdowns and costly
+  repa
 pubDate: 2026-03-28
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-a-normal-car-battery-voltage&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Normal Battery Voltage
+heroImage: https://tse1.mm.bing.net/th?q=what-is-a-normal-car-battery-voltage&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if your car battery is working just right? Knowing the normal car battery voltage can save you from unexpected breakdowns and costly repairs.**

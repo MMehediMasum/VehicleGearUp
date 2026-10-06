@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Maintenance Light on Honda Odyssey: Quick & Easy Steps"
-description: "Is your Honda Odyssey’s maintenance light on and you’re not sure how to turn it off? You’re not alone. That little warning can be confusing and even a bit stres"
+title: 'How to Reset Maintenance Light on Honda Odyssey: Quick & Easy Steps'
+description: Is your Honda Odyssey’s maintenance light on and you’re not sure how
+  to turn it off? You’re not alone. That little warning can be confusing and even
+  a bit stres
 pubDate: 2026-05-22
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-maintenance-light-on-honda-odyssey&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Maintenance Light Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-maintenance-light-on-honda-odyssey&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your Honda Odyssey’s maintenance light on and you’re not sure how to turn it off? You’re not alone.**

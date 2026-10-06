@@ -1,10 +1,14 @@
 ---
-title: "What Colors Do the Tesla Cybertruck Come In: Ultimate Guide 2025"
-description: "Are you curious about the colors the Tesla Cybertruck comes in? Choosing the right color can make your Cybertruck truly stand out and reflect your style. Whethe"
+title: 'What Colors Do the Tesla Cybertruck Come In: Ultimate Guide 2025'
+description: Are you curious about the colors the Tesla Cybertruck comes in? Choosing
+  the right color can make your Cybertruck truly stand out and reflect your style.
+  Whethe
 pubDate: 2026-02-22
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-colors-do-the-tesla-cybertruck-come-in&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Summon and Dog Mode
+heroImage: https://tse1.mm.bing.net/th?q=what-colors-do-the-tesla-cybertruck-come-in&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you curious about the colors the Tesla Cybertruck comes in? Choosing the right color can make your Cybertruck truly stand out and reflect your style.**

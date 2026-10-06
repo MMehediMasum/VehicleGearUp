@@ -1,10 +1,14 @@
 ---
-title: "What to Set Multimeter to Check Car Battery: Easy Step-by-Step Guide"
-description: "Are you worried your car battery might be on the verge of dying? Knowing how to check your battery with a multimeter can save you time, money, and unexpected br"
+title: 'What to Set Multimeter to Check Car Battery: Easy Step-by-Step Guide'
+description: Are you worried your car battery might be on the verge of dying? Knowing
+  how to check your battery with a multimeter can save you time, money, and unexpected
+  br
 pubDate: 2026-03-26
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-set-multimeter-to-check-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Ratings Explained
+heroImage: https://tse1.mm.bing.net/th?q=what-to-set-multimeter-to-check-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you worried your car battery might be on the verge of dying? Knowing how to check your battery with a multimeter can save you time, money, and unexpected breakdowns.**

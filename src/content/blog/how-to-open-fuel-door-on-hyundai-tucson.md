@@ -1,10 +1,14 @@
 ---
-title: "How to Open Fuel Door on Hyundai Tucson: Quick & Easy Guide"
-description: "Struggling to figure out how to open the fuel door on your Hyundai Tucson? You’re not alone. Many drivers find this simple task confusing at first. But don’t wo"
+title: 'How to Open Fuel Door on Hyundai Tucson: Quick & Easy Guide'
+description: Struggling to figure out how to open the fuel door on your Hyundai Tucson?
+  You’re not alone. Many drivers find this simple task confusing at first. But don’t
+  wo
 pubDate: 2025-09-25
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-open-fuel-door-on-hyundai-tucson&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Opening Ford Gas Tanks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-open-fuel-door-on-hyundai-tucson&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Struggling to figure out how to open the fuel door on your Hyundai Tucson? You’re not alone.**

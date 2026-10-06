@@ -1,10 +1,14 @@
 ---
-title: "Do It Yourself Car Wash Close to Me: Quick, Affordable & Easy Tips"
-description: "Looking for a quick and affordable way to keep your car sparkling clean? A do it yourself car wash close to you might be exactly what you need. Imagine saving m"
+title: 'Do It Yourself Car Wash Close to Me: Quick, Affordable & Easy Tips'
+description: Looking for a quick and affordable way to keep your car sparkling clean?
+  A do it yourself car wash close to you might be exactly what you need. Imagine saving
+  m
 pubDate: 2025-11-03
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-it-yourself-car-wash-close-to-me&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wash Costs and Etiquette
+heroImage: https://tse1.mm.bing.net/th?q=do-it-yourself-car-wash-close-to-me&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Looking for a quick and affordable way to keep your car sparkling clean? A do it yourself car wash close to you might be exactly what you need.**

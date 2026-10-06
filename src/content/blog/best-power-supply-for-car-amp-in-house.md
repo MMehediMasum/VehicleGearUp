@@ -1,10 +1,14 @@
 ---
-title: "Best Power Supply for Car Amp in House: Top Reliable Picks"
-description: "Choosing the best power supply for a car amp used at home ensures stable and safe performance. It provides the right voltage and current to run your amplifier s"
+title: 'Best Power Supply for Car Amp in House: Top Reliable Picks'
+description: Choosing the best power supply for a car amp used at home ensures stable
+  and safe performance. It provides the right voltage and current to run your amplifier
+  s
 pubDate: 2026-06-08
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-power-supply-for-car-amp-in-house&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Power Supplies and Inverters
+heroImage: https://tse1.mm.bing.net/th?q=best-power-supply-for-car-amp-in-house&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Choosing the best power supply for a car amp used at home ensures stable and safe performance. It provides the right voltage and current to run your amplifier smoothly.**

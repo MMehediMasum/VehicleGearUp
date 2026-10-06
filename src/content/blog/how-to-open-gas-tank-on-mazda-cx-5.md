@@ -1,10 +1,14 @@
 ---
-title: "How to Open Gas Tank on Mazda CX-5: Quick & Easy Guide"
-description: "If you own a Mazda CX-5, knowing how to open the gas tank quickly and easily is something you’ll want to master. Imagine being in a hurry at the gas station, on"
+title: 'How to Open Gas Tank on Mazda CX-5: Quick & Easy Guide'
+description: If you own a Mazda CX-5, knowing how to open the gas tank quickly and
+  easily is something you’ll want to master. Imagine being in a hurry at the gas station,
+  on
 pubDate: 2026-02-08
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-open-gas-tank-on-mazda-cx-5&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Opening European Gas Tanks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-open-gas-tank-on-mazda-cx-5&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If you own a Mazda CX-5, knowing how to open the gas tank quickly and easily is something you’ll want to master. Imagine being in a hurry at the gas station, only to fumble with the fuel door or waste time figuring it out.**

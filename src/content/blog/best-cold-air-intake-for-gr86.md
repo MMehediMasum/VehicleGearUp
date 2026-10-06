@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for Gr86 to Boost Performance and Acceleration"
-description: "Choosing the best cold air intake for your GR86 can boost engine power and improve throttle response. A good intake system helps your car breathe better and run"
+title: Best Cold Air Intake for Gr86 to Boost Performance and Acceleration
+description: Choosing the best cold air intake for your GR86 can boost engine power
+  and improve throttle response. A good intake system helps your car breathe better
+  and run
 pubDate: 2026-06-20
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-gr86&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Engine Specific Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-gr86&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best cold air intake for your GR86 can boost engine power and improve throttle response. A good intake system helps your car breathe better and run smoother.**

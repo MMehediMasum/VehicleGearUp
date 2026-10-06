@@ -1,10 +1,14 @@
 ---
-title: "Best Black Plastic Restorer for Car Exterior: Top Picks for Lasting Shine"
-description: "Maintaining your car’s black plastic trim keeps it looking fresh and new. The best black plastic restorer can bring back that deep, rich color quickly and easil"
+title: 'Best Black Plastic Restorer for Car Exterior: Top Picks for Lasting Shine'
+description: Maintaining your car’s black plastic trim keeps it looking fresh and
+  new. The best black plastic restorer can bring back that deep, rich color quickly
+  and easil
 pubDate: 2026-06-29
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-black-plastic-restorer-for-car-exterior&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Paint Contaminant Removers
+heroImage: https://tse1.mm.bing.net/th?q=best-black-plastic-restorer-for-car-exterior&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Maintaining your car’s black plastic trim keeps it looking fresh and new. The best black plastic restorer can bring back that deep, rich color quickly and easily.**

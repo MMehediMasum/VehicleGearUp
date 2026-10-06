@@ -1,10 +1,14 @@
 ---
-title: "Can You Take a Convertible Through a Car Wash? Expert Tips Revealed"
-description: "Have you ever wondered if you can safely take your convertible through a car wash? You love the sleek look and open-air feel of your convertible, but when it co"
+title: Can You Take a Convertible Through a Car Wash? Expert Tips Revealed
+description: Have you ever wondered if you can safely take your convertible through
+  a car wash? You love the sleek look and open-air feel of your convertible, but when
+  it co
 pubDate: 2026-03-20
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-take-a-convertible-through-a-car-wash&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Pets and Babies in Cars
+heroImage: https://tse1.mm.bing.net/th?q=can-you-take-a-convertible-through-a-car-wash&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever wondered if you can safely take your convertible through a car wash? You love the sleek look and open-air feel of your convertible, but when it comes to cleaning, you might hesitate.**

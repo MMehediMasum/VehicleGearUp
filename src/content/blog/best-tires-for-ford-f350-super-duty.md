@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Ford F350 Super Duty: Top Durable All-Season Picks"
-description: "Choosing the best tires for a Ford F350 Super Duty ensures safety and performance on any road. Strong, durable tires improve handling and load capacity for toug"
+title: 'Best Tires for Ford F350 Super Duty: Top Durable All-Season Picks'
+description: Choosing the best tires for a Ford F350 Super Duty ensures safety and
+  performance on any road. Strong, durable tires improve handling and load capacity
+  for toug
 pubDate: 2025-11-04
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-ford-f350-super-duty&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Car and Truck Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-ford-f350-super-duty&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for a Ford F350 Super Duty ensures safety and performance on any road. Strong, durable tires improve handling and load capacity for tough jobs.**

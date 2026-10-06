@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for Ram 3500 Diesel to Boost Power & Efficiency"
-description: "Finding the best cold air intake for your Ram 3500 Diesel can improve engine power and fuel efficiency. This guide reviews top options for Dodge Ram 2500/3500 m"
+title: Best Cold Air Intake for Ram 3500 Diesel to Boost Power & Efficiency
+description: Finding the best cold air intake for your Ram 3500 Diesel can improve
+  engine power and fuel efficiency. This guide reviews top options for Dodge Ram 2500/3500
+  m
 pubDate: 2026-06-10
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-ram-3500-diesel&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hemi Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-ram-3500-diesel&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Finding the best cold air intake for your Ram 3500 Diesel can improve engine power and fuel efficiency. This guide reviews top options for Dodge Ram 2500/3500 models with 5.9L and 6.7L Cummins engines.**

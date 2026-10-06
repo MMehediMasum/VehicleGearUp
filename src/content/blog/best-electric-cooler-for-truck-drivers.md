@@ -1,10 +1,14 @@
 ---
-title: "Best Electric Cooler for Truck Drivers: Top Portable Fridges Reviewed"
-description: "Truck drivers need reliable coolers to keep food and drinks fresh on the road. Electric coolers offer convenience and efficient cooling during long trips. Choos"
+title: 'Best Electric Cooler for Truck Drivers: Top Portable Fridges Reviewed'
+description: Truck drivers need reliable coolers to keep food and drinks fresh on
+  the road. Electric coolers offer convenience and efficient cooling during long trips.
+  Choos
 pubDate: 2026-06-16
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-electric-cooler-for-truck-drivers&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Handy Car Gadgets
+heroImage: https://tse1.mm.bing.net/th?q=best-electric-cooler-for-truck-drivers&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Truck drivers need reliable coolers to keep food and drinks fresh on the road. Electric coolers offer convenience and efficient cooling during long trips.**

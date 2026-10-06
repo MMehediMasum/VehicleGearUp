@@ -1,10 +1,14 @@
 ---
-title: "Best Dog Seat Cover for Tesla Model Y: Ultimate Waterproof Protection"
-description: "Protect your Tesla Model Y’s seats with the best dog seat covers designed for comfort and durability. These covers keep your car clean and safe from pet hair, d"
+title: 'Best Dog Seat Cover for Tesla Model Y: Ultimate Waterproof Protection'
+description: Protect your Tesla Model Y’s seats with the best dog seat covers designed
+  for comfort and durability. These covers keep your car clean and safe from pet hair,
+  d
 pubDate: 2025-10-31
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-dog-seat-cover-for-tesla-model-y&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Model Y Features
+heroImage: https://tse1.mm.bing.net/th?q=best-dog-seat-cover-for-tesla-model-y&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Protect your Tesla Model Y’s seats with the best dog seat covers designed for comfort and durability. These covers keep your car clean and safe from pet hair, dirt, and scratches.**

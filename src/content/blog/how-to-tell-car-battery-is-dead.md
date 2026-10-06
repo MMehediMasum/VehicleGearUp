@@ -1,10 +1,14 @@
 ---
-title: "How to Tell Car Battery is Dead: Quick Signs You Should Know"
-description: "Have you ever turned the key in your car only to hear a weak click or nothing at all? That frustrating moment usually means your car battery might be dead. But "
+title: 'How to Tell Car Battery is Dead: Quick Signs You Should Know'
+description: 'Have you ever turned the key in your car only to hear a weak click or
+  nothing at all? That frustrating moment usually means your car battery might be
+  dead. But '
 pubDate: 2026-03-24
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-tell-car-battery-is-dead&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Reviving a Dead Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-tell-car-battery-is-dead&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever turned the key in your car only to hear a weak click or nothing at all? That frustrating moment usually means your car battery might be dead.**

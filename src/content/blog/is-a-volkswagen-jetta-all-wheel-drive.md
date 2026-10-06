@@ -1,10 +1,14 @@
 ---
-title: "Is a Volkswagen Jetta All Wheel Drive? Ultimate Guide 2025"
-description: "Are you wondering if the Volkswagen Jetta comes with all-wheel drive? You’re not alone. Many drivers want a car that offers better traction and control, especia"
+title: Is a Volkswagen Jetta All Wheel Drive? Ultimate Guide 2025
+description: Are you wondering if the Volkswagen Jetta comes with all-wheel drive?
+  You’re not alone. Many drivers want a car that offers better traction and control,
+  especia
 pubDate: 2025-09-01
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-a-volkswagen-jetta-all-wheel-drive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- All Wheel Drive Questions
+heroImage: https://tse1.mm.bing.net/th?q=is-a-volkswagen-jetta-all-wheel-drive&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you wondering if the Volkswagen Jetta comes with all-wheel drive? You’re not alone.**

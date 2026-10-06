@@ -1,10 +1,14 @@
 ---
-title: "Why Does My Car Heater Not Work: Quick Fixes You Must Try"
-description: "Is your car heater failing to warm up on those chilly mornings? You’re not alone, and it can be really frustrating when you step into a cold car expecting comfo"
+title: 'Why Does My Car Heater Not Work: Quick Fixes You Must Try'
+description: Is your car heater failing to warm up on those chilly mornings? You’re
+  not alone, and it can be really frustrating when you step into a cold car expecting
+  comfo
 pubDate: 2026-01-17
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-does-my-car-heater-not-work&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Heater Not Working
+heroImage: https://tse1.mm.bing.net/th?q=why-does-my-car-heater-not-work&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your car heater failing to warm up on those chilly mornings? You’re not alone, and it can be really frustrating when you step into a cold car expecting comfort, only to be met with a blast of cold air.**

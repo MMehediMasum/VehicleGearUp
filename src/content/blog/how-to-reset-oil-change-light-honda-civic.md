@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Change Light Honda Civic: Quick & Easy Guide"
-description: "If you own a Honda Civic, you know how important it is to keep your car running smoothly. One key part of that is changing the oil regularly. But what do you do"
+title: 'How to Reset Oil Change Light Honda Civic: Quick & Easy Guide'
+description: If you own a Honda Civic, you know how important it is to keep your car
+  running smoothly. One key part of that is changing the oil regularly. But what do
+  you do
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-change-light-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Oil Change Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-change-light-honda-civic&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a Honda Civic, you know how important it is to keep your car running smoothly. One key part of that is changing the oil regularly.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for a Toyota Tundra: Top All-Terrain and All-Season Picks"
-description: "Choosing the best tires for your Toyota Tundra ensures safety and performance on all roads. The right tires improve handling, comfort, and durability. Toyota Tu"
+title: 'Best Tires for a Toyota Tundra: Top All-Terrain and All-Season Picks'
+description: Choosing the best tires for your Toyota Tundra ensures safety and performance
+  on all roads. The right tires improve handling, comfort, and durability. Toyota
+  Tu
 pubDate: 2025-12-29
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-a-toyota-tundra&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-a-toyota-tundra&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your Toyota Tundra ensures safety and performance on all roads. The right tires improve handling, comfort, and durability.**

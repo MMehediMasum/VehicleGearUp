@@ -1,10 +1,14 @@
 ---
-title: "How to Spray Windshield Wiper Fluid Tesla Model Y: Quick & Easy Guide"
-description: "Keeping your Tesla Model Y’s windshield clean is key to safe driving. But do you know how to spray windshield wiper fluid the right way? If you’ve ever struggle"
+title: 'How to Spray Windshield Wiper Fluid Tesla Model Y: Quick & Easy Guide'
+description: Keeping your Tesla Model Y’s windshield clean is key to safe driving.
+  But do you know how to spray windshield wiper fluid the right way? If you’ve ever
+  struggle
 pubDate: 2026-04-24
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-spray-windshield-wiper-fluid-tesla-model-y&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Model Y Features
+heroImage: https://tse1.mm.bing.net/th?q=how-to-spray-windshield-wiper-fluid-tesla-model-y&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Keeping your Tesla Model Y’s windshield clean is key to safe driving. But do you know how to spray windshield wiper fluid the right way?**

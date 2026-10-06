@@ -1,10 +1,14 @@
 ---
-title: "How to Shift on a Harley Davidson: Master Smooth Riding Today"
-description: "Are you ready to take control of your Harley Davidson and experience the thrill of smooth, confident gear shifts? Knowing how to shift properly isn’t just about"
+title: 'How to Shift on a Harley Davidson: Master Smooth Riding Today'
+description: Are you ready to take control of your Harley Davidson and experience
+  the thrill of smooth, confident gear shifts? Knowing how to shift properly isn’t
+  just about
 pubDate: 2026-02-18
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-shift-on-a-harley-davidson&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Ownership Questions
+heroImage: https://tse1.mm.bing.net/th?q=how-to-shift-on-a-harley-davidson&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you ready to take control of your Harley Davidson and experience the thrill of smooth, confident gear shifts? Knowing how to shift properly isn’t just about riding—it’s about feeling connected to your bike and the road beneath you.**

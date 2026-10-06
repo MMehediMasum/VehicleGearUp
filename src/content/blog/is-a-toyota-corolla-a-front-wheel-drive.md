@@ -1,10 +1,13 @@
 ---
-title: "Is a Toyota Corolla a Front Wheel Drive: Key Facts Revealed"
-description: "Are you curious about how your Toyota Corolla handles the road? Understanding whether your car is front wheel drive can change the way you drive, maintain, and "
+title: 'Is a Toyota Corolla a Front Wheel Drive: Key Facts Revealed'
+description: 'Are you curious about how your Toyota Corolla handles the road? Understanding
+  whether your car is front wheel drive can change the way you drive, maintain, and '
 pubDate: 2025-11-09
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-a-toyota-corolla-a-front-wheel-drive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota 4WD Questions
+heroImage: https://tse1.mm.bing.net/th?q=is-a-toyota-corolla-a-front-wheel-drive&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you curious about how your Toyota Corolla handles the road? Understanding whether your car is front wheel drive can change the way you drive, maintain, and even enjoy your vehicle.**

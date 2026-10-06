@@ -1,10 +1,13 @@
 ---
-title: "Best Scan Tool for 6.7 Cummins: Top Heavy Duty Diagnostic Solutions"
-description: "Finding the best scan tool for a 6.7 Cummins engine helps keep your truck running smoothly. A reliable scanner reads and clears engine codes quickly and easily."
+title: 'Best Scan Tool for 6.7 Cummins: Top Heavy Duty Diagnostic Solutions'
+description: Finding the best scan tool for a 6.7 Cummins engine helps keep your truck
+  running smoothly. A reliable scanner reads and clears engine codes quickly and easily.
 pubDate: 2026-06-14
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-scan-tool-for-67-cummins&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Scan Tools and Code Readers
+heroImage: https://tse1.mm.bing.net/th?q=best-scan-tool-for-67-cummins&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Finding the best scan tool for a 6.7 Cummins engine helps keep your truck running smoothly. A reliable scanner reads and clears engine codes quickly and easily.**

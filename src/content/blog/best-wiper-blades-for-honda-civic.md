@@ -1,10 +1,14 @@
 ---
-title: "Best Wiper Blades for Honda Civic: Top Durable and Quiet Picks"
-description: "Choosing the best wiper blades for your Honda Civic ensures clear vision in all weather. Quality blades improve safety and driving comfort during rain or snow. "
+title: 'Best Wiper Blades for Honda Civic: Top Durable and Quiet Picks'
+description: 'Choosing the best wiper blades for your Honda Civic ensures clear vision
+  in all weather. Quality blades improve safety and driving comfort during rain or
+  snow. '
 pubDate: 2026-06-02
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-wiper-blades-for-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Best Wiper Blades
+heroImage: https://tse1.mm.bing.net/th?q=best-wiper-blades-for-honda-civic&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Choosing the best wiper blades for your Honda Civic ensures clear vision in all weather. Quality blades improve safety and driving comfort during rain or snow.**

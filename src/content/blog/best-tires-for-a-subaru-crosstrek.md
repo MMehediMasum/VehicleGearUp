@@ -1,10 +1,13 @@
 ---
-title: "Best Tires for a Subaru Crosstrek: Top All-Season and All-Terrain Picks"
-description: "Choosing the best tires for your Subaru Crosstrek improves safety, comfort, and performance. Tires must fit well and match your driving needs. The Subaru Crosst"
+title: 'Best Tires for a Subaru Crosstrek: Top All-Season and All-Terrain Picks'
+description: Choosing the best tires for your Subaru Crosstrek improves safety, comfort,
+  and performance. Tires must fit well and match your driving needs. The Subaru Crosst
 pubDate: 2025-12-24
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-a-subaru-crosstrek&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Subaru and Mazda Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-a-subaru-crosstrek&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your Subaru Crosstrek improves safety, comfort, and performance. Tires must fit well and match your driving needs.**

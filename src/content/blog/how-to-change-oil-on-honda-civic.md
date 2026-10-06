@@ -1,10 +1,14 @@
 ---
-title: "How to Change Oil on Honda Civic: Easy Step-by-Step Guide"
-description: "Changing the oil on your Honda Civic might seem tricky, but it’s easier than you think. When you know the right steps, you can save time and money by doing it y"
+title: 'How to Change Oil on Honda Civic: Easy Step-by-Step Guide'
+description: Changing the oil on your Honda Civic might seem tricky, but it’s easier
+  than you think. When you know the right steps, you can save time and money by doing
+  it y
 pubDate: 2026-04-23
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-oil-on-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Checking Oil Levels
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-oil-on-honda-civic&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Changing the oil on your Honda Civic might seem tricky, but it’s easier than you think. When you know the right steps, you can save time and money by doing it yourself.**

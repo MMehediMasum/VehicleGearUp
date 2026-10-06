@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Chevy Equinox: Top All-Season and Performance Picks"
-description: "Choosing the best tires for a 2018 Chevy Equinox improves safety and ride comfort. The right tires also boost fuel efficiency and handling on different roads. T"
+title: 'Best Tires for Chevy Equinox: Top All-Season and Performance Picks'
+description: Choosing the best tires for a 2018 Chevy Equinox improves safety and
+  ride comfort. The right tires also boost fuel efficiency and handling on different
+  roads. T
 pubDate: 2025-12-24
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-2018-chevy-equinox&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Chevy and GMC Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-2018-chevy-equinox&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for a 2018 Chevy Equinox improves safety and ride comfort. The right tires also boost fuel efficiency and handling on different roads.**

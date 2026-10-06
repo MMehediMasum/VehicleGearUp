@@ -1,10 +1,13 @@
 ---
-title: "Why My Nissan Altima Won T Start But Has Power: Top Fixes Explained"
-description: "You’re ready to go, you turn the key, but your Nissan Altima won’t start—even though the power is on. Frustrating, right? It’s confusing when your dashboard lig"
+title: 'Why My Nissan Altima Won T Start But Has Power: Top Fixes Explained'
+description: You’re ready to go, you turn the key, but your Nissan Altima won’t start—even
+  though the power is on. Frustrating, right? It’s confusing when your dashboard lig
 pubDate: 2026-02-15
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-my-nissan-altima-won-t-start-but-has-power&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Not Starting Causes
+heroImage: https://tse1.mm.bing.net/th?q=why-my-nissan-altima-won-t-start-but-has-power&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **You’re ready to go, you turn the key, but your Nissan Altima won’t start—even though the power is on. Frustrating, right?**

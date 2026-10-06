@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Change Light on Ford Focus: Quick & Easy Guide"
-description: "Your Ford Focus just had an oil change, but that stubborn oil change light is still on. It’s frustrating, right? You want to make sure your car is running smoot"
+title: 'How to Reset Oil Change Light on Ford Focus: Quick & Easy Guide'
+description: Your Ford Focus just had an oil change, but that stubborn oil change
+  light is still on. It’s frustrating, right? You want to make sure your car is running
+  smoot
 pubDate: 2026-05-07
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-change-light-on-ford-focus&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Oil Change Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-change-light-on-ford-focus&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Your Ford Focus just had an oil change, but that stubborn oil change light is still on. It’s frustrating, right?**

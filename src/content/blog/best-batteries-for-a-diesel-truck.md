@@ -1,10 +1,14 @@
 ---
-title: "Best Batteries for a Diesel Truck: Top Reliable AGM and Maintenance-Free Picks"
-description: "Choosing the best batteries for a diesel truck ensures strong starts and reliable power. Diesel engines need batteries with high cold cranking amps and durabili"
+title: 'Best Batteries for a Diesel Truck: Top Reliable AGM and Maintenance-Free Picks'
+description: Choosing the best batteries for a diesel truck ensures strong starts
+  and reliable power. Diesel engines need batteries with high cold cranking amps and
+  durabili
 pubDate: 2026-06-18
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-batteries-for-a-diesel-truck&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Retailers and Returns
+heroImage: https://tse1.mm.bing.net/th?q=best-batteries-for-a-diesel-truck&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Choosing the best batteries for a diesel truck ensures strong starts and reliable power. Diesel engines need batteries with high cold cranking amps and durability.**

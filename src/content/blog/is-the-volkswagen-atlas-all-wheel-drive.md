@@ -1,10 +1,13 @@
 ---
-title: "Is the Volkswagen Atlas All Wheel Drive: Ultimate Traction Tested"
-description: "Are you thinking about getting a Volkswagen Atlas but wondering if it comes with all-wheel drive? You want a vehicle that can handle different road conditions, "
+title: 'Is the Volkswagen Atlas All Wheel Drive: Ultimate Traction Tested'
+description: 'Are you thinking about getting a Volkswagen Atlas but wondering if it
+  comes with all-wheel drive? You want a vehicle that can handle different road conditions, '
 pubDate: 2025-11-11
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-the-volkswagen-atlas-all-wheel-drive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- All Wheel Drive Questions
+heroImage: https://tse1.mm.bing.net/th?q=is-the-volkswagen-atlas-all-wheel-drive&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you thinking about getting a Volkswagen Atlas but wondering if it comes with all-wheel drive? You want a vehicle that can handle different road conditions, keep you safe, and give you confidence behind the wheel.**

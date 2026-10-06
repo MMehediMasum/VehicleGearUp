@@ -1,10 +1,14 @@
 ---
-title: "Best Light Truck Tires for Towing a Travel Trailer: Top Durable Picks"
-description: "Choosing the right light truck tires is crucial for safe towing of a travel trailer. Tires must handle heavy loads and provide strong traction on the road. Towi"
+title: 'Best Light Truck Tires for Towing a Travel Trailer: Top Durable Picks'
+description: Choosing the right light truck tires is crucial for safe towing of a
+  travel trailer. Tires must handle heavy loads and provide strong traction on the
+  road. Towi
 pubDate: 2025-10-18
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-light-truck-tires-for-towing-a-travel-trailer&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Trailer Gear and Accessories
+heroImage: https://tse1.mm.bing.net/th?q=best-light-truck-tires-for-towing-a-travel-trailer&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Choosing the right light truck tires is crucial for safe towing of a travel trailer. Tires must handle heavy loads and provide strong traction on the road.**

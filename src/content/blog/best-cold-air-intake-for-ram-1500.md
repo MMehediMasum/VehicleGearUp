@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for Ram 1500 to Boost Performance and Power"
-description: "Finding the best cold air intake for your Ram 1500 can improve engine power and fuel efficiency. A quality intake delivers cooler, denser air for better perform"
+title: Best Cold Air Intake for Ram 1500 to Boost Performance and Power
+description: Finding the best cold air intake for your Ram 1500 can improve engine
+  power and fuel efficiency. A quality intake delivers cooler, denser air for better
+  perform
 pubDate: 2025-10-05
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-ram-1500&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hemi Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-ram-1500&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Finding the best cold air intake for your Ram 1500 can improve engine power and fuel efficiency. A quality intake delivers cooler, denser air for better performance.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Cb Radio for Pickup Truck: Top Compact and Powerful Models Reviewed"
-description: "Choosing the best CB radio for your pickup truck improves communication on the road. Reliable radios keep you connected during trips and emergencies. Pickup tru"
+title: 'Best Cb Radio for Pickup Truck: Top Compact and Powerful Models Reviewed'
+description: Choosing the best CB radio for your pickup truck improves communication
+  on the road. Reliable radios keep you connected during trips and emergencies. Pickup
+  tru
 pubDate: 2026-06-12
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cb-radio-for-pickup-truck&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Entertainment Systems
+heroImage: https://tse1.mm.bing.net/th?q=best-cb-radio-for-pickup-truck&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Choosing the best CB radio for your pickup truck improves communication on the road. Reliable radios keep you connected during trips and emergencies.**

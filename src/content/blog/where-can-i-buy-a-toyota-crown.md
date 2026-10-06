@@ -1,10 +1,13 @@
 ---
-title: "Where Can I Buy a Toyota Crown: Top Trusted Dealers Revealed"
-description: "Are you thinking about buying a Toyota Crown but not sure where to start? Finding the right place to buy this luxurious and reliable car can feel overwhelming. "
+title: 'Where Can I Buy a Toyota Crown: Top Trusted Dealers Revealed'
+description: 'Are you thinking about buying a Toyota Crown but not sure where to start?
+  Finding the right place to buy this luxurious and reliable car can feel overwhelming. '
 pubDate: 2025-09-23
-author: "herbertlangham"
-categories: ["Car Buying & Ownership"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-buy-a-toyota-crown&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Model Availability and Value
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-buy-a-toyota-crown&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you thinking about buying a Toyota Crown but not sure where to start? Finding the right place to buy this luxurious and reliable car can feel overwhelming.**

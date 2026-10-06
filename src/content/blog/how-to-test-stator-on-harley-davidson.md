@@ -1,10 +1,14 @@
 ---
-title: "How to Test Stator on Harley Davidson: Easy Step-by-Step Guide"
-description: "If your Harley Davidson is acting up or not charging properly, the stator might be the problem. Knowing how to test your stator can save you time, money, and fr"
+title: 'How to Test Stator on Harley Davidson: Easy Step-by-Step Guide'
+description: If your Harley Davidson is acting up or not charging properly, the stator
+  might be the problem. Knowing how to test your stator can save you time, money,
+  and fr
 pubDate: 2025-11-06
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-test-stator-on-harley-davidson&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Maintenance Basics
+heroImage: https://tse1.mm.bing.net/th?q=how-to-test-stator-on-harley-davidson&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **If your Harley Davidson is acting up or not charging properly, the stator might be the problem. Knowing how to test your stator can save you time, money, and frustration.**

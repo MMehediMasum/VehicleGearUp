@@ -1,10 +1,14 @@
 ---
-title: "Best Bed Liners for Pickup Trucks: Ultimate Protection and Durability Guide"
-description: "Protecting your pickup truck bed is essential for durability and appearance. The best bed liners shield your truck from scratches, dents, and weather damage. A "
+title: 'Best Bed Liners for Pickup Trucks: Ultimate Protection and Durability Guide'
+description: 'Protecting your pickup truck bed is essential for durability and appearance.
+  The best bed liners shield your truck from scratches, dents, and weather damage.
+  A '
 pubDate: 2026-06-16
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-bed-liners-for-pickup-trucks&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Truck Caps and Bed Liners
+heroImage: https://tse1.mm.bing.net/th?q=best-bed-liners-for-pickup-trucks&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Protecting your pickup truck bed is essential for durability and appearance. The best bed liners shield your truck from scratches, dents, and weather damage.**

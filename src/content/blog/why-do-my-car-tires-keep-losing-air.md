@@ -1,10 +1,13 @@
 ---
-title: "Why Do My Car Tires Keep Losing Air: Top Causes & Quick Fixes"
-description: "Have you noticed your car tires losing air faster than usual? It’s frustrating, inconvenient, and can even be dangerous if you don’t catch it in time. You might"
+title: 'Why Do My Car Tires Keep Losing Air: Top Causes & Quick Fixes'
+description: Have you noticed your car tires losing air faster than usual? It’s frustrating,
+  inconvenient, and can even be dangerous if you don’t catch it in time. You might
 pubDate: 2025-10-26
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-do-my-car-tires-keep-losing-air&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tire Inflators and Compressors
+heroImage: https://tse1.mm.bing.net/th?q=why-do-my-car-tires-keep-losing-air&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Have you noticed your car tires losing air faster than usual? It’s frustrating, inconvenient, and can even be dangerous if you don’t catch it in time.**

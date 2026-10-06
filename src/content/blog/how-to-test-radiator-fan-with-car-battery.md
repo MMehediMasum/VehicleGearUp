@@ -1,10 +1,14 @@
 ---
-title: "How to Test Radiator Fan With Car Battery: Easy DIY Guide"
-description: "Is your car overheating, or is your radiator fan not working as it should? Knowing how to test your radiator fan with just a car battery can save you time and m"
+title: 'How to Test Radiator Fan With Car Battery: Easy DIY Guide'
+description: Is your car overheating, or is your radiator fan not working as it should?
+  Knowing how to test your radiator fan with just a car battery can save you time
+  and m
 pubDate: 2026-04-13
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-test-radiator-fan-with-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Selling Old Car Batteries
+heroImage: https://tse1.mm.bing.net/th?q=how-to-test-radiator-fan-with-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your car overheating, or is your radiator fan not working as it should? Knowing how to test your radiator fan with just a car battery can save you time and money.**

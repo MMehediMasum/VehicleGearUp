@@ -1,10 +1,14 @@
 ---
-title: "Do Ford Transit 12 Passenger Van Seats Fold Down? Ultimate Guide"
-description: "Are you wondering if the seats in your Ford Transit 12 Passenger Van can fold down? Whether you need extra cargo space or want to rearrange seating for comfort,"
+title: Do Ford Transit 12 Passenger Van Seats Fold Down? Ultimate Guide
+description: Are you wondering if the seats in your Ford Transit 12 Passenger Van
+  can fold down? Whether you need extra cargo space or want to rearrange seating for
+  comfort,
 pubDate: 2025-10-26
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-ford-transit-12-passenger-van-seats-fold-down&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Model Questions
+heroImage: https://tse1.mm.bing.net/th?q=do-ford-transit-12-passenger-van-seats-fold-down&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you wondering if the seats in your Ford Transit 12 Passenger Van can fold down? Whether you need extra cargo space or want to rearrange seating for comfort, knowing how the seats work is key.**

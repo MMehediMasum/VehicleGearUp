@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Lens for Car Photography Canon: Top Picks for Stunning Shots"
 description: "Choosing the best lens for car photography with Canon cameras can greatly improve your shots. The right lens captures details, colors, and angles clearly and sh"
 pubDate: 2026-06-11

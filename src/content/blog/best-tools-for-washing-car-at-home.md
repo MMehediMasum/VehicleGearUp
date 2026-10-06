@@ -1,10 +1,14 @@
 ---
-title: "Best Tools for Washing Car at Home: Top Kits and Accessories Reviewed"
-description: "Washing your car at home saves money and keeps your vehicle looking great. Using the right tools makes the job easier and more effective. A clean car improves y"
+title: 'Best Tools for Washing Car at Home: Top Kits and Accessories Reviewed'
+description: Washing your car at home saves money and keeps your vehicle looking great.
+  Using the right tools makes the job easier and more effective. A clean car improves
+  y
 pubDate: 2026-07-04
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tools-for-washing-car-at-home&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Water Spot Removal
+heroImage: https://tse1.mm.bing.net/th?q=best-tools-for-washing-car-at-home&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Washing your car at home saves money and keeps your vehicle looking great. Using the right tools makes the job easier and more effective.**

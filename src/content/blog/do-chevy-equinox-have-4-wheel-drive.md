@@ -1,10 +1,14 @@
 ---
-title: "Do Chevy Equinox Have 4 Wheel Drive: Ultimate Guide to AWD Options"
-description: "Are you wondering if your Chevy Equinox comes with 4-wheel drive? Whether you’re planning a road trip, tackling rough terrain, or just want extra control on sli"
+title: 'Do Chevy Equinox Have 4 Wheel Drive: Ultimate Guide to AWD Options'
+description: Are you wondering if your Chevy Equinox comes with 4-wheel drive? Whether
+  you’re planning a road trip, tackling rough terrain, or just want extra control
+  on sli
 pubDate: 2025-11-19
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-chevy-equinox-have-4-wheel-drive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota 4WD Questions
+heroImage: https://tse1.mm.bing.net/th?q=do-chevy-equinox-have-4-wheel-drive&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you wondering if your Chevy Equinox comes with 4-wheel drive? Whether you’re planning a road trip, tackling rough terrain, or just want extra control on slippery roads, knowing about your vehicle’s drivetrain is key.**

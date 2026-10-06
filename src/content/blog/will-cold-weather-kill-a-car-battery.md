@@ -1,10 +1,14 @@
 ---
-title: "Will Cold Weather Kill a Car Battery? Shocking Truth Revealed!"
-description: "Have you ever struggled to start your car on a freezing cold morning? You might wonder, “Will cold weather kill my car battery?” The answer isn’t as simple as y"
+title: Will Cold Weather Kill a Car Battery? Shocking Truth Revealed!
+description: Have you ever struggled to start your car on a freezing cold morning?
+  You might wonder, “Will cold weather kill my car battery?” The answer isn’t as simple
+  as y
 pubDate: 2026-03-25
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=will-cold-weather-kill-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Cold Weather Battery Drain
+heroImage: https://tse1.mm.bing.net/th?q=will-cold-weather-kill-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever struggled to start your car on a freezing cold morning? You might wonder, “Will cold weather kill my car battery?” The answer isn’t as simple as yes or no.**

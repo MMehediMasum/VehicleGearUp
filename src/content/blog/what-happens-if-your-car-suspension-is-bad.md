@@ -1,10 +1,14 @@
 ---
-title: "What Happens If Your Car Suspension is Bad: Risks & Warning Signs"
-description: "Have you ever felt every bump and pothole while driving, making your ride uncomfortable and even unsafe? That’s often a sign that your car suspension might be b"
+title: 'What Happens If Your Car Suspension is Bad: Risks & Warning Signs'
+description: Have you ever felt every bump and pothole while driving, making your
+  ride uncomfortable and even unsafe? That’s often a sign that your car suspension
+  might be b
 pubDate: 2025-10-22
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-happens-if-your-car-suspension-is-bad&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Truck Suspension Upgrades
+heroImage: https://tse1.mm.bing.net/th?q=what-happens-if-your-car-suspension-is-bad&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever felt every bump and pothole while driving, making your ride uncomfortable and even unsafe? That’s often a sign that your car suspension might be bad.**

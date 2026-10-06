@@ -1,10 +1,14 @@
 ---
-title: "How to Make Car Headlights Clear Again: Easy Steps to Restore Shine"
-description: "Are your car headlights looking cloudy or yellowed? This can make driving at night harder and even unsafe. But don’t worry—you don’t need to spend a lot of mone"
+title: 'How to Make Car Headlights Clear Again: Easy Steps to Restore Shine'
+description: Are your car headlights looking cloudy or yellowed? This can make driving
+  at night harder and even unsafe. But don’t worry—you don’t need to spend a lot of
+  mone
 pubDate: 2025-11-16
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-car-headlights-clear-again&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Headlight Cleaning and Upgrades
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-car-headlights-clear-again&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are your car headlights looking cloudy or yellowed? This can make driving at night harder and even unsafe.**

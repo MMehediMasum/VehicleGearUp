@@ -1,10 +1,13 @@
 ---
-title: "How to Use Bath And Body Works Car Fragrances: Ultimate Guide"
-description: "Your car is more than just a way to get from point A to B—it’s your personal space on the move. Imagine stepping inside and being greeted by a scent that instan"
+title: 'How to Use Bath And Body Works Car Fragrances: Ultimate Guide'
+description: Your car is more than just a way to get from point A to B—it’s your personal
+  space on the move. Imagine stepping inside and being greeted by a scent that instan
 pubDate: 2025-12-20
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-use-bath-and-body-works-car-fragrances&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jeep Grand Cherokee Resets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-use-bath-and-body-works-car-fragrances&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Your car is more than just a way to get from point A to B—it’s your personal space on the move. Imagine stepping inside and being greeted by a scent that instantly lifts your mood and makes every drive enjoyable.**

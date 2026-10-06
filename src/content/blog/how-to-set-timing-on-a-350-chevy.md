@@ -1,10 +1,14 @@
 ---
-title: "How to Set Timing on a 350 Chevy: Easy Steps for Perfect Performance"
-description: "If you want your 350 Chevy engine to run smoothly and deliver the power you expect, setting the timing correctly is a must. But if you’ve never done it before, "
+title: 'How to Set Timing on a 350 Chevy: Easy Steps for Perfect Performance'
+description: 'If you want your 350 Chevy engine to run smoothly and deliver the power
+  you expect, setting the timing correctly is a must. But if you’ve never done it
+  before, '
 pubDate: 2026-02-28
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-set-timing-on-a-350-chevy&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Chevy Valves and Module Resets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-set-timing-on-a-350-chevy&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If you want your 350 Chevy engine to run smoothly and deliver the power you expect, setting the timing correctly is a must. But if you’ve never done it before, the whole process can feel confusing and overwhelming.**

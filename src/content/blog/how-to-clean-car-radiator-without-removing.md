@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Car Radiator Without Removing: Easy & Effective Tips"
-description: "Your car’s radiator is key to keeping your engine cool and running smoothly. But what if you notice it’s getting dirty or clogged? You might think cleaning it m"
+title: 'How to Clean Car Radiator Without Removing: Easy & Effective Tips'
+description: Your car’s radiator is key to keeping your engine cool and running smoothly.
+  But what if you notice it’s getting dirty or clogged? You might think cleaning it
+  m
 pubDate: 2025-11-04
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-car-radiator-without-removing&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Coolant and AC Recharge
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-car-radiator-without-removing&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Your car’s radiator is key to keeping your engine cool and running smoothly. But what if you notice it’s getting dirty or clogged?**

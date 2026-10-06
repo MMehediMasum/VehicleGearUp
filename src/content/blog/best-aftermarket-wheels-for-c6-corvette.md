@@ -1,10 +1,14 @@
 ---
-title: "Best Aftermarket Wheels for C6 Corvette: Top Chrome 18 Inch Rims"
-description: "Choosing the best aftermarket wheels for your C6 Corvette enhances both style and performance. Quality wheels improve handling and give your car a unique look. "
+title: 'Best Aftermarket Wheels for C6 Corvette: Top Chrome 18 Inch Rims'
+description: 'Choosing the best aftermarket wheels for your C6 Corvette enhances both
+  style and performance. Quality wheels improve handling and give your car a unique
+  look. '
 pubDate: 2026-01-01
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-aftermarket-wheels-for-c6-corvette&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jeep Wheels and Rims
+heroImage: https://tse1.mm.bing.net/th?q=best-aftermarket-wheels-for-c6-corvette&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best aftermarket wheels for your C6 Corvette enhances both style and performance. Quality wheels improve handling and give your car a unique look.**

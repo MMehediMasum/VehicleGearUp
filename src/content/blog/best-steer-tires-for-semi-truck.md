@@ -1,10 +1,14 @@
 ---
-title: "Best Steer Tires for Semi Truck: Top Durable Choices for Heavy-Duty Use"
-description: "Choosing the best steer tires for your semi truck ensures safety and fuel efficiency on the road. Durable tires improve handling and reduce wear, saving money o"
+title: 'Best Steer Tires for Semi Truck: Top Durable Choices for Heavy-Duty Use'
+description: Choosing the best steer tires for your semi truck ensures safety and
+  fuel efficiency on the road. Durable tires improve handling and reduce wear, saving
+  money o
 pubDate: 2026-01-01
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-steer-tires-for-semi-truck&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Mud and Highway Truck Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-steer-tires-for-semi-truck&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best steer tires for your semi truck ensures safety and fuel efficiency on the road. Durable tires improve handling and reduce wear, saving money over time.**

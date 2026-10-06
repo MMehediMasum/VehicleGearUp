@@ -1,10 +1,13 @@
 ---
-title: "Best Spark Plugs for Mustang GT to Boost Performance and Longevity"
-description: "Choosing the right spark plugs can boost your Mustang GT’s engine performance and fuel efficiency. This guide highlights the best spark plugs suited for various"
+title: Best Spark Plugs for Mustang GT to Boost Performance and Longevity
+description: Choosing the right spark plugs can boost your Mustang GT’s engine performance
+  and fuel efficiency. This guide highlights the best spark plugs suited for various
 pubDate: 2025-09-21
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-spark-plugs-for-mustang-gt&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hemi and Ram Spark Plugs
+heroImage: https://tse1.mm.bing.net/th?q=best-spark-plugs-for-mustang-gt&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the right spark plugs can boost your Mustang GT’s engine performance and fuel efficiency. This guide highlights the best spark plugs suited for various Mustang GT models.**

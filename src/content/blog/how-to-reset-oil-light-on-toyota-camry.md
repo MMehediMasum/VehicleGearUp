@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Light on Toyota Camry: Quick & Easy Guide"
-description: "If you drive a Toyota Camry, seeing that oil light come on can be stressful. You might wonder what it means and how to turn it off quickly. Ignoring it isn’t a "
+title: 'How to Reset Oil Light on Toyota Camry: Quick & Easy Guide'
+description: 'If you drive a Toyota Camry, seeing that oil light come on can be stressful.
+  You might wonder what it means and how to turn it off quickly. Ignoring it isn’t
+  a '
 pubDate: 2026-04-29
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-light-on-toyota-camry&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Oil Light Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-light-on-toyota-camry&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you drive a Toyota Camry, seeing that oil light come on can be stressful. You might wonder what it means and how to turn it off quickly.**

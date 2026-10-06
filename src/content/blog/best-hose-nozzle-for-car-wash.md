@@ -1,10 +1,14 @@
 ---
-title: "Best Hose Nozzle for Car Wash: Top High-Pressure Picks Reviewed"
-description: "Choosing the best hose nozzle for car wash makes cleaning easier and more efficient. The right nozzle controls water pressure and spray patterns perfectly. Wash"
+title: 'Best Hose Nozzle for Car Wash: Top High-Pressure Picks Reviewed'
+description: Choosing the best hose nozzle for car wash makes cleaning easier and
+  more efficient. The right nozzle controls water pressure and spray patterns perfectly.
+  Wash
 pubDate: 2026-07-02
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-hose-nozzle-for-car-wash&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wash Costs and Etiquette
+heroImage: https://tse1.mm.bing.net/th?q=best-hose-nozzle-for-car-wash&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best hose nozzle for car wash makes cleaning easier and more efficient. The right nozzle controls water pressure and spray patterns perfectly.**

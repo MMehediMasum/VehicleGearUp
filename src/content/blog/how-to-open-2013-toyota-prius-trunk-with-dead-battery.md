@@ -1,10 +1,14 @@
 ---
-title: "How to Open 2013 Toyota Prius Trunk With Dead Battery: Quick Tips"
-description: "If you own a 2013 Toyota Prius, you know how handy the trunk can be for carrying everything you need. But what happens when your car battery dies and you can’t "
+title: 'How to Open 2013 Toyota Prius Trunk With Dead Battery: Quick Tips'
+description: 'If you own a 2013 Toyota Prius, you know how handy the trunk can be
+  for carrying everything you need. But what happens when your car battery dies and
+  you can’t '
 pubDate: 2026-04-02
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-open-2013-toyota-prius-trunk-with-dead-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Hybrid Tires
+heroImage: https://tse1.mm.bing.net/th?q=how-to-open-2013-toyota-prius-trunk-with-dead-battery&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **If you own a 2013 Toyota Prius, you know how handy the trunk can be for carrying everything you need. But what happens when your car battery dies and you can’t open the trunk the usual way?**

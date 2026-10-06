@@ -1,10 +1,14 @@
 ---
-title: "How to Change Oil Life on Honda Civic: Easy Steps for Beginners"
-description: "Are you wondering how to keep your Honda Civic running smoothly and avoid unexpected engine problems? One simple step you can take is changing the oil life indi"
+title: 'How to Change Oil Life on Honda Civic: Easy Steps for Beginners'
+description: Are you wondering how to keep your Honda Civic running smoothly and avoid
+  unexpected engine problems? One simple step you can take is changing the oil life
+  indi
 pubDate: 2026-04-23
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-oil-life-on-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Oil Life Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-oil-life-on-honda-civic&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Are you wondering how to keep your Honda Civic running smoothly and avoid unexpected engine problems? One simple step you can take is changing the oil life indicator on your car.**

@@ -1,10 +1,13 @@
 ---
-title: "How to Get Paint off of Car Bumper: Easy and Effective Methods"
-description: "Have you noticed unwanted paint splatters on your car bumper? It’s frustrating to see your vehicle’s finish damaged by paint that doesn’t belong there. But don’"
+title: 'How to Get Paint off of Car Bumper: Easy and Effective Methods'
+description: Have you noticed unwanted paint splatters on your car bumper? It’s frustrating
+  to see your vehicle’s finish damaged by paint that doesn’t belong there. But don’
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-get-paint-off-of-car-bumper&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Bumper Paint and Sticker Removal
+heroImage: https://tse1.mm.bing.net/th?q=how-to-get-paint-off-of-car-bumper&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you noticed unwanted paint splatters on your car bumper? It’s frustrating to see your vehicle’s finish damaged by paint that doesn’t belong there.**

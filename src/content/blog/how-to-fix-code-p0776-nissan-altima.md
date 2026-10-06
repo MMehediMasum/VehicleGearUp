@@ -1,10 +1,13 @@
 ---
-title: "How to Fix Code P0776 Nissan Altima: Quick & Easy Solutions"
-description: "If you’re seeing the P0776 code on your Nissan Altima, it means there’s a problem with your transmission’s shift solenoid. This issue can cause rough shifting, "
+title: 'How to Fix Code P0776 Nissan Altima: Quick & Easy Solutions'
+description: 'If you’re seeing the P0776 code on your Nissan Altima, it means there’s
+  a problem with your transmission’s shift solenoid. This issue can cause rough shifting, '
 pubDate: 2026-05-04
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-code-p0776-nissan-altima&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Scan Tools and Code Readers
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-code-p0776-nissan-altima&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **If you’re seeing the P0776 code on your Nissan Altima, it means there’s a problem with your transmission’s shift solenoid. This issue can cause rough shifting, poor fuel efficiency, and even damage your car if left unchecked.**

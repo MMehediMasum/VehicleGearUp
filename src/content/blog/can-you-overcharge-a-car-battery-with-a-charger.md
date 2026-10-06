@@ -1,10 +1,14 @@
 ---
-title: "Can You Overcharge a Car Battery With a Charger: Risks Explained"
-description: "Have you ever wondered if it’s possible to overcharge your car battery with a charger? It’s a question that worries many car owners. After all, your battery is "
+title: 'Can You Overcharge a Car Battery With a Charger: Risks Explained'
+description: 'Have you ever wondered if it’s possible to overcharge your car battery
+  with a charger? It’s a question that worries many car owners. After all, your battery
+  is '
 pubDate: 2026-04-05
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-overcharge-a-car-battery-with-a-charger&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Charging While Idling
+heroImage: https://tse1.mm.bing.net/th?q=can-you-overcharge-a-car-battery-with-a-charger&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if it’s possible to overcharge your car battery with a charger? It’s a question that worries many car owners.**

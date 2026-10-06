@@ -1,10 +1,14 @@
 ---
-title: "How to Turn off Regenerative Braking Tesla Model 3: Easy Guide"
-description: "If you drive a Tesla Model 3, you’ve probably noticed how smooth and efficient the regenerative braking feels. But what if you want more control over your drivi"
+title: 'How to Turn off Regenerative Braking Tesla Model 3: Easy Guide'
+description: If you drive a Tesla Model 3, you’ve probably noticed how smooth and
+  efficient the regenerative braking feels. But what if you want more control over
+  your drivi
 pubDate: 2026-02-12
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-regenerative-braking-tesla-model-3&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Summon and Dog Mode
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-regenerative-braking-tesla-model-3&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **If you drive a Tesla Model 3, you’ve probably noticed how smooth and efficient the regenerative braking feels. But what if you want more control over your driving experience?**

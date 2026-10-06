@@ -1,10 +1,14 @@
 ---
-title: "How Do You Bleed a Car Radiator: Easy Steps to Fix Overheating"
-description: "If your car’s heater isn’t warming up or you notice your engine running hotter than usual, air trapped in your radiator might be the cause. Bleeding your car ra"
+title: 'How Do You Bleed a Car Radiator: Easy Steps to Fix Overheating'
+description: If your car’s heater isn’t warming up or you notice your engine running
+  hotter than usual, air trapped in your radiator might be the cause. Bleeding your
+  car ra
 pubDate: 2026-02-20
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-bleed-a-car-radiator&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Coolant and AC Recharge
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-bleed-a-car-radiator&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If your car’s heater isn’t warming up or you notice your engine running hotter than usual, air trapped in your radiator might be the cause. Bleeding your car radiator is a simple step you can take to fix this problem and keep your engine running smoothly.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Pull a Dent Out of a Car Hood: Easy DIY Fixes"
-description: "Have you just noticed a dent on your car hood and wondered how to fix it without spending a fortune? That little dent can be frustrating to look at, but you don"
+title: 'How to Pull a Dent Out of a Car Hood: Easy DIY Fixes'
+description: Have you just noticed a dent on your car hood and wondered how to fix
+  it without spending a fortune? That little dent can be frustrating to look at, but
+  you don
 pubDate: 2025-12-18
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-pull-a-dent-out-of-a-car-hood&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Trailer Gear and Accessories
+heroImage: https://tse1.mm.bing.net/th?q=how-to-pull-a-dent-out-of-a-car-hood&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Have you just noticed a dent on your car hood and wondered how to fix it without spending a fortune? That little dent can be frustrating to look at, but you don’t have to rush to the repair shop right away.**

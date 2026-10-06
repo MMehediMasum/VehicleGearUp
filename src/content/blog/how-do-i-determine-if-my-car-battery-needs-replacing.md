@@ -1,10 +1,14 @@
 ---
-title: "How Do I Determine If My Car Battery Needs Replacing: Quick Signs"
-description: "Is your car acting sluggish when you start it? You might be wondering, “How do I determine if my car battery needs replacing?” Knowing the signs early can save "
+title: 'How Do I Determine If My Car Battery Needs Replacing: Quick Signs'
+description: 'Is your car acting sluggish when you start it? You might be wondering,
+  “How do I determine if my car battery needs replacing?” Knowing the signs early
+  can save '
 pubDate: 2026-04-13
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-i-determine-if-my-car-battery-needs-replacing&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Signs of a Failing Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-do-i-determine-if-my-car-battery-needs-replacing&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your car acting sluggish when you start it? You might be wondering, “How do I determine if my car battery needs replacing?” Knowing the signs early can save you from getting stranded or facing expensive repairs.**

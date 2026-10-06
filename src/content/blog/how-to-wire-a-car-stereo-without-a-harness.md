@@ -1,10 +1,14 @@
 ---
-title: "How to Wire a Car Stereo Without a Harness: Easy Step-by-Step Guide"
-description: "Wiring a car stereo without a harness might sound tricky, but it’s easier than you think. If you want to upgrade your sound system or replace a broken stereo, y"
+title: 'How to Wire a Car Stereo Without a Harness: Easy Step-by-Step Guide'
+description: Wiring a car stereo without a harness might sound tricky, but it’s easier
+  than you think. If you want to upgrade your sound system or replace a broken stereo,
+  y
 pubDate: 2026-05-29
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-wire-a-car-stereo-without-a-harness&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Choosing Car Stereos
+heroImage: https://tse1.mm.bing.net/th?q=how-to-wire-a-car-stereo-without-a-harness&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Wiring a car stereo without a harness might sound tricky, but it’s easier than you think. If you want to upgrade your sound system or replace a broken stereo, you don’t have to wait for expensive parts or complicated tools.**

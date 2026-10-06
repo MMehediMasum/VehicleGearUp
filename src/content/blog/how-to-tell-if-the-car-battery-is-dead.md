@@ -1,10 +1,14 @@
 ---
-title: "How to Tell If the Car Battery is Dead: Quick Signs to Know"
-description: "You’re ready to start your car, but nothing happens. The engine won’t turn over, and you’re left wondering if your car battery is dead. Knowing how to tell if y"
+title: 'How to Tell If the Car Battery is Dead: Quick Signs to Know'
+description: You’re ready to start your car, but nothing happens. The engine won’t
+  turn over, and you’re left wondering if your car battery is dead. Knowing how to
+  tell if y
 pubDate: 2026-04-11
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-tell-if-the-car-battery-is-dead&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Signs of a Failing Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-tell-if-the-car-battery-is-dead&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **You’re ready to start your car, but nothing happens. The engine won’t turn over, and you’re left wondering if your car battery is dead.**

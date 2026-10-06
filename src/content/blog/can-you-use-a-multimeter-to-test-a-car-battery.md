@@ -1,10 +1,14 @@
 ---
-title: "Can You Use a Multimeter to Test a Car Battery? Quick Guide!"
-description: "Are you wondering if you can use a multimeter to test your car battery? Knowing the health of your battery can save you from unexpected breakdowns and costly re"
+title: Can You Use a Multimeter to Test a Car Battery? Quick Guide!
+description: Are you wondering if you can use a multimeter to test your car battery?
+  Knowing the health of your battery can save you from unexpected breakdowns and costly
+  re
 pubDate: 2026-03-27
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-use-a-multimeter-to-test-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Testing Battery With Multimeter
+heroImage: https://tse1.mm.bing.net/th?q=can-you-use-a-multimeter-to-test-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you wondering if you can use a multimeter to test your car battery? Knowing the health of your battery can save you from unexpected breakdowns and costly repairs.**

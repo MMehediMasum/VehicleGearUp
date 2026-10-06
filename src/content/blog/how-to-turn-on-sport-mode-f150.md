@@ -1,10 +1,13 @@
 ---
-title: "How to Turn on Sport Mode F150: Quick Steps for Peak Performance"
-description: "If you own an F150, you know it’s built tough and ready for anything. But did you know there’s a way to make your truck feel even more powerful and responsive? "
+title: 'How to Turn on Sport Mode F150: Quick Steps for Peak Performance'
+description: 'If you own an F150, you know it’s built tough and ready for anything.
+  But did you know there’s a way to make your truck feel even more powerful and responsive? '
 pubDate: 2026-03-06
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-on-sport-mode-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Drive Modes and Buttons
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-on-sport-mode-f150&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If you own an F150, you know it’s built tough and ready for anything. But did you know there’s a way to make your truck feel even more powerful and responsive?**

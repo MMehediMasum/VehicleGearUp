@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for 2500 HD Truck: Top Durable Picks for Heavy-Duty Performance"
-description: "Choosing the best tires for your 2500 HD truck ensures safety and performance on every drive. The right tires improve handling, load capacity, and durability. H"
+title: 'Best Tires for 2500 HD Truck: Top Durable Picks for Heavy-Duty Performance'
+description: Choosing the best tires for your 2500 HD truck ensures safety and performance
+  on every drive. The right tires improve handling, load capacity, and durability.
+  H
 pubDate: 2025-12-25
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-2500-hd-truck&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Mud and Highway Truck Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-2500-hd-truck&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your 2500 HD truck ensures safety and performance on every drive. The right tires improve handling, load capacity, and durability.**

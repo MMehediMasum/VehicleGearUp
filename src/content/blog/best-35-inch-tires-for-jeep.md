@@ -1,10 +1,13 @@
 ---
-title: "Best 35 Inch Tires for Jeep: Top Off-Road and All-Terrain Picks"
-description: "Choosing the best 35 inch tires for your Jeep boosts its off-road performance and style. These tires handle tough terrains and improve driving safety. Big tires"
+title: 'Best 35 Inch Tires for Jeep: Top Off-Road and All-Terrain Picks'
+description: Choosing the best 35 inch tires for your Jeep boosts its off-road performance
+  and style. These tires handle tough terrains and improve driving safety. Big tires
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-35-inch-tires-for-jeep&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jeep Off Road Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-35-inch-tires-for-jeep&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best 35 inch tires for your Jeep boosts its off-road performance and style. These tires handle tough terrains and improve driving safety.**

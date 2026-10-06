@@ -1,10 +1,14 @@
 ---
-title: "Best Light Kit for Club Car Precedent: Ultimate LED Upgrade Guide"
-description: "Finding the best light kit for your Club Car Precedent improves safety and visibility on the road. A good kit includes headlights, taillights, turn signals, and"
+title: 'Best Light Kit for Club Car Precedent: Ultimate LED Upgrade Guide'
+description: Finding the best light kit for your Club Car Precedent improves safety
+  and visibility on the road. A good kit includes headlights, taillights, turn signals,
+  and
 pubDate: 2026-07-29
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-light-kit-for-club-car-precedent&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Powersports Batteries
+heroImage: https://tse1.mm.bing.net/th?q=best-light-kit-for-club-car-precedent&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Finding the best light kit for your Club Car Precedent improves safety and visibility on the road. A good kit includes headlights, taillights, turn signals, and other essential features.**

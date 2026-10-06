@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Pcm on Ford F150: Quick & Easy Guide"
-description: "If your Ford F150 is acting up or showing warning lights, resetting the PCM (Powertrain Control Module) might be the quick fix you need. You don’t have to be a "
+title: 'How to Reset Pcm on Ford F150: Quick & Easy Guide'
+description: 'If your Ford F150 is acting up or showing warning lights, resetting
+  the PCM (Powertrain Control Module) might be the quick fix you need. You don’t have
+  to be a '
 pubDate: 2026-01-22
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-pcm-on-ford-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford F150 Resets and Fixes
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-pcm-on-ford-f150&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If your Ford F150 is acting up or showing warning lights, resetting the PCM (Powertrain Control Module) might be the quick fix you need. You don’t have to be a mechanic or own expensive tools to do it yourself.**

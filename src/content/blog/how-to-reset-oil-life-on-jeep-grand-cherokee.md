@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Life on Jeep Grand Cherokee: Quick & Easy Guide"
-description: "If you own a Jeep Grand Cherokee, you know how important it is to keep your vehicle running smoothly. One key maintenance task is resetting the oil life indicat"
+title: 'How to Reset Oil Life on Jeep Grand Cherokee: Quick & Easy Guide'
+description: If you own a Jeep Grand Cherokee, you know how important it is to keep
+  your vehicle running smoothly. One key maintenance task is resetting the oil life
+  indicat
 pubDate: 2026-04-29
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-life-on-jeep-grand-cherokee&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ram and Dodge Oil Life
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-life-on-jeep-grand-cherokee&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a Jeep Grand Cherokee, you know how important it is to keep your vehicle running smoothly. One key maintenance task is resetting the oil life indicator after an oil change.**

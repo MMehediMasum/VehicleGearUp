@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Portable Jump Starter for Boat: Top Reliable Models Reviewed"
 description: "Boats need reliable power to start engines safely. A portable jump starter helps avoid being stranded on water. Choosing the best portable jump starter for your"
 pubDate: 2026-06-14

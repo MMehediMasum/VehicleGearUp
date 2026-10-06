@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for a Jeep Grand Cherokee: Top All-Season & Off-Road Picks"
-description: "Choosing the best tires for a Jeep Grand Cherokee improves safety, comfort, and performance on all roads. The right tires match your driving style and terrain n"
+title: 'Best Tires for a Jeep Grand Cherokee: Top All-Season & Off-Road Picks'
+description: Choosing the best tires for a Jeep Grand Cherokee improves safety, comfort,
+  and performance on all roads. The right tires match your driving style and terrain
+  n
 pubDate: 2026-01-10
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-a-jeep-grand-cherokee&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jeep Cherokee and Gladiator Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-a-jeep-grand-cherokee&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for a Jeep Grand Cherokee improves safety, comfort, and performance on all roads. The right tires match your driving style and terrain needs perfectly.**

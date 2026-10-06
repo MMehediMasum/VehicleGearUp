@@ -1,10 +1,14 @@
 ---
-title: "Best Bike Racks for Truck Beds to Securely Transport Your Bikes"
-description: "Choosing the best bike rack for your truck bed helps protect your bikes and makes transport easier. This guide covers top options designed for different truck s"
+title: Best Bike Racks for Truck Beds to Securely Transport Your Bikes
+description: Choosing the best bike rack for your truck bed helps protect your bikes
+  and makes transport easier. This guide covers top options designed for different
+  truck s
 pubDate: 2026-01-14
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-bike-racks-for-truck-beds&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Bike Racks for Cars
+heroImage: https://tse1.mm.bing.net/th?q=best-bike-racks-for-truck-beds&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Choosing the best bike rack for your truck bed helps protect your bikes and makes transport easier. This guide covers top options designed for different truck sizes and bike types.**

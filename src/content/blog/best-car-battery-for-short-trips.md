@@ -1,10 +1,14 @@
 ---
-title: "Best Car Battery for Short Trips: Top Portable Jump Starters Reviewed"
-description: "Choosing the best car battery for short trips ensures your vehicle starts reliably every time. Short drives need batteries that recharge quickly and hold power "
+title: 'Best Car Battery for Short Trips: Top Portable Jump Starters Reviewed'
+description: 'Choosing the best car battery for short trips ensures your vehicle starts
+  reliably every time. Short drives need batteries that recharge quickly and hold
+  power '
 pubDate: 2025-11-20
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-battery-for-short-trips&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Choosing the Best Battery
+heroImage: https://tse1.mm.bing.net/th?q=best-car-battery-for-short-trips&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Choosing the best car battery for short trips ensures your vehicle starts reliably every time. Short drives need batteries that recharge quickly and hold power well.**

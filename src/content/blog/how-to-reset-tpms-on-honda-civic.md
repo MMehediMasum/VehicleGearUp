@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Tpms on Honda Civic: Quick & Easy Guide"
-description: "If your Honda Civic’s tire pressure warning light just came on, you might feel a bit frustrated or unsure about what to do next. Don’t worry—resetting the TPMS "
+title: 'How to Reset Tpms on Honda Civic: Quick & Easy Guide'
+description: 'If your Honda Civic’s tire pressure warning light just came on, you
+  might feel a bit frustrated or unsure about what to do next. Don’t worry—resetting
+  the TPMS '
 pubDate: 2026-03-04
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-tpms-on-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Resetting Honda TPMS
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-tpms-on-honda-civic&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **If your Honda Civic’s tire pressure warning light just came on, you might feel a bit frustrated or unsure about what to do next. Don’t worry—resetting the TPMS (Tire Pressure Monitoring System) is easier than you think.**

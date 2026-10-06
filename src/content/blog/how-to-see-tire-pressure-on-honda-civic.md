@@ -1,10 +1,14 @@
 ---
-title: "How to See Tire Pressure on Honda Civic: Easy Steps Revealed"
-description: "Are you wondering how to check the tire pressure on your Honda Civic quickly and easily? Keeping the right tire pressure is key to your car’s safety, fuel effic"
+title: 'How to See Tire Pressure on Honda Civic: Easy Steps Revealed'
+description: Are you wondering how to check the tire pressure on your Honda Civic
+  quickly and easily? Keeping the right tire pressure is key to your car’s safety,
+  fuel effic
 pubDate: 2026-03-03
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-see-tire-pressure-on-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Checking Tire Pressure
+heroImage: https://tse1.mm.bing.net/th?q=how-to-see-tire-pressure-on-honda-civic&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Are you wondering how to check the tire pressure on your Honda Civic quickly and easily? Keeping the right tire pressure is key to your car’s safety, fuel efficiency, and tire life.**

@@ -1,10 +1,14 @@
 ---
-title: "What to Do After Replacing Car Battery: Essential Steps to Follow"
-description: "You just replaced your car battery — great job! But what comes next? Many people think the hard part is over once the new battery is in, but there are important"
+title: 'What to Do After Replacing Car Battery: Essential Steps to Follow'
+description: You just replaced your car battery — great job! But what comes next?
+  Many people think the hard part is over once the new battery is in, but there are
+  important
 pubDate: 2026-03-29
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-do-after-replacing-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Fixing Battery Drain
+heroImage: https://tse1.mm.bing.net/th?q=what-to-do-after-replacing-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **You just replaced your car battery — great job! But what comes next?**

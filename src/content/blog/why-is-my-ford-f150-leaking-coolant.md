@@ -1,10 +1,14 @@
 ---
-title: "Why is My Ford F150 Leaking Coolant: Top Causes & Quick Fixes"
-description: "Is your Ford F150 leaving a puddle of coolant under your truck? Noticing that bright green or orange liquid dripping can be worrying. You might be asking yourse"
+title: 'Why is My Ford F150 Leaking Coolant: Top Causes & Quick Fixes'
+description: Is your Ford F150 leaving a puddle of coolant under your truck? Noticing
+  that bright green or orange liquid dripping can be worrying. You might be asking
+  yourse
 pubDate: 2026-04-27
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-is-my-ford-f150-leaking-coolant&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Coolant and AC Recharge
+heroImage: https://tse1.mm.bing.net/th?q=why-is-my-ford-f150-leaking-coolant&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your Ford F150 leaving a puddle of coolant under your truck? Noticing that bright green or orange liquid dripping can be worrying.**

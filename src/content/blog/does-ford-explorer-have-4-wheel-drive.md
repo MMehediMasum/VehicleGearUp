@@ -1,10 +1,14 @@
 ---
-title: "Does Ford Explorer Have 4 Wheel Drive: Ultimate Guide 2025"
-description: "Are you wondering if the Ford Explorer comes with 4-wheel drive? Whether you’re planning a weekend adventure or just want extra control on slippery roads, knowi"
+title: 'Does Ford Explorer Have 4 Wheel Drive: Ultimate Guide 2025'
+description: Are you wondering if the Ford Explorer comes with 4-wheel drive? Whether
+  you’re planning a weekend adventure or just want extra control on slippery roads,
+  knowi
 pubDate: 2025-09-08
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-ford-explorer-have-4-wheel-drive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford 4WD Questions
+heroImage: https://tse1.mm.bing.net/th?q=does-ford-explorer-have-4-wheel-drive&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you wondering if the Ford Explorer comes with 4-wheel drive? Whether you’re planning a weekend adventure or just want extra control on slippery roads, knowing if your Explorer has this feature is important.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Leg Bag for Motorcycle Riders: Top Durable and Stylish Picks"
-description: "Finding the best leg bag for motorcycle riders helps keep essentials safe and easy to reach. A good leg bag fits comfortably, offers enough space, and stays sec"
+title: 'Best Leg Bag for Motorcycle Riders: Top Durable and Stylish Picks'
+description: Finding the best leg bag for motorcycle riders helps keep essentials
+  safe and easy to reach. A good leg bag fits comfortably, offers enough space, and
+  stays sec
 pubDate: 2025-10-06
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-leg-bag-for-motorcycle-riders&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Helmets and Boots
+heroImage: https://tse1.mm.bing.net/th?q=best-leg-bag-for-motorcycle-riders&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Finding the best leg bag for motorcycle riders helps keep essentials safe and easy to reach. A good leg bag fits comfortably, offers enough space, and stays secure during rides.**

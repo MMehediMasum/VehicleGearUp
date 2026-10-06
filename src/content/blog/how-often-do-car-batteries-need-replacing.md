@@ -1,10 +1,14 @@
 ---
-title: "How Often Do Car Batteries Need Replacing: Essential Guide"
-description: "Have you ever been stuck with a car that just won’t start? Often, the culprit is a dead battery. But how often do car batteries actually need replacing? Knowing"
+title: 'How Often Do Car Batteries Need Replacing: Essential Guide'
+description: Have you ever been stuck with a car that just won’t start? Often, the
+  culprit is a dead battery. But how often do car batteries actually need replacing?
+  Knowing
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-often-do-car-batteries-need-replacing&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Reviving a Dead Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-often-do-car-batteries-need-replacing&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever been stuck with a car that just won’t start? Often, the culprit is a dead battery.**

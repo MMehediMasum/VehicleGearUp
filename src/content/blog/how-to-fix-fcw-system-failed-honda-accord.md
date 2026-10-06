@@ -1,10 +1,14 @@
 ---
-title: "How to Fix Fcw System Failed Honda Accord: Quick & Easy Solutions"
-description: "Is your Honda Accord showing the dreaded “FCW System Failed” warning? This can be frustrating and worrying, especially when you rely on your car’s safety featur"
+title: 'How to Fix Fcw System Failed Honda Accord: Quick & Easy Solutions'
+description: Is your Honda Accord showing the dreaded “FCW System Failed” warning?
+  This can be frustrating and worrying, especially when you rely on your car’s safety
+  featur
 pubDate: 2026-04-29
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-fcw-system-failed-honda-accord&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Features and Fixes
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-fcw-system-failed-honda-accord&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your Honda Accord showing the dreaded “FCW System Failed” warning? This can be frustrating and worrying, especially when you rely on your car’s safety features every day.**

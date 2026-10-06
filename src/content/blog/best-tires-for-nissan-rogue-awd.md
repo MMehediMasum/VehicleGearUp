@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Nissan Rogue AWD: Top Picks for Ultimate Performance"
-description: "Choosing the best tires for your Nissan Rogue AWD improves safety and driving comfort. The right tires fit the vehicle’s all-wheel-drive system perfectly. Nissa"
+title: 'Best Tires for Nissan Rogue AWD: Top Picks for Ultimate Performance'
+description: Choosing the best tires for your Nissan Rogue AWD improves safety and
+  driving comfort. The right tires fit the vehicle’s all-wheel-drive system perfectly.
+  Nissa
 pubDate: 2025-12-30
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-nissan-rogue-awd&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Mud Street and RV Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-nissan-rogue-awd&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your Nissan Rogue AWD improves safety and driving comfort. The right tires fit the vehicle’s all-wheel-drive system perfectly.**

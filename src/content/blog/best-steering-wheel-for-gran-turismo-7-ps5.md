@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Steering Wheel for Gran Turismo 7 PS5: Top Picks for Ultimate Racing"
 description: "Choosing the best steering wheel enhances your Gran Turismo 7 experience on PS5. It brings real racing feel and better control to the game. Gran Turismo 7 deman"
 pubDate: 2026-01-08

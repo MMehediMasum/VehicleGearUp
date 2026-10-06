@@ -1,10 +1,14 @@
 ---
-title: "Can I Drive My New Car Without a License Plate? Essential Rules Explained"
-description: "You just bought a new car, and you’re eager to take it out for a spin. But wait—can you actually drive your new car without a license plate? It’s a question tha"
+title: Can I Drive My New Car Without a License Plate? Essential Rules Explained
+description: You just bought a new car, and you’re eager to take it out for a spin.
+  But wait—can you actually drive your new car without a license plate? It’s a question
+  tha
 pubDate: 2025-12-09
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-i-drive-my-new-car-without-a-license-plate&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- License Plate Questions
+heroImage: https://tse1.mm.bing.net/th?q=can-i-drive-my-new-car-without-a-license-plate&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **You just bought a new car, and you’re eager to take it out for a spin. But wait—can you actually drive your new car without a license plate?**

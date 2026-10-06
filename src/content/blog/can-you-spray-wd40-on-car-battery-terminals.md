@@ -1,10 +1,14 @@
 ---
-title: "Can You Spray Wd40 on Car Battery Terminals: Safety Tips Revealed"
-description: "Are you noticing corrosion or buildup on your car battery terminals and wondering if WD-40 is the quick fix you need? You might have heard that spraying WD-40 c"
+title: 'Can You Spray Wd40 on Car Battery Terminals: Safety Tips Revealed'
+description: Are you noticing corrosion or buildup on your car battery terminals and
+  wondering if WD-40 is the quick fix you need? You might have heard that spraying
+  WD-40 c
 pubDate: 2026-04-16
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-spray-wd40-on-car-battery-terminals&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Terminal Care
+heroImage: https://tse1.mm.bing.net/th?q=can-you-spray-wd40-on-car-battery-terminals&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you noticing corrosion or buildup on your car battery terminals and wondering if WD-40 is the quick fix you need? You might have heard that spraying WD-40 can help protect or clean your battery connections.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Power Steering Assist Fault Ford Focus: Quick Fix Guide"
-description: "If you’re driving your Ford Focus and suddenly see the \"Power Steering Assist Fault\" warning, it can be frustrating and even a little scary. You might feel like"
+title: 'How to Reset Power Steering Assist Fault Ford Focus: Quick Fix Guide'
+description: If you’re driving your Ford Focus and suddenly see the "Power Steering
+  Assist Fault" warning, it can be frustrating and even a little scary. You might
+  feel like
 pubDate: 2026-02-20
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-power-steering-assist-fault-ford-focus&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Power Steering Fluid and Additives
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-power-steering-assist-fault-ford-focus&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you’re driving your Ford Focus and suddenly see the "Power Steering Assist Fault" warning, it can be frustrating and even a little scary. You might feel like your steering is heavier or less responsive, making every turn a challenge.**

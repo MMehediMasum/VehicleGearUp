@@ -1,10 +1,14 @@
 ---
-title: "How to Tie down Dirt Bike in Truck Bed: Ultimate Secure Guide"
-description: "You’ve just loaded your dirt bike into the truck bed, but now comes the tricky part—securing it safely for the ride. If you don’t tie down your dirt bike proper"
+title: 'How to Tie down Dirt Bike in Truck Bed: Ultimate Secure Guide'
+description: You’ve just loaded your dirt bike into the truck bed, but now comes the
+  tricky part—securing it safely for the ride. If you don’t tie down your dirt bike
+  proper
 pubDate: 2026-02-19
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-tie-down-dirt-bike-in-truck-bed&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hauling Motorcycles in Trucks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-tie-down-dirt-bike-in-truck-bed&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **You’ve just loaded your dirt bike into the truck bed, but now comes the tricky part—securing it safely for the ride. If you don’t tie down your dirt bike properly, it could shift, fall, or get damaged during transport.**

@@ -1,10 +1,13 @@
 ---
-title: "How to Turn off Mds on Ram 1500: Easy Steps to Disable MDS Fast"
-description: "If you drive a Ram 1500, you’ve probably heard about MDS, or Multi-Displacement System. It’s designed to save fuel by shutting off some engine cylinders when yo"
+title: 'How to Turn off Mds on Ram 1500: Easy Steps to Disable MDS Fast'
+description: If you drive a Ram 1500, you’ve probably heard about MDS, or Multi-Displacement
+  System. It’s designed to save fuel by shutting off some engine cylinders when yo
 pubDate: 2026-02-12
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-mds-on-ram-1500&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Turning Off Dash Beeps
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-mds-on-ram-1500&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If you drive a Ram 1500, you’ve probably heard about MDS, or Multi-Displacement System. It’s designed to save fuel by shutting off some engine cylinders when you don’t need full power.**

@@ -1,10 +1,14 @@
 ---
-title: "Why Does My Car Battery Have Corrosion: Causes & Quick Fixes"
-description: "Have you ever opened your car’s hood and noticed a white, crusty buildup around the battery terminals? That’s corrosion, and it can cause real trouble for your "
+title: 'Why Does My Car Battery Have Corrosion: Causes & Quick Fixes'
+description: 'Have you ever opened your car’s hood and noticed a white, crusty buildup
+  around the battery terminals? That’s corrosion, and it can cause real trouble for
+  your '
 pubDate: 2026-03-30
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-does-my-car-battery-have-corrosion&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Terminal Care
+heroImage: https://tse1.mm.bing.net/th?q=why-does-my-car-battery-have-corrosion&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever opened your car’s hood and noticed a white, crusty buildup around the battery terminals? That’s corrosion, and it can cause real trouble for your car’s performance.**

@@ -1,10 +1,14 @@
 ---
-title: "How Fast Can a Tesla Model X Go: Unleashing Electric Speed"
-description: "Curious about how fast a Tesla Model X can really go? If you’re thinking about speed, performance, or just want to know what this electric SUV is capable of, yo"
+title: 'How Fast Can a Tesla Model X Go: Unleashing Electric Speed'
+description: Curious about how fast a Tesla Model X can really go? If you’re thinking
+  about speed, performance, or just want to know what this electric SUV is capable
+  of, yo
 pubDate: 2026-03-08
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-fast-can-a-tesla-model-x-go&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Summon and Dog Mode
+heroImage: https://tse1.mm.bing.net/th?q=how-fast-can-a-tesla-model-x-go&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Curious about how fast a Tesla Model X can really go? If you’re thinking about speed, performance, or just want to know what this electric SUV is capable of, you’re in the right place.**

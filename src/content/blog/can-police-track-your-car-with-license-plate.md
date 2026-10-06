@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can Police Track Your Car With License Plate? Shocking Truth Revealed!"
 description: "Have you ever wondered if the police can track your car just by using your license plate? It’s a question that might cross your mind when you’re out on the road"
 pubDate: 2026-02-19

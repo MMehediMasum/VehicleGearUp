@@ -1,10 +1,14 @@
 ---
-title: "How to Change Km to Miles on Nissan Altima 2025: Quick Guide"
-description: "Are you wondering how to switch your Nissan Altima 2024’s speedometer from kilometers to miles? Whether you’ve just moved to a new country or prefer miles over "
+title: 'How to Change Km to Miles on Nissan Altima 2025: Quick Guide'
+description: 'Are you wondering how to switch your Nissan Altima 2024’s speedometer
+  from kilometers to miles? Whether you’ve just moved to a new country or prefer miles
+  over '
 pubDate: 2026-02-28
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-km-to-miles-on-nissan-altima-2024&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Turning On 4WD
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-km-to-miles-on-nissan-altima-2024&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you wondering how to switch your Nissan Altima 2024’s speedometer from kilometers to miles? Whether you’ve just moved to a new country or prefer miles over kilometers, changing this setting can seem tricky at first.**

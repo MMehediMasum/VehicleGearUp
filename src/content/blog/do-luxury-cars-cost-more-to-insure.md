@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Do Luxury Cars Cost More to Insure? Shocking Truth Revealed!"
 description: "Are you thinking about buying a luxury car but wondering if it will break the bank when it comes to insurance? You’re not alone. Many people ask, “Do luxury car"
 pubDate: 2026-02-07

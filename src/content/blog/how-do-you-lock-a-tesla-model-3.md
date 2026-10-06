@@ -1,10 +1,14 @@
 ---
-title: "How Do You Lock a Tesla Model 3: Easy Steps to Secure Your Car"
-description: "You’ve just stepped out of your Tesla Model 3 and want to make sure it’s securely locked. But how exactly do you lock it? With so many smart features and option"
+title: 'How Do You Lock a Tesla Model 3: Easy Steps to Secure Your Car'
+description: You’ve just stepped out of your Tesla Model 3 and want to make sure it’s
+  securely locked. But how exactly do you lock it? With so many smart features and
+  option
 pubDate: 2025-12-18
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-lock-a-tesla-model-3&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Model Y Features
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-lock-a-tesla-model-3&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **You’ve just stepped out of your Tesla Model 3 and want to make sure it’s securely locked. But how exactly do you lock it?**

@@ -1,10 +1,14 @@
 ---
-title: "How to Set Up Bluetooth in Honda Civic: Easy Step-by-Step Guide"
-description: "Setting up Bluetooth in your Honda Civic doesn’t have to be confusing or time-consuming. Imagine being able to make hands-free calls, stream your favorite music"
+title: 'How to Set Up Bluetooth in Honda Civic: Easy Step-by-Step Guide'
+description: Setting up Bluetooth in your Honda Civic doesn’t have to be confusing
+  or time-consuming. Imagine being able to make hands-free calls, stream your favorite
+  music
 pubDate: 2026-01-23
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-set-up-bluetooth-in-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Features and Fixes
+heroImage: https://tse1.mm.bing.net/th?q=how-to-set-up-bluetooth-in-honda-civic&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Setting up Bluetooth in your Honda Civic doesn’t have to be confusing or time-consuming. Imagine being able to make hands-free calls, stream your favorite music, or get directions without taking your eyes off the road.**

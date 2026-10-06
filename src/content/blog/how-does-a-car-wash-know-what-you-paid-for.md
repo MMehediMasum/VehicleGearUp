@@ -1,10 +1,14 @@
 ---
-title: "How Does a Car Wash Know What You Paid for? Secrets Revealed"
-description: "Have you ever wondered how a car wash knows exactly what you paid for before you even step inside? It might seem like magic, but there’s a smart system working "
+title: How Does a Car Wash Know What You Paid for? Secrets Revealed
+description: 'Have you ever wondered how a car wash knows exactly what you paid for
+  before you even step inside? It might seem like magic, but there’s a smart system
+  working '
 pubDate: 2026-03-22
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-does-a-car-wash-know-what-you-paid-for&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wash Basics
+heroImage: https://tse1.mm.bing.net/th?q=how-does-a-car-wash-know-what-you-paid-for&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever wondered how a car wash knows exactly what you paid for before you even step inside? It might seem like magic, but there’s a smart system working behind the scenes.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Car Wash Soap for Tesla Model Y: Top Picks for Ultimate Shine"
-description: "Choosing the best car wash soap for your Tesla Model Y keeps its finish shiny and protected. The right soap cleans dirt well without harming the paint or wax. T"
+title: 'Best Car Wash Soap for Tesla Model Y: Top Picks for Ultimate Shine'
+description: Choosing the best car wash soap for your Tesla Model Y keeps its finish
+  shiny and protected. The right soap cleans dirt well without harming the paint or
+  wax. T
 pubDate: 2025-11-21
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-wash-soap-for-tesla-model-y&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Washing Electric Cars
+heroImage: https://tse1.mm.bing.net/th?q=best-car-wash-soap-for-tesla-model-y&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best car wash soap for your Tesla Model Y keeps its finish shiny and protected. The right soap cleans dirt well without harming the paint or wax.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Know If Car Battery is Dead: Easy Signs to Check Fast"
-description: "Is your car refusing to start when you need it most? You might be facing a dead battery, but how can you be sure? Knowing if your car battery is dead can save y"
+title: 'How to Know If Car Battery is Dead: Easy Signs to Check Fast'
+description: Is your car refusing to start when you need it most? You might be facing
+  a dead battery, but how can you be sure? Knowing if your car battery is dead can
+  save y
 pubDate: 2026-04-05
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-know-if-car-battery-is-dead&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Signs of a Failing Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-know-if-car-battery-is-dead&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your car refusing to start when you need it most? You might be facing a dead battery, but how can you be sure?**

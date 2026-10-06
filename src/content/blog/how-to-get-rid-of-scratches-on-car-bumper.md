@@ -1,10 +1,14 @@
 ---
-title: "How to Get Rid of Scratches on Car Bumper: Easy DIY Fixes"
-description: "Have you noticed scratches on your car bumper and wondered how to fix them quickly? Scratches can make your car look old and worn out, but you don’t have to liv"
+title: 'How to Get Rid of Scratches on Car Bumper: Easy DIY Fixes'
+description: Have you noticed scratches on your car bumper and wondered how to fix
+  them quickly? Scratches can make your car look old and worn out, but you don’t have
+  to liv
 pubDate: 2026-03-19
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-get-rid-of-scratches-on-car-bumper&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Bumper Dent and Scratch Repair
+heroImage: https://tse1.mm.bing.net/th?q=how-to-get-rid-of-scratches-on-car-bumper&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you noticed scratches on your car bumper and wondered how to fix them quickly? Scratches can make your car look old and worn out, but you don’t have to live with them.**

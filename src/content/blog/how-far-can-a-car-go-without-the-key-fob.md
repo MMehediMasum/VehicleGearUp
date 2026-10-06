@@ -1,10 +1,14 @@
 ---
-title: "How Far Can a Car Go Without the Key Fob: Shocking Distance Revealed"
-description: "Have you ever wondered how far your car can go without the key fob? Imagine being in a hurry, reaching for your keys, only to realize they’re missing. Can your "
+title: 'How Far Can a Car Go Without the Key Fob: Shocking Distance Revealed'
+description: 'Have you ever wondered how far your car can go without the key fob?
+  Imagine being in a hurry, reaching for your keys, only to realize they’re missing.
+  Can your '
 pubDate: 2026-02-06
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-far-can-a-car-go-without-the-key-fob&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Driving Without a Key Fob
+heroImage: https://tse1.mm.bing.net/th?q=how-far-can-a-car-go-without-the-key-fob&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **Have you ever wondered how far your car can go without the key fob? Imagine being in a hurry, reaching for your keys, only to realize they’re missing.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Jump Start a Ford Escape: Quick & Easy Guide"
-description: "Have you ever found yourself stuck with a dead battery in your Ford Escape, right when you need to get going? It’s frustrating, stressful, and can throw off you"
+title: 'How to Jump Start a Ford Escape: Quick & Easy Guide'
+description: Have you ever found yourself stuck with a dead battery in your Ford Escape,
+  right when you need to get going? It’s frustrating, stressful, and can throw off
+  you
 pubDate: 2025-12-09
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-jump-start-a-ford-escape&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jump Starting by Model
+heroImage: https://tse1.mm.bing.net/th?q=how-to-jump-start-a-ford-escape&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever found yourself stuck with a dead battery in your Ford Escape, right when you need to get going? It’s frustrating, stressful, and can throw off your entire day.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Reset 2014 Ford Escape Oil Change: Quick & Easy Guide"
-description: "Changing the oil in your 2014 Ford Escape is a smart way to keep your engine running smoothly. But after the oil change, you might wonder how to reset the oil c"
+title: 'How to Reset 2014 Ford Escape Oil Change: Quick & Easy Guide'
+description: Changing the oil in your 2014 Ford Escape is a smart way to keep your
+  engine running smoothly. But after the oil change, you might wonder how to reset
+  the oil c
 pubDate: 2026-04-23
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-2014-ford-escape-oil-change&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Oil Change Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-2014-ford-escape-oil-change&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Changing the oil in your 2014 Ford Escape is a smart way to keep your engine running smoothly. But after the oil change, you might wonder how to reset the oil change light.**

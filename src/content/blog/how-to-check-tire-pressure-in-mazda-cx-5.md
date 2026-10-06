@@ -1,10 +1,14 @@
 ---
-title: "How to Check Tire Pressure in Mazda Cx 5: Easy Step-by-Step Guide"
-description: "Are you sure your Mazda CX-5’s tires are properly inflated? Checking your tire pressure is one of the easiest ways to keep your vehicle safe and running smoothl"
+title: 'How to Check Tire Pressure in Mazda Cx 5: Easy Step-by-Step Guide'
+description: Are you sure your Mazda CX-5’s tires are properly inflated? Checking
+  your tire pressure is one of the easiest ways to keep your vehicle safe and running
+  smoothl
 pubDate: 2026-02-26
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-check-tire-pressure-in-mazda-cx-5&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Tire Pressure Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-check-tire-pressure-in-mazda-cx-5&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Are you sure your Mazda CX-5’s tires are properly inflated? Checking your tire pressure is one of the easiest ways to keep your vehicle safe and running smoothly.**

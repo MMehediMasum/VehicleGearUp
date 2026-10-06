@@ -1,10 +1,14 @@
 ---
-title: "Where is Engine Temperature Located on Ford Escape: Easy Guide"
-description: "Are you trying to find the engine temperature on your Ford Escape but feeling a bit lost? Knowing where to check your engine temperature is crucial to keeping y"
+title: 'Where is Engine Temperature Located on Ford Escape: Easy Guide'
+description: Are you trying to find the engine temperature on your Ford Escape but
+  feeling a bit lost? Knowing where to check your engine temperature is crucial to
+  keeping y
 pubDate: 2025-09-27
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-is-engine-temperature-located-on-ford-escape&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- How Car Engines Work
+heroImage: https://tse1.mm.bing.net/th?q=where-is-engine-temperature-located-on-ford-escape&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Are you trying to find the engine temperature on your Ford Escape but feeling a bit lost? Knowing where to check your engine temperature is crucial to keeping your vehicle running smoothly and avoiding costly repairs.**

@@ -1,10 +1,14 @@
 ---
-title: "How Often Should You Replace Car Brakes: Essential Guide for Safety"
-description: "Have you ever wondered how often you should replace your car brakes? Your brakes are one of the most important safety features on your vehicle. Ignoring them co"
+title: 'How Often Should You Replace Car Brakes: Essential Guide for Safety'
+description: Have you ever wondered how often you should replace your car brakes?
+  Your brakes are one of the most important safety features on your vehicle. Ignoring
+  them co
 pubDate: 2025-09-25
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-often-should-you-replace-car-brakes&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Brake Replacement and Rotors
+heroImage: https://tse1.mm.bing.net/th?q=how-often-should-you-replace-car-brakes&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever wondered how often you should replace your car brakes? Your brakes are one of the most important safety features on your vehicle.**

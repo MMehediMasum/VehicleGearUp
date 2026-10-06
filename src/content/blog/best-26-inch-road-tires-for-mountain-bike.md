@@ -1,10 +1,13 @@
 ---
-title: "Best 26 Inch Road Tires for Mountain Bike: Top Picks for Durability"
-description: "Choosing the best 26 inch road tires for your mountain bike boosts performance and safety. The right tires improve grip, durability, and riding comfort on varie"
+title: 'Best 26 Inch Road Tires for Mountain Bike: Top Picks for Durability'
+description: Choosing the best 26 inch road tires for your mountain bike boosts performance
+  and safety. The right tires improve grip, durability, and riding comfort on varie
 pubDate: 2026-01-11
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-26-inch-road-tires-for-mountain-bike&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Bike Tires and Pumps
+heroImage: https://tse1.mm.bing.net/th?q=best-26-inch-road-tires-for-mountain-bike&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best 26 inch road tires for your mountain bike boosts performance and safety. The right tires improve grip, durability, and riding comfort on varied terrain.**

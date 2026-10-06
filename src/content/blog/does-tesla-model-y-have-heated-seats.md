@@ -1,10 +1,14 @@
 ---
-title: "Does Tesla Model Y Have Heated Seats: Ultimate Comfort Revealed"
-description: "Are you thinking about getting a Tesla Model Y and wondering if it comes with heated seats? Imagine sliding into your car on a chilly morning, feeling warmth sp"
+title: 'Does Tesla Model Y Have Heated Seats: Ultimate Comfort Revealed'
+description: Are you thinking about getting a Tesla Model Y and wondering if it comes
+  with heated seats? Imagine sliding into your car on a chilly morning, feeling warmth
+  sp
 pubDate: 2025-11-08
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-tesla-model-y-have-heated-seats&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Tires and Accessories
+heroImage: https://tse1.mm.bing.net/th?q=does-tesla-model-y-have-heated-seats&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you thinking about getting a Tesla Model Y and wondering if it comes with heated seats? Imagine sliding into your car on a chilly morning, feeling warmth spread comfortably through your seat as you start your drive.**

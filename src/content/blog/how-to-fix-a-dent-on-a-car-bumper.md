@@ -1,10 +1,14 @@
 ---
-title: "How to Fix a Dent on a Car Bumper: Easy DIY Repair Tips"
-description: "Have you noticed an unsightly dent on your car bumper and wondered how to fix it without spending a fortune? You’re not alone. A dent can make your car look old"
+title: 'How to Fix a Dent on a Car Bumper: Easy DIY Repair Tips'
+description: Have you noticed an unsightly dent on your car bumper and wondered how
+  to fix it without spending a fortune? You’re not alone. A dent can make your car
+  look old
 pubDate: 2026-04-25
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-a-dent-on-a-car-bumper&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Bumper Dent and Scratch Repair
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-a-dent-on-a-car-bumper&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you noticed an unsightly dent on your car bumper and wondered how to fix it without spending a fortune? You’re not alone.**

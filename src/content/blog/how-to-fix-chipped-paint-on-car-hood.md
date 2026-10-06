@@ -1,10 +1,14 @@
 ---
-title: "How to Fix Chipped Paint on Car Hood: Easy Steps for a Flawless Finish"
-description: "Have you noticed those small chips on your car hood and wondered how to fix them before they turn into bigger problems? Chipped paint doesn’t just look bad—it c"
+title: 'How to Fix Chipped Paint on Car Hood: Easy Steps for a Flawless Finish'
+description: Have you noticed those small chips on your car hood and wondered how
+  to fix them before they turn into bigger problems? Chipped paint doesn’t just look
+  bad—it c
 pubDate: 2026-05-17
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-chipped-paint-on-car-hood&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hood Dents and Chips
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-chipped-paint-on-car-hood&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you noticed those small chips on your car hood and wondered how to fix them before they turn into bigger problems? Chipped paint doesn’t just look bad—it can lead to rust and damage that’s costly to repair.**

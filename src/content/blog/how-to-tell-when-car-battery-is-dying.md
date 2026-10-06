@@ -1,10 +1,13 @@
 ---
-title: "How to Tell When Car Battery is Dying: Key Signs to Watch For"
-description: "Have you ever been stuck with a car that just won’t start? It’s frustrating, and often, the culprit is a dying battery. But how can you tell when your car batte"
+title: 'How to Tell When Car Battery is Dying: Key Signs to Watch For'
+description: Have you ever been stuck with a car that just won’t start? It’s frustrating,
+  and often, the culprit is a dying battery. But how can you tell when your car batte
 pubDate: 2025-11-10
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-tell-when-car-battery-is-dying&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- When to Replace a Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-tell-when-car-battery-is-dying&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever been stuck with a car that just won’t start? It’s frustrating, and often, the culprit is a dying battery.**

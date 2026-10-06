@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for 5.9 Cummins to Boost Power and Efficiency"
-description: "Choosing the best cold air intake for your 5.9 Cummins can boost engine power and efficiency. This guide covers top options for Dodge Ram trucks from 1994 to 20"
+title: Best Cold Air Intake for 5.9 Cummins to Boost Power and Efficiency
+description: Choosing the best cold air intake for your 5.9 Cummins can boost engine
+  power and efficiency. This guide covers top options for Dodge Ram trucks from 1994
+  to 20
 pubDate: 2026-06-28
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-59-cummins&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hemi Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-59-cummins&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best cold air intake for your 5.9 Cummins can boost engine power and efficiency. This guide covers top options for Dodge Ram trucks from 1994 to 2007.**

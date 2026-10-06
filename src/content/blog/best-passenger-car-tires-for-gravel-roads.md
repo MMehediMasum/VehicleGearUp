@@ -1,10 +1,14 @@
 ---
-title: "Best Passenger Car Tires for Gravel Roads: Top All-Terrain Golf Cart Picks"
-description: "Choosing the best passenger car tires for gravel roads improves safety and ride comfort. Tires must handle rough surfaces and provide good grip. Gravel roads ca"
+title: 'Best Passenger Car Tires for Gravel Roads: Top All-Terrain Golf Cart Picks'
+description: Choosing the best passenger car tires for gravel roads improves safety
+  and ride comfort. Tires must handle rough surfaces and provide good grip. Gravel
+  roads ca
 pubDate: 2026-01-07
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-passenger-car-tires-for-gravel-roads&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Mud Street and RV Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-passenger-car-tires-for-gravel-roads&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best passenger car tires for gravel roads improves safety and ride comfort. Tires must handle rough surfaces and provide good grip.**

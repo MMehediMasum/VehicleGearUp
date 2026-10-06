@@ -1,10 +1,14 @@
 ---
-title: "Can You Charge a Car Battery With Another Battery: Quick Guide"
-description: "Have you ever found yourself stuck with a dead car battery and no charger in sight? It’s a frustrating situation that can ruin your plans in seconds. But what i"
+title: 'Can You Charge a Car Battery With Another Battery: Quick Guide'
+description: Have you ever found yourself stuck with a dead car battery and no charger
+  in sight? It’s a frustrating situation that can ruin your plans in seconds. But
+  what i
 pubDate: 2026-05-30
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-charge-a-car-battery-with-another-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Charging a Car Battery
+heroImage: https://tse1.mm.bing.net/th?q=can-you-charge-a-car-battery-with-another-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever found yourself stuck with a dead car battery and no charger in sight? It’s a frustrating situation that can ruin your plans in seconds.**

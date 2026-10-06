@@ -1,10 +1,14 @@
 ---
-title: "Best Car Storage Lifts for Home Garage: Top Heavy-Duty 4 Post Options"
-description: "Maximize your home garage space with the best car storage lifts. These lifts offer safe, easy vehicle storage and maintenance. Car storage lifts help you park o"
+title: 'Best Car Storage Lifts for Home Garage: Top Heavy-Duty 4 Post Options'
+description: Maximize your home garage space with the best car storage lifts. These
+  lifts offer safe, easy vehicle storage and maintenance. Car storage lifts help you
+  park o
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-storage-lifts-for-home-garage&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Garage Car Lifts
+heroImage: https://tse1.mm.bing.net/th?q=best-car-storage-lifts-for-home-garage&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Maximize your home garage space with the best car storage lifts. These lifts offer safe, easy vehicle storage and maintenance.**

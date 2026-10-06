@@ -1,10 +1,14 @@
 ---
-title: "How to Turn off Back Wiper on Ford Escape: Easy Step-by-Step Guide"
-description: "Have you ever been annoyed by your Ford Escape’s back wiper running when you don’t want it to? Maybe it keeps swiping after the rain stops or when you’re washin"
+title: 'How to Turn off Back Wiper on Ford Escape: Easy Step-by-Step Guide'
+description: Have you ever been annoyed by your Ford Escape’s back wiper running when
+  you don’t want it to? Maybe it keeps swiping after the rain stops or when you’re
+  washin
 pubDate: 2025-12-06
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-back-wiper-on-ford-escape&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Windshield Wipers
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-back-wiper-on-ford-escape&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever been annoyed by your Ford Escape’s back wiper running when you don’t want it to? Maybe it keeps swiping after the rain stops or when you’re washing your car.**

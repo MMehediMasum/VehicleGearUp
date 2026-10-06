@@ -1,10 +1,14 @@
 ---
-title: "Can I Leave My Car Battery Disconnected Overnight: Essential Facts"
-description: "Have you ever wondered if it’s safe to leave your car battery disconnected overnight? Maybe you’re trying to save power, reset your car’s electronics, or just w"
+title: 'Can I Leave My Car Battery Disconnected Overnight: Essential Facts'
+description: Have you ever wondered if it’s safe to leave your car battery disconnected
+  overnight? Maybe you’re trying to save power, reset your car’s electronics, or just
+  w
 pubDate: 2026-04-16
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-i-leave-my-car-battery-disconnected-overnight&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Warranty and Storage
+heroImage: https://tse1.mm.bing.net/th?q=can-i-leave-my-car-battery-disconnected-overnight&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if it’s safe to leave your car battery disconnected overnight? Maybe you’re trying to save power, reset your car’s electronics, or just want to avoid a dead battery in the morning.**

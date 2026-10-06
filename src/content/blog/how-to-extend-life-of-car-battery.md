@@ -1,10 +1,13 @@
 ---
-title: "How to Extend Life of Car Battery: Proven Tips for Lasting Power"
-description: "Your car battery is the heart of your vehicle’s electrical system. Without it, your car won’t start, and you could be left stranded at the worst possible moment"
+title: 'How to Extend Life of Car Battery: Proven Tips for Lasting Power'
+description: Your car battery is the heart of your vehicle’s electrical system. Without
+  it, your car won’t start, and you could be left stranded at the worst possible moment
 pubDate: 2026-03-27
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-extend-life-of-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Types and Specs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-extend-life-of-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Your car battery is the heart of your vehicle’s electrical system. Without it, your car won’t start, and you could be left stranded at the worst possible moment.**

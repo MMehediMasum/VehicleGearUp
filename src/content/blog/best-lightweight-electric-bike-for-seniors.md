@@ -1,10 +1,14 @@
 ---
-title: "Best Lightweight Electric Bike for Seniors: Top Portable and Quiet Picks"
-description: "Finding the best lightweight electric bike for seniors can make outdoor rides safer and more enjoyable. Seniors need bikes that are easy to handle and not too h"
+title: 'Best Lightweight Electric Bike for Seniors: Top Portable and Quiet Picks'
+description: Finding the best lightweight electric bike for seniors can make outdoor
+  rides safer and more enjoyable. Seniors need bikes that are easy to handle and not
+  too h
 pubDate: 2026-07-25
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lightweight-electric-bike-for-seniors&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Electric and Mountain Bikes
+heroImage: https://tse1.mm.bing.net/th?q=best-lightweight-electric-bike-for-seniors&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Finding the best lightweight electric bike for seniors can make outdoor rides safer and more enjoyable. Seniors need bikes that are easy to handle and not too heavy.**

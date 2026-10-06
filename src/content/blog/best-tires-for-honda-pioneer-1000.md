@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Honda Pioneer 1000: Top Durable UTV Tire Picks"
-description: "Choosing the best tires for your Honda Pioneer 1000 improves performance and safety on any terrain. The right tires boost traction, durability, and ride comfort"
+title: 'Best Tires for Honda Pioneer 1000: Top Durable UTV Tire Picks'
+description: Choosing the best tires for your Honda Pioneer 1000 improves performance
+  and safety on any terrain. The right tires boost traction, durability, and ride
+  comfort
 pubDate: 2025-12-27
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-honda-pioneer-1000&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-honda-pioneer-1000&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your Honda Pioneer 1000 improves performance and safety on any terrain. The right tires boost traction, durability, and ride comfort.**

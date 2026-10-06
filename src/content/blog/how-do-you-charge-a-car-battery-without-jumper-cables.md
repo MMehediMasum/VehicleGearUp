@@ -1,10 +1,14 @@
 ---
-title: "How Do You Charge a Car Battery Without Jumper Cables: Easy Hacks"
-description: "Have you ever found yourself stuck with a dead car battery and no jumper cables in sight? It’s frustrating, right? But don’t panic—there are simple ways you can"
+title: 'How Do You Charge a Car Battery Without Jumper Cables: Easy Hacks'
+description: Have you ever found yourself stuck with a dead car battery and no jumper
+  cables in sight? It’s frustrating, right? But don’t panic—there are simple ways
+  you can
 pubDate: 2026-04-17
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-charge-a-car-battery-without-jumper-cables&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Terminal Care
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-charge-a-car-battery-without-jumper-cables&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever found yourself stuck with a dead car battery and no jumper cables in sight? It’s frustrating, right?**

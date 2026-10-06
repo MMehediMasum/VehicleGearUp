@@ -1,10 +1,14 @@
 ---
-title: "How to Fix a Slow Leak on a Car Tire: Easy Steps to Save You Time"
-description: "Is your car tire losing air slowly, making every drive a bit more stressful? A slow leak can be tricky—it doesn’t always show clear signs until it’s too late. B"
+title: 'How to Fix a Slow Leak on a Car Tire: Easy Steps to Save You Time'
+description: Is your car tire losing air slowly, making every drive a bit more stressful?
+  A slow leak can be tricky—it doesn’t always show clear signs until it’s too late.
+  B
 pubDate: 2026-05-11
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-a-slow-leak-on-a-car-tire&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Checking Tire Pressure
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-a-slow-leak-on-a-car-tire&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Is your car tire losing air slowly, making every drive a bit more stressful? A slow leak can be tricky—it doesn’t always show clear signs until it’s too late.**

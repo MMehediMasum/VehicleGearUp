@@ -1,10 +1,13 @@
 ---
-title: "Best All Terrain Tires for Chevy Colorado: Top Picks for Rugged Performance"
-description: "Choosing the best all terrain tires improves your Chevy Colorado’s performance on and off the road. The right tires offer traction, durability, and safety in va"
+title: 'Best All Terrain Tires for Chevy Colorado: Top Picks for Rugged Performance'
+description: Choosing the best all terrain tires improves your Chevy Colorado’s performance
+  on and off the road. The right tires offer traction, durability, and safety in va
 pubDate: 2026-01-08
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-all-terrain-tires-for-chevy-colorado&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- All Terrain Truck Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-all-terrain-tires-for-chevy-colorado&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best all terrain tires improves your Chevy Colorado’s performance on and off the road. The right tires offer traction, durability, and safety in various conditions.**

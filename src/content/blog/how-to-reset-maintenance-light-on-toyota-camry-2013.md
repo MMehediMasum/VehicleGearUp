@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Maintenance Light on Toyota Camry 2013: Quick Guide"
-description: "Your Toyota Camry’s maintenance light just came on, and now you’re wondering what to do next. You don’t want to ignore it, but taking your car to a mechanic eve"
+title: 'How to Reset Maintenance Light on Toyota Camry 2013: Quick Guide'
+description: Your Toyota Camry’s maintenance light just came on, and now you’re wondering
+  what to do next. You don’t want to ignore it, but taking your car to a mechanic
+  eve
 pubDate: 2026-05-29
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-maintenance-light-on-toyota-camry-2013&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Maintenance Light Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-maintenance-light-on-toyota-camry-2013&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Your Toyota Camry’s maintenance light just came on, and now you’re wondering what to do next. You don’t want to ignore it, but taking your car to a mechanic every time can be costly and time-consuming.**

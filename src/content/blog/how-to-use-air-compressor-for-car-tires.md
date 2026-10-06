@@ -1,10 +1,14 @@
 ---
-title: "How to Use Air Compressor for Car Tires: Easy Step-by-Step Guide"
-description: "Are your car tires feeling a little low? Knowing how to use an air compressor for car tires can save you time, money, and even keep you safe on the road. You mi"
+title: 'How to Use Air Compressor for Car Tires: Easy Step-by-Step Guide'
+description: Are your car tires feeling a little low? Knowing how to use an air compressor
+  for car tires can save you time, money, and even keep you safe on the road. You
+  mi
 pubDate: 2025-12-11
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-use-air-compressor-for-car-tires&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tire Inflators and Compressors
+heroImage: https://tse1.mm.bing.net/th?q=how-to-use-air-compressor-for-car-tires&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Are your car tires feeling a little low? Knowing how to use an air compressor for car tires can save you time, money, and even keep you safe on the road.**

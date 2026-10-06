@@ -1,10 +1,13 @@
 ---
-title: "How to Reset Bluetooth in Tesla Model Y: Quick & Easy Guide"
-description: "Is your Tesla Model Y’s Bluetooth acting up and making it hard to connect your devices? You’re not alone. When your phone won’t sync or the audio keeps cutting "
+title: 'How to Reset Bluetooth in Tesla Model Y: Quick & Easy Guide'
+description: 'Is your Tesla Model Y’s Bluetooth acting up and making it hard to connect
+  your devices? You’re not alone. When your phone won’t sync or the audio keeps cutting '
 pubDate: 2025-12-11
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-bluetooth-in-tesla-model-y&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Model Y Features
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-bluetooth-in-tesla-model-y&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Is your Tesla Model Y’s Bluetooth acting up and making it hard to connect your devices? You’re not alone.**

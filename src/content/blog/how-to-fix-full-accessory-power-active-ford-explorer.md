@@ -1,10 +1,14 @@
 ---
-title: "How to Fix Full Accessory Power Active Ford Explorer: Quick Solutions"
-description: "Is your Ford Explorer showing the dreaded \"Full Accessory Power Active\" message? This warning can be confusing and frustrating, especially when you just want to"
+title: 'How to Fix Full Accessory Power Active Ford Explorer: Quick Solutions'
+description: Is your Ford Explorer showing the dreaded "Full Accessory Power Active"
+  message? This warning can be confusing and frustrating, especially when you just
+  want to
 pubDate: 2026-05-13
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-full-accessory-power-active-ford-explorer&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford F150 Resets and Fixes
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-full-accessory-power-active-ford-explorer&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your Ford Explorer showing the dreaded "Full Accessory Power Active" message? This warning can be confusing and frustrating, especially when you just want to get on with your drive.**

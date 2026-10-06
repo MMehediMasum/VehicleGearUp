@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for a F150 4X4: Top Durable All-Terrain Picks Reviewed"
-description: "Choosing the best tires for a F150 4X4 improves safety, performance, and off-road capability. The right tires handle rough terrain and tough weather conditions "
+title: 'Best Tires for a F150 4X4: Top Durable All-Terrain Picks Reviewed'
+description: 'Choosing the best tires for a F150 4X4 improves safety, performance,
+  and off-road capability. The right tires handle rough terrain and tough weather
+  conditions '
 pubDate: 2025-12-30
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-a-f150-4x4&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford 4x4 Truck Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-a-f150-4x4&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for a F150 4X4 improves safety, performance, and off-road capability. The right tires handle rough terrain and tough weather conditions well.**

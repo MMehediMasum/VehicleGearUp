@@ -1,10 +1,14 @@
 ---
-title: "Best 2-Bike Rack for SUV No Hitch – Top Trunk Mount Options"
-description: "Finding the best 2-bike rack for an SUV without a hitch can be tricky. Most racks need a hitch, but some fit your SUV’s trunk or roof. SUV owners often want a s"
+title: Best 2-Bike Rack for SUV No Hitch – Top Trunk Mount Options
+description: Finding the best 2-bike rack for an SUV without a hitch can be tricky.
+  Most racks need a hitch, but some fit your SUV’s trunk or roof. SUV owners often
+  want a s
 pubDate: 2025-10-27
-author: "herbertlangham"
-categories: ["Towing & Hauling"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-2-bike-rack-for-suv-no-hitch&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hitch Bike Racks
+heroImage: https://tse1.mm.bing.net/th?q=best-2-bike-rack-for-suv-no-hitch&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Finding the best 2-bike rack for an SUV without a hitch can be tricky. Most racks need a hitch, but some fit your SUV’s trunk or roof.**

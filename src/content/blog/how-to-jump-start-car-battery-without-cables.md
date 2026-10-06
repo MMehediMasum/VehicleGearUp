@@ -1,10 +1,14 @@
 ---
-title: "How to Jump Start Car Battery Without Cables: A Quick and Safe Solution"
-description: "Imagine this: you’re all set to head out, but your car won’t start. The battery is dead, and you don’t have jumper cables. Frustrating, right? What if you could"
+title: 'How to Jump Start Car Battery Without Cables: A Quick and Safe Solution'
+description: 'Imagine this: you’re all set to head out, but your car won’t start.
+  The battery is dead, and you don’t have jumper cables. Frustrating, right? What
+  if you could'
 pubDate: 2026-04-04
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-jump-start-car-battery-without-cables&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Starting Without a Key
+heroImage: https://tse1.mm.bing.net/th?q=how-to-jump-start-car-battery-without-cables&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **Imagine this: you’re all set to head out, but your car won’t start. The battery is dead, and you don’t have jumper cables.**

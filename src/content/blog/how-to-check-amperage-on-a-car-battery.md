@@ -1,10 +1,14 @@
 ---
-title: "How to Check Amperage on a Car Battery: Easy Step-by-Step Guide"
-description: "Want to know if your car battery is really working the way it should? Checking the amperage on your car battery is a simple step that can save you from unexpect"
+title: 'How to Check Amperage on a Car Battery: Easy Step-by-Step Guide'
+description: Want to know if your car battery is really working the way it should?
+  Checking the amperage on your car battery is a simple step that can save you from
+  unexpect
 pubDate: 2025-09-18
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-check-amperage-on-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Types and Specs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-check-amperage-on-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Want to know if your car battery is really working the way it should? Checking the amperage on your car battery is a simple step that can save you from unexpected breakdowns and costly repairs.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Turn off Maint Reqd Toyota Corolla: Quick & Easy Guide"
-description: "If you own a Toyota Corolla, you’ve probably seen the “Maint Reqd” light pop up on your dashboard. It can be confusing and even a little frustrating when you’re"
+title: 'How to Turn off Maint Reqd Toyota Corolla: Quick & Easy Guide'
+description: If you own a Toyota Corolla, you’ve probably seen the “Maint Reqd” light
+  pop up on your dashboard. It can be confusing and even a little frustrating when
+  you’re
 pubDate: 2025-12-10
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-maint-reqd-toyota-corolla&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Maint Reqd Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-maint-reqd-toyota-corolla&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a Toyota Corolla, you’ve probably seen the “Maint Reqd” light pop up on your dashboard. It can be confusing and even a little frustrating when you’re not sure how to turn it off.**

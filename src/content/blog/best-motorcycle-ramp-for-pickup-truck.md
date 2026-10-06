@@ -1,10 +1,14 @@
 ---
-title: "Best Motorcycle Ramp for Pickup Truck: Top Durable Folding Aluminum Ramps"
-description: "Choosing the best motorcycle ramp for your pickup truck makes loading and unloading easier and safer. A good ramp supports your bike’s weight and fits your truc"
+title: 'Best Motorcycle Ramp for Pickup Truck: Top Durable Folding Aluminum Ramps'
+description: Choosing the best motorcycle ramp for your pickup truck makes loading
+  and unloading easier and safer. A good ramp supports your bike’s weight and fits
+  your truc
 pubDate: 2026-01-14
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-motorcycle-ramp-for-pickup-truck&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Helmets and Boots
+heroImage: https://tse1.mm.bing.net/th?q=best-motorcycle-ramp-for-pickup-truck&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best motorcycle ramp for your pickup truck makes loading and unloading easier and safer. A good ramp supports your bike’s weight and fits your truck’s size perfectly.**

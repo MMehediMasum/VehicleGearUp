@@ -1,10 +1,14 @@
 ---
-title: "Will a Bike Pump Fill a Car Tire: Essential Facts You Need"
-description: "Have you ever wondered if your bike pump can save the day when your car tire is low on air? It’s a question many of us ask in a pinch. You might think grabbing "
+title: 'Will a Bike Pump Fill a Car Tire: Essential Facts You Need'
+description: 'Have you ever wondered if your bike pump can save the day when your
+  car tire is low on air? It’s a question many of us ask in a pinch. You might think
+  grabbing '
 pubDate: 2025-12-16
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=will-a-bike-pump-fill-a-car-tire&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tire Age Pressure and Size
+heroImage: https://tse1.mm.bing.net/th?q=will-a-bike-pump-fill-a-car-tire&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Have you ever wondered if your bike pump can save the day when your car tire is low on air? It’s a question many of us ask in a pinch.**

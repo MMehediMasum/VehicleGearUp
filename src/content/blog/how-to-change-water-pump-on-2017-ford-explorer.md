@@ -1,10 +1,14 @@
 ---
-title: "How to Change Water Pump on 2017 Ford Explorer: Step-by-Step Guide"
-description: "If your 2017 Ford Explorer is showing signs of a failing water pump, you might be wondering how to fix it without spending a fortune at the mechanic. Changing t"
+title: 'How to Change Water Pump on 2017 Ford Explorer: Step-by-Step Guide'
+description: If your 2017 Ford Explorer is showing signs of a failing water pump,
+  you might be wondering how to fix it without spending a fortune at the mechanic.
+  Changing t
 pubDate: 2025-12-06
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-water-pump-on-2017-ford-explorer&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-water-pump-on-2017-ford-explorer&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **If your 2017 Ford Explorer is showing signs of a failing water pump, you might be wondering how to fix it without spending a fortune at the mechanic. Changing the water pump yourself may sound tricky, but with the right steps, you can do it confidently and save time and money.**

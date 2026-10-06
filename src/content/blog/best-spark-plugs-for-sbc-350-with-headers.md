@@ -1,10 +1,13 @@
 ---
-title: "Best Spark Plugs for Sbc 350 With Headers for Ultimate Performance Boost"
-description: "Choosing the best spark plugs for an SBC 350 with headers improves engine performance and reliability. Proper spark plugs and wires help the engine run smoothly"
+title: Best Spark Plugs for Sbc 350 With Headers for Ultimate Performance Boost
+description: Choosing the best spark plugs for an SBC 350 with headers improves engine
+  performance and reliability. Proper spark plugs and wires help the engine run smoothly
 pubDate: 2026-06-07
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-spark-plugs-for-sbc-350-with-headers&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spark Plug Maintenance
+heroImage: https://tse1.mm.bing.net/th?q=best-spark-plugs-for-sbc-350-with-headers&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best spark plugs for an SBC 350 with headers improves engine performance and reliability. Proper spark plugs and wires help the engine run smoothly under high heat from headers.**

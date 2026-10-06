@@ -1,10 +1,13 @@
 ---
-title: "Best Tires for Polaris Sportsman 570: Top All-Terrain Picks Reviewed"
-description: "Choosing the best tires for your Polaris Sportsman 570 improves performance and safety on rough trails. The right tires boost traction, comfort, and durability "
+title: 'Best Tires for Polaris Sportsman 570: Top All-Terrain Picks Reviewed'
+description: 'Choosing the best tires for your Polaris Sportsman 570 improves performance
+  and safety on rough trails. The right tires boost traction, comfort, and durability '
 pubDate: 2025-12-22
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-polaris-sportsman-570&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- ATV Tires and Speed
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-polaris-sportsman-570&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best tires for your Polaris Sportsman 570 improves performance and safety on rough trails. The right tires boost traction, comfort, and durability for all terrains.**

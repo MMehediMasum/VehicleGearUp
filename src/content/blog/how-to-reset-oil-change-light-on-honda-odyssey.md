@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Change Light on Honda Odyssey: Easy Steps Guide"
-description: "Your Honda Odyssey’s oil change light just came on, and you’re wondering what to do next. You don’t want to ignore it, but you also don’t want to spend extra ti"
+title: 'How to Reset Oil Change Light on Honda Odyssey: Easy Steps Guide'
+description: Your Honda Odyssey’s oil change light just came on, and you’re wondering
+  what to do next. You don’t want to ignore it, but you also don’t want to spend extra
+  ti
 pubDate: 2025-11-06
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-change-light-on-honda-odyssey&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Oil Change Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-change-light-on-honda-odyssey&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Your Honda Odyssey’s oil change light just came on, and you’re wondering what to do next. You don’t want to ignore it, but you also don’t want to spend extra time or money at the shop if you don’t have to.**

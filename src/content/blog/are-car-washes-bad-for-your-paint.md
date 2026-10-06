@@ -1,10 +1,14 @@
 ---
-title: "Are Car Washes Bad for Your Paint? Shocking Truth Revealed!"
-description: "You love your car and want to keep it looking its best. But have you ever wondered if those regular car washes might actually harm your paint? It’s a question m"
+title: Are Car Washes Bad for Your Paint? Shocking Truth Revealed!
+description: You love your car and want to keep it looking its best. But have you
+  ever wondered if those regular car washes might actually harm your paint? It’s a
+  question m
 pubDate: 2026-03-23
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-car-washes-bad-for-your-paint&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Do Car Washes Damage Paint
+heroImage: https://tse1.mm.bing.net/th?q=are-car-washes-bad-for-your-paint&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **You love your car and want to keep it looking its best. But have you ever wondered if those regular car washes might actually harm your paint?**

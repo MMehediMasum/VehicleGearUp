@@ -1,10 +1,14 @@
 ---
-title: "How to Change Door Code on Ford F150: Quick & Easy Guide"
-description: "Changing the door code on your Ford F150 might seem tricky, but it’s easier than you think. If you want to keep your truck secure or just update your code for c"
+title: 'How to Change Door Code on Ford F150: Quick & Easy Guide'
+description: Changing the door code on your Ford F150 might seem tricky, but it’s
+  easier than you think. If you want to keep your truck secure or just update your
+  code for c
 pubDate: 2026-01-24
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-door-code-on-ford-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Door Codes and Lock Lube
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-door-code-on-ford-f150&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **Changing the door code on your Ford F150 might seem tricky, but it’s easier than you think. If you want to keep your truck secure or just update your code for convenience, this guide is made for you.**

@@ -1,10 +1,14 @@
 ---
-title: "Do You Need to Add Water to Car Battery: Essential Maintenance Tips"
-description: "Have you ever wondered if you need to add water to your car battery? It’s a common question that many car owners face but don’t always get a clear answer to. Th"
+title: 'Do You Need to Add Water to Car Battery: Essential Maintenance Tips'
+description: Have you ever wondered if you need to add water to your car battery?
+  It’s a common question that many car owners face but don’t always get a clear answer
+  to. Th
 pubDate: 2026-05-06
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-you-need-to-add-water-to-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Terminal Care
+heroImage: https://tse1.mm.bing.net/th?q=do-you-need-to-add-water-to-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if you need to add water to your car battery? It’s a common question that many car owners face but don’t always get a clear answer to.**

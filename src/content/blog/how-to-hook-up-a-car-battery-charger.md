@@ -1,10 +1,14 @@
 ---
-title: "How to Hook Up a Car Battery Charger: Easy Steps for Fast Charging"
-description: "If your car battery is dead, you don’t have to wait for help or pay for expensive services. You can quickly bring it back to life by hooking up a car battery ch"
+title: 'How to Hook Up a Car Battery Charger: Easy Steps for Fast Charging'
+description: If your car battery is dead, you don’t have to wait for help or pay for
+  expensive services. You can quickly bring it back to life by hooking up a car battery
+  ch
 pubDate: 2026-04-11
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hook-up-a-car-battery-charger&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Using Battery Chargers
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hook-up-a-car-battery-charger&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **If your car battery is dead, you don’t have to wait for help or pay for expensive services. You can quickly bring it back to life by hooking up a car battery charger yourself.**

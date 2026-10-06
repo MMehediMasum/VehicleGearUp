@@ -1,10 +1,14 @@
 ---
-title: "Can a Tesla Go Thru a Car Wash: Essential Safety Tips Revealed"
-description: "Are you wondering if your Tesla can safely go through a car wash? You’re not alone. Many Tesla owners ask this question before hitting the automatic wash. After"
+title: 'Can a Tesla Go Thru a Car Wash: Essential Safety Tips Revealed'
+description: Are you wondering if your Tesla can safely go through a car wash? You’re
+  not alone. Many Tesla owners ask this question before hitting the automatic wash.
+  After
 pubDate: 2025-09-09
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-a-tesla-go-thru-a-car-wash&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Washing Electric Cars
+heroImage: https://tse1.mm.bing.net/th?q=can-a-tesla-go-thru-a-car-wash&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you wondering if your Tesla can safely go through a car wash? You’re not alone.**

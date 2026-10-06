@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Snow And Off Road: Top Durable Picks for Extreme Terrain"
-description: "Choosing the best tires for snow and off-road adventures is essential for safety and performance. Tires must handle rough trails and slippery snow with equal ea"
+title: 'Best Tires for Snow And Off Road: Top Durable Picks for Extreme Terrain'
+description: Choosing the best tires for snow and off-road adventures is essential
+  for safety and performance. Tires must handle rough trails and slippery snow with
+  equal ea
 pubDate: 2026-01-04
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-snow-and-off-road&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jeep Off Road Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-snow-and-off-road&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for snow and off-road adventures is essential for safety and performance. Tires must handle rough trails and slippery snow with equal ease.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "What Do I Need to Open Car Wash Business: Essential Steps Revealed"
 description: "Are you thinking about opening a car wash business but unsure where to start? You’re not alone. Many people see the potential in this industry but get stuck won"
 pubDate: 2025-09-07

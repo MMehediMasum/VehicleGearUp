@@ -1,10 +1,14 @@
 ---
-title: "How to Get Mice Out of Car Dashboard: Easy & Effective Tips"
-description: "You’ve probably noticed strange noises or even seen tiny droppings around your car dashboard. It’s a clear sign that mice have made your car their new home. Thi"
+title: 'How to Get Mice Out of Car Dashboard: Easy & Effective Tips'
+description: You’ve probably noticed strange noises or even seen tiny droppings around
+  your car dashboard. It’s a clear sign that mice have made your car their new home.
+  Thi
 pubDate: 2026-02-16
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-get-mice-out-of-car-dashboard&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Keeping Pests Out of Engines
+heroImage: https://tse1.mm.bing.net/th?q=how-to-get-mice-out-of-car-dashboard&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **You’ve probably noticed strange noises or even seen tiny droppings around your car dashboard. It’s a clear sign that mice have made your car their new home.**

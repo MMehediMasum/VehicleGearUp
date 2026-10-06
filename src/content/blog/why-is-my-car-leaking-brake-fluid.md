@@ -1,10 +1,14 @@
 ---
-title: "Why is My Car Leaking Brake Fluid: Causes & Quick Fixes"
-description: "Have you noticed a wet spot under your car and wondered, “Why is my car leaking brake fluid?” This is more than just a small drip—it’s a sign that your vehicle’"
+title: 'Why is My Car Leaking Brake Fluid: Causes & Quick Fixes'
+description: Have you noticed a wet spot under your car and wondered, “Why is my car
+  leaking brake fluid?” This is more than just a small drip—it’s a sign that your
+  vehicle’
 pubDate: 2026-05-02
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-is-my-car-leaking-brake-fluid&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Brake and Washer Fluids
+heroImage: https://tse1.mm.bing.net/th?q=why-is-my-car-leaking-brake-fluid&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you noticed a wet spot under your car and wondered, “Why is my car leaking brake fluid?” This is more than just a small drip—it’s a sign that your vehicle’s braking system might be in trouble. Brake fluid leaks can put your safety at risk and lead to costly repairs if ignored.**

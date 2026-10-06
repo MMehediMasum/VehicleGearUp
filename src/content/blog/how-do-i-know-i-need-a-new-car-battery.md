@@ -1,10 +1,14 @@
 ---
-title: "How Do I Know I Need a New Car Battery: Key Signs to Watch For"
-description: "Is your car struggling to start, or have you noticed dimmer headlights lately? These might be signs that your car battery is on its last legs. But how do you re"
+title: 'How Do I Know I Need a New Car Battery: Key Signs to Watch For'
+description: Is your car struggling to start, or have you noticed dimmer headlights
+  lately? These might be signs that your car battery is on its last legs. But how
+  do you re
 pubDate: 2026-04-21
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-i-know-i-need-a-new-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Fixing Battery Drain
+heroImage: https://tse1.mm.bing.net/th?q=how-do-i-know-i-need-a-new-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your car struggling to start, or have you noticed dimmer headlights lately? These might be signs that your car battery is on its last legs.**

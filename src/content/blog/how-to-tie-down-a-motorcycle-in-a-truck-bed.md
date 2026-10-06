@@ -1,10 +1,14 @@
 ---
-title: "How to Tie down a Motorcycle in a Truck Bed: Ultimate Safety Guide"
-description: "You’ve got your motorcycle ready to go, but how do you make sure it stays safe and secure in your truck bed? Tying down a motorcycle might seem tricky, but with"
+title: 'How to Tie down a Motorcycle in a Truck Bed: Ultimate Safety Guide'
+description: You’ve got your motorcycle ready to go, but how do you make sure it stays
+  safe and secure in your truck bed? Tying down a motorcycle might seem tricky, but
+  with
 pubDate: 2026-01-30
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-tie-down-a-motorcycle-in-a-truck-bed&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hauling Motorcycles in Trucks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-tie-down-a-motorcycle-in-a-truck-bed&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **You’ve got your motorcycle ready to go, but how do you make sure it stays safe and secure in your truck bed? Tying down a motorcycle might seem tricky, but with the right steps, you can protect your bike from damage and avoid dangerous accidents.**

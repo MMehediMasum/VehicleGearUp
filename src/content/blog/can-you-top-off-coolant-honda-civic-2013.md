@@ -1,10 +1,14 @@
 ---
-title: "Can You Top off Coolant Honda Civic 2013: Essential Maintenance Tips"
-description: "If you own a 2013 Honda Civic, keeping your engine cool is key to its performance and longevity. You might be wondering, “Can I just top off the coolant myself?"
+title: 'Can You Top off Coolant Honda Civic 2013: Essential Maintenance Tips'
+description: If you own a 2013 Honda Civic, keeping your engine cool is key to its
+  performance and longevity. You might be wondering, “Can I just top off the coolant
+  myself?
 pubDate: 2026-04-29
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-top-off-coolant-honda-civic-2013&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Coolant and AC Recharge
+heroImage: https://tse1.mm.bing.net/th?q=can-you-top-off-coolant-honda-civic-2013&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a 2013 Honda Civic, keeping your engine cool is key to its performance and longevity. You might be wondering, “Can I just top off the coolant myself?” It’s a simple question, but the answer can save you time, money, and prevent serious engine trouble.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Keep Rodents Out of Car Engine: Proven Tips That Work"
-description: "Have you ever found yourself staring under your car’s hood, only to discover unwanted furry guests have made it their home? Rodents can cause serious damage to "
+title: 'How to Keep Rodents Out of Car Engine: Proven Tips That Work'
+description: 'Have you ever found yourself staring under your car’s hood, only to
+  discover unwanted furry guests have made it their home? Rodents can cause serious
+  damage to '
 pubDate: 2025-10-31
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-keep-rodents-out-of-car-engine&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Keeping Pests Out of Engines
+heroImage: https://tse1.mm.bing.net/th?q=how-to-keep-rodents-out-of-car-engine&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever found yourself staring under your car’s hood, only to discover unwanted furry guests have made it their home? Rodents can cause serious damage to your car engine by chewing wires, nesting in tight spaces, and leaving behind harmful debris.**

@@ -1,10 +1,13 @@
 ---
-title: "Best off the Market Brake Pads for Maserati SUV: Ultimate Performance Guide"
-description: "Finding the best brake pads for your Maserati SUV ensures safety and smooth driving. Choose quality pads that fit models like Levante, Ghibli, and Quattroporte."
+title: 'Best off the Market Brake Pads for Maserati SUV: Ultimate Performance Guide'
+description: Finding the best brake pads for your Maserati SUV ensures safety and
+  smooth driving. Choose quality pads that fit models like Levante, Ghibli, and Quattroporte.
 pubDate: 2026-07-13
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-off-the-market-brake-pads-for-maserati-suv&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Best Brake Pads
+heroImage: https://tse1.mm.bing.net/th?q=best-off-the-market-brake-pads-for-maserati-suv&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Finding the best brake pads for your Maserati SUV ensures safety and smooth driving. Choose quality pads that fit models like Levante, Ghibli, and Quattroporte.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Replace Passenger Door Window Audi Q5 2013: Easy Step-by-Step Guide"
-description: "Is your Audi Q5 2013 passenger door window cracked, stuck, or completely broken? You don’t have to spend a fortune at the dealership or wait weeks for a repair."
+title: 'How to Replace Passenger Door Window Audi Q5 2013: Easy Step-by-Step Guide'
+description: Is your Audi Q5 2013 passenger door window cracked, stuck, or completely
+  broken? You don’t have to spend a fortune at the dealership or wait weeks for a
+  repair.
 pubDate: 2026-05-18
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-replace-passenger-door-window-audi-q5-2013&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Windshield and Mirror Repair
+heroImage: https://tse1.mm.bing.net/th?q=how-to-replace-passenger-door-window-audi-q5-2013&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Is your Audi Q5 2013 passenger door window cracked, stuck, or completely broken? You don’t have to spend a fortune at the dealership or wait weeks for a repair.**

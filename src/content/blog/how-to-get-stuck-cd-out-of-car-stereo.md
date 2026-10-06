@@ -1,10 +1,14 @@
 ---
-title: "How to Get Stuck Cd Out of Car Stereo: Quick and Easy Fixes"
-description: "You’re sitting in your car, ready to enjoy your favorite music, when suddenly you realize your CD is stuck inside the stereo. Frustrating, right? If you don’t a"
+title: 'How to Get Stuck Cd Out of Car Stereo: Quick and Easy Fixes'
+description: You’re sitting in your car, ready to enjoy your favorite music, when
+  suddenly you realize your CD is stuck inside the stereo. Frustrating, right? If
+  you don’t a
 pubDate: 2025-09-04
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-get-stuck-cd-out-of-car-stereo&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Choosing Car Stereos
+heroImage: https://tse1.mm.bing.net/th?q=how-to-get-stuck-cd-out-of-car-stereo&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **You’re sitting in your car, ready to enjoy your favorite music, when suddenly you realize your CD is stuck inside the stereo. Frustrating, right?**

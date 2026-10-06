@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for Toyota Tacoma to Boost Performance & Power"
-description: "Finding the best cold air intake for your Toyota Tacoma can boost engine power and improve fuel efficiency. Choosing the right system helps your truck breathe b"
+title: Best Cold Air Intake for Toyota Tacoma to Boost Performance & Power
+description: Finding the best cold air intake for your Toyota Tacoma can boost engine
+  power and improve fuel efficiency. Choosing the right system helps your truck breathe
+  b
 pubDate: 2026-06-30
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-toyota-tacoma&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Engine Specific Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-toyota-tacoma&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Finding the best cold air intake for your Toyota Tacoma can boost engine power and improve fuel efficiency. Choosing the right system helps your truck breathe better and perform stronger.**

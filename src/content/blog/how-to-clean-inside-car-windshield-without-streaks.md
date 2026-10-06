@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Inside Car Windshield Without Streaks: Expert Tips"
-description: "You want a clear, streak-free view through your car windshield, right? But cleaning the inside can be tricky. Smudges and streaks often ruin your effort, making"
+title: 'How to Clean Inside Car Windshield Without Streaks: Expert Tips'
+description: You want a clear, streak-free view through your car windshield, right?
+  But cleaning the inside can be tricky. Smudges and streaks often ruin your effort,
+  making
 pubDate: 2026-03-18
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-inside-car-windshield-without-streaks&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Windshield and Mirror Repair
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-inside-car-windshield-without-streaks&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **You want a clear, streak-free view through your car windshield, right? But cleaning the inside can be tricky.**

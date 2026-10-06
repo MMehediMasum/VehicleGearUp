@@ -1,10 +1,14 @@
 ---
-title: "Best All Season Tires for Toyota Corolla: Top Durable Picks Reviewed"
-description: "Choosing the right all-season tires improves your Toyota Corolla’s safety and performance all year. This guide covers the best tire options for a smooth, reliab"
+title: 'Best All Season Tires for Toyota Corolla: Top Durable Picks Reviewed'
+description: Choosing the right all-season tires improves your Toyota Corolla’s safety
+  and performance all year. This guide covers the best tire options for a smooth,
+  reliab
 pubDate: 2026-01-04
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-all-season-tires-for-toyota-corolla&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- All Season SUV Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-all-season-tires-for-toyota-corolla&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the right all-season tires improves your Toyota Corolla’s safety and performance all year. This guide covers the best tire options for a smooth, reliable ride.**

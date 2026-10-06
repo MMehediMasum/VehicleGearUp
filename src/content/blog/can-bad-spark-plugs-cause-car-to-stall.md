@@ -1,10 +1,14 @@
 ---
-title: "Can Bad Spark Plugs Cause Car to Stall: Shocking Truth Revealed"
-description: "Have you ever been driving when suddenly your car just stalls out of nowhere? It’s frustrating, scary, and can leave you stranded. One common but often overlook"
+title: 'Can Bad Spark Plugs Cause Car to Stall: Shocking Truth Revealed'
+description: Have you ever been driving when suddenly your car just stalls out of
+  nowhere? It’s frustrating, scary, and can leave you stranded. One common but often
+  overlook
 pubDate: 2026-02-27
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-bad-spark-plugs-cause-car-to-stall&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spark Plug Misfire Symptoms
+heroImage: https://tse1.mm.bing.net/th?q=can-bad-spark-plugs-cause-car-to-stall&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you ever been driving when suddenly your car just stalls out of nowhere? It’s frustrating, scary, and can leave you stranded.**

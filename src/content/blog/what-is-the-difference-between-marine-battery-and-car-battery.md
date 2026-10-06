@@ -1,10 +1,13 @@
 ---
-title: "What is the Difference between Marine Battery And Car Battery: Key Facts Revealed"
-description: "Are you confused about whether you need a marine battery or a car battery? You’re not alone. Both look similar, but they serve very different purposes. Choosing"
+title: 'What is the Difference between Marine Battery And Car Battery: Key Facts Revealed'
+description: Are you confused about whether you need a marine battery or a car battery?
+  You’re not alone. Both look similar, but they serve very different purposes. Choosing
 pubDate: 2026-04-07
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-difference-between-marine-battery-and-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Price and Installation
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-difference-between-marine-battery-and-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you confused about whether you need a marine battery or a car battery? You’re not alone.**

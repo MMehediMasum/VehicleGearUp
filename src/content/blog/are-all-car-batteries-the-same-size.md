@@ -1,10 +1,14 @@
 ---
-title: "Are All Car Batteries the Same Size? Essential Facts Revealed"
-description: "When it’s time to replace your car battery, you might think any battery will do. But are all car batteries the same size? The answer could save you from a costl"
+title: Are All Car Batteries the Same Size? Essential Facts Revealed
+description: When it’s time to replace your car battery, you might think any battery
+  will do. But are all car batteries the same size? The answer could save you from
+  a costl
 pubDate: 2025-11-07
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-all-car-batteries-the-same-size&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Types and Specs
+heroImage: https://tse1.mm.bing.net/th?q=are-all-car-batteries-the-same-size&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **When it’s time to replace your car battery, you might think any battery will do. But are all car batteries the same size?**

@@ -1,10 +1,14 @@
 ---
-title: "Best Sewing Machine for Car Upholstery: Top Heavy-Duty Kits Reviewed"
-description: "Choosing the best sewing machine for car upholstery ensures strong, neat repairs on tough materials. Durable machines handle leather, vinyl, and heavy fabrics w"
+title: 'Best Sewing Machine for Car Upholstery: Top Heavy-Duty Kits Reviewed'
+description: Choosing the best sewing machine for car upholstery ensures strong, neat
+  repairs on tough materials. Durable machines handle leather, vinyl, and heavy fabrics
+  w
 pubDate: 2026-06-16
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-sewing-machine-for-car-upholstery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Leather and Dashboard Care
+heroImage: https://tse1.mm.bing.net/th?q=best-sewing-machine-for-car-upholstery&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best sewing machine for car upholstery ensures strong, neat repairs on tough materials. Durable machines handle leather, vinyl, and heavy fabrics with ease.**

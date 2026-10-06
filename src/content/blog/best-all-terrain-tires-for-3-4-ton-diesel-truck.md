@@ -1,10 +1,14 @@
 ---
-title: "Best All Terrain Tires for 3 4 Ton Diesel Truck: Top Picks Reviewed"
-description: "Choosing the best all-terrain tires for your 3/4 ton diesel truck is key for tough road and off-road conditions. The right tires improve safety, performance, an"
+title: 'Best All Terrain Tires for 3 4 Ton Diesel Truck: Top Picks Reviewed'
+description: Choosing the best all-terrain tires for your 3/4 ton diesel truck is
+  key for tough road and off-road conditions. The right tires improve safety, performance,
+  an
 pubDate: 2026-01-08
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-all-terrain-tires-for-3-4-ton-diesel-truck&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- All Terrain Truck Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-all-terrain-tires-for-3-4-ton-diesel-truck&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best all-terrain tires for your 3/4 ton diesel truck is key for tough road and off-road conditions. The right tires improve safety, performance, and fuel efficiency.**

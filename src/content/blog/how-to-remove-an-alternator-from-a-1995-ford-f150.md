@@ -1,10 +1,13 @@
 ---
-title: "How to Remove an Alternator from a 1995 Ford F150: Easy Steps"
-description: "If your 1995 Ford F150 is showing signs of electrical trouble, the alternator might be the culprit. Removing and replacing it may seem tough, but with the right"
+title: 'How to Remove an Alternator from a 1995 Ford F150: Easy Steps'
+description: If your 1995 Ford F150 is showing signs of electrical trouble, the alternator
+  might be the culprit. Removing and replacing it may seem tough, but with the right
 pubDate: 2026-04-11
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-remove-an-alternator-from-a-1995-ford-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Charging While Idling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-remove-an-alternator-from-a-1995-ford-f150&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **If your 1995 Ford F150 is showing signs of electrical trouble, the alternator might be the culprit. Removing and replacing it may seem tough, but with the right steps, you can do it yourself and save time and money.**

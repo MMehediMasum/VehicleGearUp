@@ -1,10 +1,14 @@
 ---
-title: "Where Do Harley Davidson Parts Come From: Origins Revealed!"
-description: "Have you ever wondered where the parts that keep your Harley Davidson running so smoothly actually come from? If you’re passionate about your bike, knowing the "
+title: 'Where Do Harley Davidson Parts Come From: Origins Revealed!'
+description: 'Have you ever wondered where the parts that keep your Harley Davidson
+  running so smoothly actually come from? If you’re passionate about your bike, knowing
+  the '
 pubDate: 2025-09-03
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-do-harley-davidson-parts-come-from&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Ownership Questions
+heroImage: https://tse1.mm.bing.net/th?q=where-do-harley-davidson-parts-come-from&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Have you ever wondered where the parts that keep your Harley Davidson running so smoothly actually come from? If you’re passionate about your bike, knowing the origins of its components can give you a deeper connection to your ride.**

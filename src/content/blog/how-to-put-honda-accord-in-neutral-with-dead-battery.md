@@ -1,10 +1,14 @@
 ---
-title: "How to Put Honda Accord in Neutral With Dead Battery: Easy Steps"
-description: "Have you ever found yourself stuck, wondering how to put your Honda Accord in neutral when the battery is dead? It’s a frustrating spot to be in, especially if "
+title: 'How to Put Honda Accord in Neutral With Dead Battery: Easy Steps'
+description: 'Have you ever found yourself stuck, wondering how to put your Honda
+  Accord in neutral when the battery is dead? It’s a frustrating spot to be in, especially
+  if '
 pubDate: 2026-04-02
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-put-honda-accord-in-neutral-with-dead-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Neutral With Dead Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-put-honda-accord-in-neutral-with-dead-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever found yourself stuck, wondering how to put your Honda Accord in neutral when the battery is dead? It’s a frustrating spot to be in, especially if you need to move your car quickly.**

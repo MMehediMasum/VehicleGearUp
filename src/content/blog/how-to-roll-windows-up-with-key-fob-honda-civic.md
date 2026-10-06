@@ -1,10 +1,14 @@
 ---
-title: "How to Roll Windows Up With Key Fob Honda Civic: Easy Step-by-Step Guide"
-description: "Have you ever left your Honda Civic’s windows down and wished you could close them without going back to your car? It’s frustrating, especially when bad weather"
+title: 'How to Roll Windows Up With Key Fob Honda Civic: Easy Step-by-Step Guide'
+description: Have you ever left your Honda Civic’s windows down and wished you could
+  close them without going back to your car? It’s frustrating, especially when bad
+  weather
 pubDate: 2026-03-09
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-roll-windows-up-with-key-fob-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Key Fob Problems
+heroImage: https://tse1.mm.bing.net/th?q=how-to-roll-windows-up-with-key-fob-honda-civic&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **Have you ever left your Honda Civic’s windows down and wished you could close them without going back to your car? It’s frustrating, especially when bad weather suddenly appears or you’re far from your vehicle.**

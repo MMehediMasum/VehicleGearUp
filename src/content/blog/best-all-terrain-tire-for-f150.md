@@ -1,10 +1,14 @@
 ---
-title: "Best All Terrain Tire for F150: Top Durable Picks for Rugged Performance"
-description: "Choosing the best all terrain tire for your F150 improves driving safety and performance on rough roads. The right tire balances grip, durability, and comfort f"
+title: 'Best All Terrain Tire for F150: Top Durable Picks for Rugged Performance'
+description: Choosing the best all terrain tire for your F150 improves driving safety
+  and performance on rough roads. The right tire balances grip, durability, and comfort
+  f
 pubDate: 2025-12-26
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-all-terrain-tire-for-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- All Terrain Truck Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-all-terrain-tire-for-f150&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best all terrain tire for your F150 improves driving safety and performance on rough roads. The right tire balances grip, durability, and comfort for both on and off-road conditions.**

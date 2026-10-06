@@ -1,10 +1,14 @@
 ---
-title: "Best Dirt Bike Boots for Trail Riding: Top Durable and Protective Picks"
-description: "Choosing the best dirt bike boots for trail riding protects your feet and boosts comfort on rough paths. Proper boots keep you safe and help you ride longer wit"
+title: 'Best Dirt Bike Boots for Trail Riding: Top Durable and Protective Picks'
+description: Choosing the best dirt bike boots for trail riding protects your feet
+  and boosts comfort on rough paths. Proper boots keep you safe and help you ride
+  longer wit
 pubDate: 2025-10-22
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-dirt-bike-boots-for-trail-riding&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Riding Accessories
+heroImage: https://tse1.mm.bing.net/th?q=best-dirt-bike-boots-for-trail-riding&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best dirt bike boots for trail riding protects your feet and boosts comfort on rough paths. Proper boots keep you safe and help you ride longer without pain.**

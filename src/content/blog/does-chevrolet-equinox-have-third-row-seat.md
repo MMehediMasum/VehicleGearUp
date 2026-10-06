@@ -1,10 +1,14 @@
 ---
-title: "Does Chevrolet Equinox Have Third Row Seat? Ultimate Guide 2025"
-description: "Are you thinking about getting a Chevrolet Equinox but wondering if it can fit your whole family comfortably? One of the biggest questions many buyers have is w"
+title: Does Chevrolet Equinox Have Third Row Seat? Ultimate Guide 2025
+description: Are you thinking about getting a Chevrolet Equinox but wondering if it
+  can fit your whole family comfortably? One of the biggest questions many buyers
+  have is w
 pubDate: 2025-11-21
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-chevrolet-equinox-have-third-row-seat&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Truck Size and Weight
+heroImage: https://tse1.mm.bing.net/th?q=does-chevrolet-equinox-have-third-row-seat&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you thinking about getting a Chevrolet Equinox but wondering if it can fit your whole family comfortably? One of the biggest questions many buyers have is whether the Equinox offers a third row seat.**

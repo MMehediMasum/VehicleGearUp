@@ -1,10 +1,14 @@
 ---
-title: "Best Vinyl Dye for Car Interior: Top Picks for Lasting Restoration"
-description: "Choosing the best vinyl dye for your car interior can improve its look and extend its life. Quality dyes restore color and protect surfaces from wear and tear. "
+title: 'Best Vinyl Dye for Car Interior: Top Picks for Lasting Restoration'
+description: 'Choosing the best vinyl dye for your car interior can improve its look
+  and extend its life. Quality dyes restore color and protect surfaces from wear and
+  tear. '
 pubDate: 2026-06-19
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-vinyl-dye-for-car-interior&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Leather and Dashboard Care
+heroImage: https://tse1.mm.bing.net/th?q=best-vinyl-dye-for-car-interior&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best vinyl dye for your car interior can improve its look and extend its life. Quality dyes restore color and protect surfaces from wear and tear.**

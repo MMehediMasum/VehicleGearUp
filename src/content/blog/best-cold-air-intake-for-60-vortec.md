@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for 6.0 Vortec: Top Performance Upgrades Reviewed"
-description: "Choosing the best cold air intake for your 6.0 Vortec engine can boost power and efficiency. This guide covers top options that fit 1999-2006 GMC and Chevy truc"
+title: 'Best Cold Air Intake for 6.0 Vortec: Top Performance Upgrades Reviewed'
+description: Choosing the best cold air intake for your 6.0 Vortec engine can boost
+  power and efficiency. This guide covers top options that fit 1999-2006 GMC and Chevy
+  truc
 pubDate: 2025-10-29
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-60-vortec&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- GM Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-60-vortec&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best cold air intake for your 6.0 Vortec engine can boost power and efficiency. This guide covers top options that fit 1999-2006 GMC and Chevy trucks.**

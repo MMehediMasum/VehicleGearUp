@@ -1,10 +1,14 @@
 ---
-title: "What Volts Should a Car Battery Be: Essential Guide for Drivers"
-description: "Have you ever wondered if your car battery is working the way it should? Knowing what volts a car battery should be can save you from unexpected breakdowns and "
+title: 'What Volts Should a Car Battery Be: Essential Guide for Drivers'
+description: 'Have you ever wondered if your car battery is working the way it should?
+  Knowing what volts a car battery should be can save you from unexpected breakdowns
+  and '
 pubDate: 2026-04-08
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-volts-should-a-car-battery-be&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Ratings Explained
+heroImage: https://tse1.mm.bing.net/th?q=what-volts-should-a-car-battery-be&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if your car battery is working the way it should? Knowing what volts a car battery should be can save you from unexpected breakdowns and costly repairs.**

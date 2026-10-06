@@ -1,10 +1,14 @@
 ---
-title: "How Do I Know If My Car Battery Needs Replacing: Top Signs to Watch"
-description: "Have you ever turned the key in your car, only to hear a weak click or nothing at all? That frustrating moment could mean your car battery is on its last legs. "
+title: 'How Do I Know If My Car Battery Needs Replacing: Top Signs to Watch'
+description: 'Have you ever turned the key in your car, only to hear a weak click
+  or nothing at all? That frustrating moment could mean your car battery is on its
+  last legs. '
 pubDate: 2026-03-31
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-i-know-if-my-car-battery-needs-replacing&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Signs of a Failing Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-do-i-know-if-my-car-battery-needs-replacing&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever turned the key in your car, only to hear a weak click or nothing at all? That frustrating moment could mean your car battery is on its last legs.**

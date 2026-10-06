@@ -1,10 +1,14 @@
 ---
-title: "How to Charge Car Battery While Parked: Easy & Effective Tips"
-description: "Have you ever found yourself stuck with a dead car battery while your vehicle is parked? It’s frustrating, inconvenient, and can throw off your entire day. But "
+title: 'How to Charge Car Battery While Parked: Easy & Effective Tips'
+description: 'Have you ever found yourself stuck with a dead car battery while your
+  vehicle is parked? It’s frustrating, inconvenient, and can throw off your entire
+  day. But '
 pubDate: 2026-03-28
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-charge-car-battery-while-parked&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Charging While Idling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-charge-car-battery-while-parked&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever found yourself stuck with a dead car battery while your vehicle is parked? It’s frustrating, inconvenient, and can throw off your entire day.**

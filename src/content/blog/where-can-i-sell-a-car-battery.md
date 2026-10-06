@@ -1,10 +1,14 @@
 ---
-title: "Where Can I Sell a Car Battery: Top Places for Quick Cash"
-description: "Are you wondering where you can sell a car battery quickly and for a good price? Whether your battery is old, damaged, or just no longer needed, finding the rig"
+title: 'Where Can I Sell a Car Battery: Top Places for Quick Cash'
+description: Are you wondering where you can sell a car battery quickly and for a
+  good price? Whether your battery is old, damaged, or just no longer needed, finding
+  the rig
 pubDate: 2025-11-18
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-sell-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Selling Old Car Batteries
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-sell-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you wondering where you can sell a car battery quickly and for a good price? Whether your battery is old, damaged, or just no longer needed, finding the right place to sell it can save you time and put some extra cash in your pocket.**

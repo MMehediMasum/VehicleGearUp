@@ -1,10 +1,13 @@
 ---
-title: "Can You Use a Regular Plug on F150 Lighting: Essential Facts Revealed"
-description: "Are you wondering if you can use a regular plug on your F150 lighting? It’s a question many truck owners have, especially when looking for easy and cost-effecti"
+title: 'Can You Use a Regular Plug on F150 Lighting: Essential Facts Revealed'
+description: Are you wondering if you can use a regular plug on your F150 lighting?
+  It’s a question many truck owners have, especially when looking for easy and cost-effecti
 pubDate: 2025-11-17
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-use-a-regular-plug-on-f150-lighting&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford F150 Resets and Fixes
+heroImage: https://tse1.mm.bing.net/th?q=can-you-use-a-regular-plug-on-f150-lighting&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are you wondering if you can use a regular plug on your F150 lighting? It’s a question many truck owners have, especially when looking for easy and cost-effective solutions.**

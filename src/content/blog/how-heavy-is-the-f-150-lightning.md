@@ -1,10 +1,14 @@
 ---
-title: "How Heavy is the F 150 Lightning: Unveiling Its Surprising Weight"
-description: "Are you curious about just how heavy the F-150 Lightning really is? Whether you’re thinking about buying one or just love trucks, knowing its weight can tell yo"
+title: 'How Heavy is the F 150 Lightning: Unveiling Its Surprising Weight'
+description: Are you curious about just how heavy the F-150 Lightning really is? Whether
+  you’re thinking about buying one or just love trucks, knowing its weight can tell
+  yo
 pubDate: 2026-05-21
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-heavy-is-the-f-150-lightning&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hybrid Battery and Braking
+heroImage: https://tse1.mm.bing.net/th?q=how-heavy-is-the-f-150-lightning&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you curious about just how heavy the F-150 Lightning really is? Whether you’re thinking about buying one or just love trucks, knowing its weight can tell you a lot about its power, performance, and how it handles on the road.**

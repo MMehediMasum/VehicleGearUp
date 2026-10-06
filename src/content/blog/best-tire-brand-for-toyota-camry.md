@@ -1,10 +1,14 @@
 ---
-title: "Best Tire Brand for Toyota Camry: Top Quality and Durable Choices"
-description: "Choosing the best tire brand for your Toyota Camry ensures safety and smooth driving. The right tires improve fuel efficiency and handling on all roads. Toyota "
+title: 'Best Tire Brand for Toyota Camry: Top Quality and Durable Choices'
+description: 'Choosing the best tire brand for your Toyota Camry ensures safety and
+  smooth driving. The right tires improve fuel efficiency and handling on all roads.
+  Toyota '
 pubDate: 2025-12-22
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tire-brand-for-toyota-camry&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Choosing Tire Brands
+heroImage: https://tse1.mm.bing.net/th?q=best-tire-brand-for-toyota-camry&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tire brand for your Toyota Camry ensures safety and smooth driving. The right tires improve fuel efficiency and handling on all roads.**

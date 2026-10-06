@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for 6.2 Silverado to Boost Power and Performance"
-description: "Finding the best cold air intake for your 6.2 Silverado boosts engine power and improves towing ability. A quality intake system helps your truck breathe better"
+title: Best Cold Air Intake for 6.2 Silverado to Boost Power and Performance
+description: Finding the best cold air intake for your 6.2 Silverado boosts engine
+  power and improves towing ability. A quality intake system helps your truck breathe
+  better
 pubDate: 2026-06-29
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-62-silverado&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- GM Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-62-silverado&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Finding the best cold air intake for your 6.2 Silverado boosts engine power and improves towing ability. A quality intake system helps your truck breathe better and run stronger.**

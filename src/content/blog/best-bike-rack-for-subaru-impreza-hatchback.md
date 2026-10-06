@@ -1,10 +1,14 @@
 ---
-title: "Best Bike Rack for Subaru Impreza Hatchback: Top Picks for Secure Transport"
-description: "Choosing the best bike rack for your Subaru Impreza Hatchback is essential for safe and easy bike transport. This guide covers top racks that fit models from 20"
+title: 'Best Bike Rack for Subaru Impreza Hatchback: Top Picks for Secure Transport'
+description: Choosing the best bike rack for your Subaru Impreza Hatchback is essential
+  for safe and easy bike transport. This guide covers top racks that fit models from
+  20
 pubDate: 2026-01-13
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-bike-rack-for-subaru-impreza-hatchback&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Bike Racks for Cars
+heroImage: https://tse1.mm.bing.net/th?q=best-bike-rack-for-subaru-impreza-hatchback&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Choosing the best bike rack for your Subaru Impreza Hatchback is essential for safe and easy bike transport. This guide covers top racks that fit models from 2017 to 2023.**

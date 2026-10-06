@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How Do You Say Car Wash in Spanish: Easy Tips to Learn Fast"
 description: "Have you ever found yourself needing to ask for a car wash while traveling in a Spanish-speaking country? Knowing how to say \"car wash\" in Spanish can save you "
 pubDate: 2026-03-17

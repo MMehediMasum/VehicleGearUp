@@ -1,10 +1,14 @@
 ---
-title: "How to Remove Hail Dents from Car Hood: Easy DIY Methods"
-description: "Hail dents on your car hood can be frustrating to see. They spoil your car’s look and can lower its value. But don’t worry—removing those dents doesn’t have to "
+title: 'How to Remove Hail Dents from Car Hood: Easy DIY Methods'
+description: 'Hail dents on your car hood can be frustrating to see. They spoil your
+  car’s look and can lower its value. But don’t worry—removing those dents doesn’t
+  have to '
 pubDate: 2026-02-04
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-remove-hail-dents-from-car-hood&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hood Dents and Chips
+heroImage: https://tse1.mm.bing.net/th?q=how-to-remove-hail-dents-from-car-hood&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Hail dents on your car hood can be frustrating to see. They spoil your car’s look and can lower its value.**

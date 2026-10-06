@@ -1,10 +1,14 @@
 ---
-title: "Best Chain Lube for Dirt Bike: Top Picks for Ultimate Performance"
-description: "Choosing the best chain lube keeps your dirt bike running smoothly and extends chain life. Dirt bike chains face mud, dust, and water, so proper lubrication is "
+title: 'Best Chain Lube for Dirt Bike: Top Picks for Ultimate Performance'
+description: 'Choosing the best chain lube keeps your dirt bike running smoothly and
+  extends chain life. Dirt bike chains face mud, dust, and water, so proper lubrication
+  is '
 pubDate: 2026-01-14
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-chain-lube-for-dirt-bike&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hauling Motorcycles in Trucks
+heroImage: https://tse1.mm.bing.net/th?q=best-chain-lube-for-dirt-bike&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best chain lube keeps your dirt bike running smoothly and extends chain life. Dirt bike chains face mud, dust, and water, so proper lubrication is crucial.**

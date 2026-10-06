@@ -1,10 +1,14 @@
 ---
-title: "Is the Toyota Rav4 All Wheel Drive? Discover the Truth Now!"
-description: "Are you wondering if the Toyota RAV4 comes with all-wheel drive? Whether you’re planning weekend adventures or just want extra confidence on slippery roads, kno"
+title: Is the Toyota Rav4 All Wheel Drive? Discover the Truth Now!
+description: Are you wondering if the Toyota RAV4 comes with all-wheel drive? Whether
+  you’re planning weekend adventures or just want extra confidence on slippery roads,
+  kno
 pubDate: 2025-09-19
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-the-toyota-rav4-all-wheel-drive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- All Wheel Drive Questions
+heroImage: https://tse1.mm.bing.net/th?q=is-the-toyota-rav4-all-wheel-drive&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you wondering if the Toyota RAV4 comes with all-wheel drive? Whether you’re planning weekend adventures or just want extra confidence on slippery roads, knowing about the RAV4’s drivetrain can make a big difference.**

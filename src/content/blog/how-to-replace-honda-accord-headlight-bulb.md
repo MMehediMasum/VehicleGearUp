@@ -1,10 +1,14 @@
 ---
-title: "How to Replace Honda Accord Headlight Bulb: Easy Step-by-Step Guide"
-description: "Is your Honda Accord’s headlight flickering or completely out? Replacing a headlight bulb might seem tricky, but you can do it yourself quickly and save money. "
+title: 'How to Replace Honda Accord Headlight Bulb: Easy Step-by-Step Guide'
+description: 'Is your Honda Accord’s headlight flickering or completely out? Replacing
+  a headlight bulb might seem tricky, but you can do it yourself quickly and save
+  money. '
 pubDate: 2025-09-26
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-replace-honda-accord-headlight-bulb&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Headlight Bulbs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-replace-honda-accord-headlight-bulb&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your Honda Accord’s headlight flickering or completely out? Replacing a headlight bulb might seem tricky, but you can do it yourself quickly and save money.**

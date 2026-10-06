@@ -1,10 +1,14 @@
 ---
-title: "Best Spray Paint for Interior Car Trim: Top Picks for Perfect Finish"
-description: "Choosing the best spray paint for interior car trim improves your vehicle’s look and durability. It protects plastic, vinyl, and rubber parts from fading and we"
+title: 'Best Spray Paint for Interior Car Trim: Top Picks for Perfect Finish'
+description: Choosing the best spray paint for interior car trim improves your vehicle’s
+  look and durability. It protects plastic, vinyl, and rubber parts from fading and
+  we
 pubDate: 2025-11-02
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-spray-paint-for-interior-car-trim&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spray Paint and Scratch Repair
+heroImage: https://tse1.mm.bing.net/th?q=best-spray-paint-for-interior-car-trim&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best spray paint for interior car trim improves your vehicle’s look and durability. It protects plastic, vinyl, and rubber parts from fading and wear.**

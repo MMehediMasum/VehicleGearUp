@@ -1,10 +1,14 @@
 ---
-title: "How Do You Know When Car Starter is Bad: Key Signs to Watch"
-description: "Have you ever turned your car key, only to hear a click or nothing at all? That frustrating moment might mean your car starter is going bad. But how can you be "
+title: 'How Do You Know When Car Starter is Bad: Key Signs to Watch'
+description: 'Have you ever turned your car key, only to hear a click or nothing at
+  all? That frustrating moment might mean your car starter is going bad. But how can
+  you be '
 pubDate: 2026-03-09
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-know-when-car-starter-is-bad&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Starter Problems
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-know-when-car-starter-is-bad&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you ever turned your car key, only to hear a click or nothing at all? That frustrating moment might mean your car starter is going bad.**

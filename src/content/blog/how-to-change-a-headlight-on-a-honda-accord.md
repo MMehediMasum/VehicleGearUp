@@ -1,10 +1,14 @@
 ---
-title: "How to Change a Headlight on a Honda Accord: Easy Step-by-Step Guide"
-description: "If your Honda Accord’s headlight is dim or not working, it’s more than just an inconvenience—it’s a safety risk. Changing a headlight might sound tricky, but wi"
+title: 'How to Change a Headlight on a Honda Accord: Easy Step-by-Step Guide'
+description: If your Honda Accord’s headlight is dim or not working, it’s more than
+  just an inconvenience—it’s a safety risk. Changing a headlight might sound tricky,
+  but wi
 pubDate: 2026-05-28
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-a-headlight-on-a-honda-accord&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Headlight Bulbs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-a-headlight-on-a-honda-accord&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If your Honda Accord’s headlight is dim or not working, it’s more than just an inconvenience—it’s a safety risk. Changing a headlight might sound tricky, but with the right steps, you can do it quickly and easily yourself.**

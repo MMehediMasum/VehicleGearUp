@@ -1,10 +1,14 @@
 ---
-title: "How to Put Freon in a Honda Civic: Easy DIY Cooling Fix"
-description: "Is your Honda Civic’s air conditioner blowing warm air? You’re not alone, and the fix might be simpler than you think. Knowing how to put Freon in your car can "
+title: 'How to Put Freon in a Honda Civic: Easy DIY Cooling Fix'
+description: 'Is your Honda Civic’s air conditioner blowing warm air? You’re not alone,
+  and the fix might be simpler than you think. Knowing how to put Freon in your car
+  can '
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-put-freon-in-a-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Coolant and AC Recharge
+heroImage: https://tse1.mm.bing.net/th?q=how-to-put-freon-in-a-honda-civic&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your Honda Civic’s air conditioner blowing warm air? You’re not alone, and the fix might be simpler than you think.**

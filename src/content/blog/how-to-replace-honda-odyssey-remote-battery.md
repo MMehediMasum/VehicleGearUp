@@ -1,10 +1,14 @@
 ---
-title: "How to Replace Honda Odyssey Remote Battery: Easy Step-by-Step Guide"
-description: "Is your Honda Odyssey remote acting up or not working at all? It might be time to replace the battery. You don’t have to visit a dealership or spend a lot of mo"
+title: 'How to Replace Honda Odyssey Remote Battery: Easy Step-by-Step Guide'
+description: Is your Honda Odyssey remote acting up or not working at all? It might
+  be time to replace the battery. You don’t have to visit a dealership or spend a
+  lot of mo
 pubDate: 2026-05-01
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-replace-honda-odyssey-remote-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Key Fob Battery Replacement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-replace-honda-odyssey-remote-battery&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **Is your Honda Odyssey remote acting up or not working at all? It might be time to replace the battery.**

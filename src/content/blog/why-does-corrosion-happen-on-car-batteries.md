@@ -1,10 +1,14 @@
 ---
-title: "Why Does Corrosion Happen on Car Batteries: Causes & Solutions"
-description: "Have you ever opened your car’s hood and noticed a white or blue powdery buildup around the battery terminals? That’s corrosion, and it can cause serious proble"
+title: 'Why Does Corrosion Happen on Car Batteries: Causes & Solutions'
+description: Have you ever opened your car’s hood and noticed a white or blue powdery
+  buildup around the battery terminals? That’s corrosion, and it can cause serious
+  proble
 pubDate: 2026-02-06
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-does-corrosion-happen-on-car-batteries&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Polarity and Acid
+heroImage: https://tse1.mm.bing.net/th?q=why-does-corrosion-happen-on-car-batteries&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever opened your car’s hood and noticed a white or blue powdery buildup around the battery terminals? That’s corrosion, and it can cause serious problems for your vehicle.**

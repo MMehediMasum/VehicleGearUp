@@ -1,10 +1,14 @@
 ---
-title: "Best Spray Paint for Car Scratches: Top Quick Fixes for Flawless Finish"
-description: "Car scratches can spoil your vehicle’s look and lower its value. Using the best spray paint for car scratches helps fix these marks fast and easily. Minor scrat"
+title: 'Best Spray Paint for Car Scratches: Top Quick Fixes for Flawless Finish'
+description: Car scratches can spoil your vehicle’s look and lower its value. Using
+  the best spray paint for car scratches helps fix these marks fast and easily. Minor
+  scrat
 pubDate: 2026-07-03
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-spray-paint-for-car-scratches&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spray Paint and Scratch Repair
+heroImage: https://tse1.mm.bing.net/th?q=best-spray-paint-for-car-scratches&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Car scratches can spoil your vehicle’s look and lower its value. Using the best spray paint for car scratches helps fix these marks fast and easily.**

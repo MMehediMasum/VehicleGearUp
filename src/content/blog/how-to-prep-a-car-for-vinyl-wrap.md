@@ -1,10 +1,14 @@
 ---
-title: "How to Prep a Car for Vinyl Wrap: Essential Steps for Flawless Results"
-description: "If you want your car’s vinyl wrap to look flawless and last for years, how you prep your car matters more than you might think. Skipping or rushing this step co"
+title: 'How to Prep a Car for Vinyl Wrap: Essential Steps for Flawless Results'
+description: If you want your car’s vinyl wrap to look flawless and last for years,
+  how you prep your car matters more than you might think. Skipping or rushing this
+  step co
 pubDate: 2026-01-29
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-prep-a-car-for-vinyl-wrap&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Vinyl Wraps and Body Work
+heroImage: https://tse1.mm.bing.net/th?q=how-to-prep-a-car-for-vinyl-wrap&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **If you want your car’s vinyl wrap to look flawless and last for years, how you prep your car matters more than you might think. Skipping or rushing this step could lead to bubbles, peeling, or a finish that just doesn’t shine.**

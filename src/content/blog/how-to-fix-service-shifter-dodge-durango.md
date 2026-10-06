@@ -1,10 +1,14 @@
 ---
-title: "How to Fix Service Shifter Dodge Durango: Easy Repair Tips"
-description: "Is your Dodge Durango’s service shifter acting up and making driving frustrating? You’re not alone. When your shifter doesn’t work properly, it can make shiftin"
+title: 'How to Fix Service Shifter Dodge Durango: Easy Repair Tips'
+description: Is your Dodge Durango’s service shifter acting up and making driving
+  frustrating? You’re not alone. When your shifter doesn’t work properly, it can make
+  shiftin
 pubDate: 2026-04-27
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-service-shifter-dodge-durango&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Dashboard Lights and Noises
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-service-shifter-dodge-durango&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your Dodge Durango’s service shifter acting up and making driving frustrating? You’re not alone.**

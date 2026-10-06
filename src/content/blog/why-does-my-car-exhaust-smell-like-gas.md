@@ -1,10 +1,13 @@
 ---
-title: "Why Does My Car Exhaust Smell Like Gas: Top Causes Explained"
-description: "Have you ever noticed a strong smell of gas coming from your car’s exhaust and wondered what’s causing it? If so, you’re not alone—and it’s something you should"
+title: 'Why Does My Car Exhaust Smell Like Gas: Top Causes Explained'
+description: Have you ever noticed a strong smell of gas coming from your car’s exhaust
+  and wondered what’s causing it? If so, you’re not alone—and it’s something you should
 pubDate: 2026-03-11
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-does-my-car-exhaust-smell-like-gas&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Exhaust Systems
+heroImage: https://tse1.mm.bing.net/th?q=why-does-my-car-exhaust-smell-like-gas&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you ever noticed a strong smell of gas coming from your car’s exhaust and wondered what’s causing it? If so, you’re not alone—and it’s something you shouldn’t ignore.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Dog Kennel for Truck Bed: Top Durable and Portable Options Reviewed"
-description: "Choosing the best dog kennel for your truck bed ensures safe and comfortable travel for your pet. The right kennel fits securely and protects your dog during tr"
+title: 'Best Dog Kennel for Truck Bed: Top Durable and Portable Options Reviewed'
+description: Choosing the best dog kennel for your truck bed ensures safe and comfortable
+  travel for your pet. The right kennel fits securely and protects your dog during
+  tr
 pubDate: 2026-06-17
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-dog-kennel-for-truck-bed&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Pets and Babies in Cars
+heroImage: https://tse1.mm.bing.net/th?q=best-dog-kennel-for-truck-bed&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best dog kennel for your truck bed ensures safe and comfortable travel for your pet. The right kennel fits securely and protects your dog during trips.**

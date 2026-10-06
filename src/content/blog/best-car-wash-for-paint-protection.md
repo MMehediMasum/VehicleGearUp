@@ -1,10 +1,14 @@
 ---
-title: "Best Car Wash for Paint Protection: Top Ceramic Coatings & Waxes Reviewed"
-description: "Protecting your car’s paint starts with choosing the right car wash. The best car wash products help keep your paint shiny and safe from damage. Car paint faces"
+title: 'Best Car Wash for Paint Protection: Top Ceramic Coatings & Waxes Reviewed'
+description: Protecting your car’s paint starts with choosing the right car wash.
+  The best car wash products help keep your paint shiny and safe from damage. Car
+  paint faces
 pubDate: 2026-07-02
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-wash-for-paint-protection&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wash Soap Picks
+heroImage: https://tse1.mm.bing.net/th?q=best-car-wash-for-paint-protection&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Protecting your car’s paint starts with choosing the right car wash. The best car wash products help keep your paint shiny and safe from damage.**

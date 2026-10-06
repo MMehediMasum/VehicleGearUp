@@ -1,10 +1,14 @@
 ---
-title: "Best V Plow for 1 2 Ton Truck: Top Picks and Essential Accessories"
-description: "Choosing the best V plow for your 1/2 ton truck can make snow removal easier and faster. The right plow fits well, works smoothly, and lasts long. V plows are p"
+title: 'Best V Plow for 1 2 Ton Truck: Top Picks and Essential Accessories'
+description: Choosing the best V plow for your 1/2 ton truck can make snow removal
+  easier and faster. The right plow fits well, works smoothly, and lasts long. V plows
+  are p
 pubDate: 2026-06-08
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-v-plow-for-1-2-ton-truck&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Snow Plows
+heroImage: https://tse1.mm.bing.net/th?q=best-v-plow-for-1-2-ton-truck&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Choosing the best V plow for your 1/2 ton truck can make snow removal easier and faster. The right plow fits well, works smoothly, and lasts long.**

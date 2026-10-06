@@ -1,10 +1,14 @@
 ---
-title: "How to Change the Brakes on a Nissan Altima: Easy Step-by-Step Guide"
-description: "If you drive a Nissan Altima, keeping your brakes in top shape is crucial for your safety and peace of mind. But what if your brakes start to wear out? You migh"
+title: 'How to Change the Brakes on a Nissan Altima: Easy Step-by-Step Guide'
+description: If you drive a Nissan Altima, keeping your brakes in top shape is crucial
+  for your safety and peace of mind. But what if your brakes start to wear out? You
+  migh
 pubDate: 2026-05-13
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-the-brakes-on-a-nissan-altima&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Brake Replacement and Rotors
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-the-brakes-on-a-nissan-altima&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you drive a Nissan Altima, keeping your brakes in top shape is crucial for your safety and peace of mind. But what if your brakes start to wear out?**

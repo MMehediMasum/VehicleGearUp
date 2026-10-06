@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Life on Ram 1500: Easy Step-by-Step Guide"
-description: "If you drive a Ram 1500, you know how important it is to keep your truck running smoothly. One key part of that is resetting the oil life indicator after an oil"
+title: 'How to Reset Oil Life on Ram 1500: Easy Step-by-Step Guide'
+description: If you drive a Ram 1500, you know how important it is to keep your truck
+  running smoothly. One key part of that is resetting the oil life indicator after
+  an oil
 pubDate: 2026-04-25
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-life-on-ram-1500&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ram and Dodge Oil Life
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-life-on-ram-1500&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you drive a Ram 1500, you know how important it is to keep your truck running smoothly. One key part of that is resetting the oil life indicator after an oil change.**

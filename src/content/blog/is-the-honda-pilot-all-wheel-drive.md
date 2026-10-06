@@ -1,10 +1,14 @@
 ---
-title: "Is the Honda Pilot All Wheel Drive: Ultimate Guide to AWD Benefits"
-description: "Are you thinking about getting a Honda Pilot but wondering if it comes with all-wheel drive? Knowing this can make a big difference in how safe and confident yo"
+title: 'Is the Honda Pilot All Wheel Drive: Ultimate Guide to AWD Benefits'
+description: Are you thinking about getting a Honda Pilot but wondering if it comes
+  with all-wheel drive? Knowing this can make a big difference in how safe and confident
+  yo
 pubDate: 2025-10-27
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-the-honda-pilot-all-wheel-drive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- All Wheel Drive Questions
+heroImage: https://tse1.mm.bing.net/th?q=is-the-honda-pilot-all-wheel-drive&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you thinking about getting a Honda Pilot but wondering if it comes with all-wheel drive? Knowing this can make a big difference in how safe and confident you feel on the road, especially when weather or terrain gets tricky.**

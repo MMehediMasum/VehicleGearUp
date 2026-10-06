@@ -1,10 +1,14 @@
 ---
-title: "How to Secure Bike in Truck Bed: Ultimate Guide for Safe Transport"
-description: "You’ve got your bike ready for an adventure, but how do you make sure it stays safe while riding in your truck bed? Securing your bike properly isn’t just about"
+title: 'How to Secure Bike in Truck Bed: Ultimate Guide for Safe Transport'
+description: You’ve got your bike ready for an adventure, but how do you make sure
+  it stays safe while riding in your truck bed? Securing your bike properly isn’t
+  just about
 pubDate: 2026-03-04
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-secure-bike-in-truck-bed&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Truck Bed Gear
+heroImage: https://tse1.mm.bing.net/th?q=how-to-secure-bike-in-truck-bed&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **You’ve got your bike ready for an adventure, but how do you make sure it stays safe while riding in your truck bed? Securing your bike properly isn’t just about convenience—it’s about protecting your investment and avoiding damage during the trip.**

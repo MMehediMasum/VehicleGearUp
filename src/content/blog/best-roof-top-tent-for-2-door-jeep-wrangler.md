@@ -1,10 +1,14 @@
 ---
-title: "Best Roof Top Tent for 2 Door Jeep Wrangler: Ultimate Hard Shell Picks"
-description: "Choosing the best roof top tent for a 2 door Jeep Wrangler enhances your outdoor trips. The right tent fits well and offers comfort on all adventures. A roof to"
+title: 'Best Roof Top Tent for 2 Door Jeep Wrangler: Ultimate Hard Shell Picks'
+description: Choosing the best roof top tent for a 2 door Jeep Wrangler enhances your
+  outdoor trips. The right tent fits well and offers comfort on all adventures. A
+  roof to
 pubDate: 2026-06-14
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-roof-top-tent-for-2-door-jeep-wrangler&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Roof Racks and Tents
+heroImage: https://tse1.mm.bing.net/th?q=best-roof-top-tent-for-2-door-jeep-wrangler&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Choosing the best roof top tent for a 2 door Jeep Wrangler enhances your outdoor trips. The right tent fits well and offers comfort on all adventures.**

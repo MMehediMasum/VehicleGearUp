@@ -1,10 +1,14 @@
 ---
-title: "How to Turn off Ford Escape Interior Lights: Quick & Easy Guide"
-description: "Are your Ford Escape interior lights staying on longer than you want? It can be annoying, drain your battery, and even distract you while driving. But don’t wor"
+title: 'How to Turn off Ford Escape Interior Lights: Quick & Easy Guide'
+description: Are your Ford Escape interior lights staying on longer than you want?
+  It can be annoying, drain your battery, and even distract you while driving. But
+  don’t wor
 pubDate: 2026-05-27
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-ford-escape-interior-lights&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Interior Light Settings
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-ford-escape-interior-lights&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are your Ford Escape interior lights staying on longer than you want? It can be annoying, drain your battery, and even distract you while driving.**

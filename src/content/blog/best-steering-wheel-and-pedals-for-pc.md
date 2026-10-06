@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Steering Wheel And Pedals For PC: Top Racing Gear for Ultimate Gameplay"
 description: "Choosing the best steering wheel and pedals for PC can greatly improve your racing game experience. Quality gear offers better control, comfort, and realism. Ra"
 pubDate: 2026-01-05

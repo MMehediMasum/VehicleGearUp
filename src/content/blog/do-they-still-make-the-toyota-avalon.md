@@ -1,10 +1,14 @@
 ---
-title: "Do They Still Make the Toyota Avalon? Discover the Truth Today!"
-description: "Are you wondering if the Toyota Avalon is still available on the market? Maybe you’ve heard mixed stories or aren’t sure if this popular car is still being made"
+title: Do They Still Make the Toyota Avalon? Discover the Truth Today!
+description: Are you wondering if the Toyota Avalon is still available on the market?
+  Maybe you’ve heard mixed stories or aren’t sure if this popular car is still being
+  made
 pubDate: 2025-12-10
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-they-still-make-the-toyota-avalon&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Model Availability and Value
+heroImage: https://tse1.mm.bing.net/th?q=do-they-still-make-the-toyota-avalon&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you wondering if the Toyota Avalon is still available on the market? Maybe you’ve heard mixed stories or aren’t sure if this popular car is still being made.**

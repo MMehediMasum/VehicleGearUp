@@ -1,10 +1,14 @@
 ---
-title: "How to Wash Engine at Car Wash: Expert Tips for a Spotless Result"
-description: "Washing your engine might sound tricky, but it’s easier than you think—and it can make a big difference in your car’s performance and appearance. If you want yo"
+title: 'How to Wash Engine at Car Wash: Expert Tips for a Spotless Result'
+description: Washing your engine might sound tricky, but it’s easier than you think—and
+  it can make a big difference in your car’s performance and appearance. If you want
+  yo
 pubDate: 2026-05-19
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-wash-engine-at-car-wash&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wash Costs and Etiquette
+heroImage: https://tse1.mm.bing.net/th?q=how-to-wash-engine-at-car-wash&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Washing your engine might sound tricky, but it’s easier than you think—and it can make a big difference in your car’s performance and appearance. If you want your engine to run cooler, last longer, and even boost your car’s resale value, knowing how to wash it properly is key.**

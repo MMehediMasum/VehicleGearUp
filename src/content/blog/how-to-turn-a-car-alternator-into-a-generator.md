@@ -1,10 +1,14 @@
 ---
-title: "How to Turn a Car Alternator into a Generator: Easy DIY Guide"
-description: "Have you ever thought about turning your car alternator into a powerful generator? Whether you want to power small devices during a blackout or create an afford"
+title: 'How to Turn a Car Alternator into a Generator: Easy DIY Guide'
+description: Have you ever thought about turning your car alternator into a powerful
+  generator? Whether you want to power small devices during a blackout or create an
+  afford
 pubDate: 2026-04-16
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-a-car-alternator-into-a-generator&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Charging While Idling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-a-car-alternator-into-a-generator&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever thought about turning your car alternator into a powerful generator? Whether you want to power small devices during a blackout or create an affordable energy source for your projects, your car alternator holds untapped potential.**

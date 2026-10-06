@@ -1,10 +1,13 @@
 ---
-title: "How to Reset Tire Pressure on Honda Civic 2017: Quick & Easy Guide"
-description: "If you own a 2017 Honda Civic, knowing how to reset your tire pressure is essential. Incorrect tire pressure can affect your car’s performance, fuel efficiency,"
+title: 'How to Reset Tire Pressure on Honda Civic 2017: Quick & Easy Guide'
+description: If you own a 2017 Honda Civic, knowing how to reset your tire pressure
+  is essential. Incorrect tire pressure can affect your car’s performance, fuel efficiency,
 pubDate: 2026-01-21
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-tire-pressure-on-honda-civic-2017&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Checking Tire Pressure
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-tire-pressure-on-honda-civic-2017&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **If you own a 2017 Honda Civic, knowing how to reset your tire pressure is essential. Incorrect tire pressure can affect your car’s performance, fuel efficiency, and safety.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Install a Leveling Kit F150: Easy Steps for Perfect Lift"
-description: "If you want your F150 to look more balanced and improve its off-road performance, installing a leveling kit is a smart move. But how do you do it right? You mig"
+title: 'How to Install a Leveling Kit F150: Easy Steps for Perfect Lift'
+description: If you want your F150 to look more balanced and improve its off-road
+  performance, installing a leveling kit is a smart move. But how do you do it right?
+  You mig
 pubDate: 2026-02-17
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-install-a-leveling-kit-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Super Duty Shocks and Leveling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-install-a-leveling-kit-f150&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you want your F150 to look more balanced and improve its off-road performance, installing a leveling kit is a smart move. But how do you do it right?**

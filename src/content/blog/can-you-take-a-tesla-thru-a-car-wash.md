@@ -1,10 +1,14 @@
 ---
-title: "Can You Take a Tesla Thru a Car Wash: Essential Tips Revealed"
-description: "Wondering if you can take your Tesla through a car wash without causing damage? You’re not alone. Many Tesla owners ask this question because electric cars have"
+title: 'Can You Take a Tesla Thru a Car Wash: Essential Tips Revealed'
+description: Wondering if you can take your Tesla through a car wash without causing
+  damage? You’re not alone. Many Tesla owners ask this question because electric cars
+  have
 pubDate: 2026-03-16
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-take-a-tesla-thru-a-car-wash&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Washing Electric Cars
+heroImage: https://tse1.mm.bing.net/th?q=can-you-take-a-tesla-thru-a-car-wash&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Wondering if you can take your Tesla through a car wash without causing damage? You’re not alone.**

@@ -1,10 +1,13 @@
 ---
-title: "Best Tires for a Honda Ridgeline: Top All-Terrain and All-Season Picks"
-description: "Choosing the best tires for a Honda Ridgeline improves safety, performance, and comfort. The right tires fit your driving style and road needs. The Honda Ridgel"
+title: 'Best Tires for a Honda Ridgeline: Top All-Terrain and All-Season Picks'
+description: Choosing the best tires for a Honda Ridgeline improves safety, performance,
+  and comfort. The right tires fit your driving style and road needs. The Honda Ridgel
 pubDate: 2025-11-19
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-a-honda-ridgeline&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-a-honda-ridgeline&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for a Honda Ridgeline improves safety, performance, and comfort. The right tires fit your driving style and road needs.**

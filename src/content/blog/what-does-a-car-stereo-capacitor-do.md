@@ -1,10 +1,14 @@
 ---
-title: "What Does a Car Stereo Capacitor Do: Boost Your Sound Quality"
-description: "Have you ever noticed your car stereo sound cutting out or losing power when the bass hits hard? You might be missing a simple device that can make a big differ"
+title: 'What Does a Car Stereo Capacitor Do: Boost Your Sound Quality'
+description: Have you ever noticed your car stereo sound cutting out or losing power
+  when the bass hits hard? You might be missing a simple device that can make a big
+  differ
 pubDate: 2026-05-22
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-does-a-car-stereo-capacitor-do&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Stereo Installation Help
+heroImage: https://tse1.mm.bing.net/th?q=what-does-a-car-stereo-capacitor-do&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Have you ever noticed your car stereo sound cutting out or losing power when the bass hits hard? You might be missing a simple device that can make a big difference: a car stereo capacitor.**

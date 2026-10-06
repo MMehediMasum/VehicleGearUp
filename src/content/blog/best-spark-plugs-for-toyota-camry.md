@@ -1,10 +1,14 @@
 ---
-title: "Best Spark Plugs for Toyota Camry: Top Picks for Ultimate Performance"
-description: "Choosing the best spark plugs for your Toyota Camry ensures smooth engine performance and fuel efficiency. Quality plugs improve ignition, reduce misfires, and "
+title: 'Best Spark Plugs for Toyota Camry: Top Picks for Ultimate Performance'
+description: 'Choosing the best spark plugs for your Toyota Camry ensures smooth engine
+  performance and fuel efficiency. Quality plugs improve ignition, reduce misfires,
+  and '
 pubDate: 2026-06-13
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-spark-plugs-for-toyota-camry&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spark Plug Maintenance
+heroImage: https://tse1.mm.bing.net/th?q=best-spark-plugs-for-toyota-camry&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best spark plugs for your Toyota Camry ensures smooth engine performance and fuel efficiency. Quality plugs improve ignition, reduce misfires, and extend engine life.**

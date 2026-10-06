@@ -1,10 +1,14 @@
 ---
-title: "What Does Service Brake Assist Mean on a Chevy Equinox: Explained!"
-description: "Have you ever noticed the term \"Service Brake Assist\" pop up on your Chevy Equinox dashboard and wondered what it really means? Understanding this message is cr"
+title: 'What Does Service Brake Assist Mean on a Chevy Equinox: Explained!'
+description: Have you ever noticed the term "Service Brake Assist" pop up on your
+  Chevy Equinox dashboard and wondered what it really means? Understanding this message
+  is cr
 pubDate: 2026-05-04
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-does-service-brake-assist-mean-on-a-chevy-equinox&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Parking Brake Help
+heroImage: https://tse1.mm.bing.net/th?q=what-does-service-brake-assist-mean-on-a-chevy-equinox&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever noticed the term "Service Brake Assist" pop up on your Chevy Equinox dashboard and wondered what it really means? Understanding this message is crucial for your safety and the smooth performance of your vehicle.**

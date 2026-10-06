@@ -1,10 +1,14 @@
 ---
-title: "How Fast is the New Honda Civic Type R: Unleashing Speed and Power"
-description: "Are you curious about just how fast the new Honda Civic Type R can go? If speed and performance matter to you, this car might be exactly what you’re looking for"
+title: 'How Fast is the New Honda Civic Type R: Unleashing Speed and Power'
+description: Are you curious about just how fast the new Honda Civic Type R can go?
+  If speed and performance matter to you, this car might be exactly what you’re looking
+  for
 pubDate: 2025-09-04
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-fast-is-the-new-honda-civic-type-r&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Speed and Drive
+heroImage: https://tse1.mm.bing.net/th?q=how-fast-is-the-new-honda-civic-type-r&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you curious about just how fast the new Honda Civic Type R can go? If speed and performance matter to you, this car might be exactly what you’re looking for.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Put in Bath And Body Works Car Scent: Easy Steps for Freshness"
-description: "Want your car to smell amazing every time you step inside? Putting in a Bath and Body Works car scent is one of the easiest ways to keep your ride fresh and inv"
+title: 'How to Put in Bath And Body Works Car Scent: Easy Steps for Freshness'
+description: Want your car to smell amazing every time you step inside? Putting in
+  a Bath and Body Works car scent is one of the easiest ways to keep your ride fresh
+  and inv
 pubDate: 2025-12-18
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-put-in-bath-and-body-works-car-scent&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Air Fresheners and Odors
+heroImage: https://tse1.mm.bing.net/th?q=how-to-put-in-bath-and-body-works-car-scent&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Want your car to smell amazing every time you step inside? Putting in a Bath and Body Works car scent is one of the easiest ways to keep your ride fresh and inviting.**

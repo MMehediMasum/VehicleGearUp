@@ -1,10 +1,14 @@
 ---
-title: "Best GMC Big Mud Flaps for Trucks: Top Durable and Stylish Picks"
-description: "Big mud flaps protect your GMC truck from dirt, rocks, and road debris. Choosing the right mud flaps keeps your vehicle clean and safe. Mud flaps block mud and "
+title: 'Best GMC Big Mud Flaps for Trucks: Top Durable and Stylish Picks'
+description: 'Big mud flaps protect your GMC truck from dirt, rocks, and road debris.
+  Choosing the right mud flaps keeps your vehicle clean and safe. Mud flaps block
+  mud and '
 pubDate: 2026-06-02
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-gmc-big-mud-flaps-for-trucks&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Snow Plows
+heroImage: https://tse1.mm.bing.net/th?q=best-gmc-big-mud-flaps-for-trucks&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Big mud flaps protect your GMC truck from dirt, rocks, and road debris. Choosing the right mud flaps keeps your vehicle clean and safe.**

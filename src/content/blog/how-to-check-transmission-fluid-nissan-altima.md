@@ -1,10 +1,14 @@
 ---
-title: "How to Check Transmission Fluid Nissan Altima: Easy Step-by-Step Guide"
-description: "Are you wondering how to keep your Nissan Altima running smoothly? One simple step you can take is checking your transmission fluid regularly. This small action"
+title: 'How to Check Transmission Fluid Nissan Altima: Easy Step-by-Step Guide'
+description: Are you wondering how to keep your Nissan Altima running smoothly? One
+  simple step you can take is checking your transmission fluid regularly. This small
+  action
 pubDate: 2026-05-05
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-check-transmission-fluid-nissan-altima&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Transmission Fluid Checks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-check-transmission-fluid-nissan-altima&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Are you wondering how to keep your Nissan Altima running smoothly? One simple step you can take is checking your transmission fluid regularly.**

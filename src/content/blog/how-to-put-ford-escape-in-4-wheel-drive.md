@@ -1,10 +1,14 @@
 ---
-title: "How to Put Ford Escape in 4 Wheel Drive: Easy Step-by-Step Guide"
-description: "Are you ready to get the most out of your Ford Escape, especially when the road gets tough? Knowing how to put your Ford Escape in 4 wheel drive can make all th"
+title: 'How to Put Ford Escape in 4 Wheel Drive: Easy Step-by-Step Guide'
+description: Are you ready to get the most out of your Ford Escape, especially when
+  the road gets tough? Knowing how to put your Ford Escape in 4 wheel drive can make
+  all th
 pubDate: 2026-03-05
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-put-ford-escape-in-4-wheel-drive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford 4WD Questions
+heroImage: https://tse1.mm.bing.net/th?q=how-to-put-ford-escape-in-4-wheel-drive&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you ready to get the most out of your Ford Escape, especially when the road gets tough? Knowing how to put your Ford Escape in 4 wheel drive can make all the difference.**

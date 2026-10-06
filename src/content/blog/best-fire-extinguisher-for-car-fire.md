@@ -1,10 +1,14 @@
 ---
-title: "Best Fire Extinguisher for Car Fire: Top Portable Safety Picks"
-description: "A car fire extinguisher can save lives and protect your vehicle from serious damage. Choosing the right one helps you act fast during emergencies. Car fires oft"
+title: 'Best Fire Extinguisher for Car Fire: Top Portable Safety Picks'
+description: A car fire extinguisher can save lives and protect your vehicle from
+  serious damage. Choosing the right one helps you act fast during emergencies. Car
+  fires oft
 pubDate: 2026-06-22
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-fire-extinguisher-for-car-fire&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Handy Car Gadgets
+heroImage: https://tse1.mm.bing.net/th?q=best-fire-extinguisher-for-car-fire&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **A car fire extinguisher can save lives and protect your vehicle from serious damage. Choosing the right one helps you act fast during emergencies.**

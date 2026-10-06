@@ -1,10 +1,13 @@
 ---
-title: "What Should My Car Battery Voltage Be: Essential Guide for Drivers"
-description: "Have you ever wondered if your car battery is working the way it should? Knowing the right voltage for your car battery can save you from unexpected breakdowns "
+title: 'What Should My Car Battery Voltage Be: Essential Guide for Drivers'
+description: 'Have you ever wondered if your car battery is working the way it should?
+  Knowing the right voltage for your car battery can save you from unexpected breakdowns '
 pubDate: 2025-10-30
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-should-my-car-battery-voltage-be&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Normal Battery Voltage
+heroImage: https://tse1.mm.bing.net/th?q=what-should-my-car-battery-voltage-be&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if your car battery is working the way it should? Knowing the right voltage for your car battery can save you from unexpected breakdowns and costly repairs.**

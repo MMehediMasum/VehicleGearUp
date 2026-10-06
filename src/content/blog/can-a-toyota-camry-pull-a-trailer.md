@@ -1,10 +1,14 @@
 ---
-title: "Can a Toyota Camry Pull a Trailer: Essential Towing Guide 2025"
-description: "Have you ever wondered if your Toyota Camry can tow a trailer? Whether you're planning a weekend getaway or need to move some gear, knowing your car’s towing ab"
+title: 'Can a Toyota Camry Pull a Trailer: Essential Towing Guide 2025'
+description: Have you ever wondered if your Toyota Camry can tow a trailer? Whether
+  you're planning a weekend getaway or need to move some gear, knowing your car’s
+  towing ab
 pubDate: 2025-09-07
-author: "herbertlangham"
-categories: ["Towing & Hauling"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-a-toyota-camry-pull-a-trailer&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Trailer Gear and Accessories
+heroImage: https://tse1.mm.bing.net/th?q=can-a-toyota-camry-pull-a-trailer&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Have you ever wondered if your Toyota Camry can tow a trailer? Whether you're planning a weekend getaway or need to move some gear, knowing your car’s towing ability is crucial.**

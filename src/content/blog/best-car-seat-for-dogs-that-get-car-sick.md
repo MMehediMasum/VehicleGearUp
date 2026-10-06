@@ -1,10 +1,14 @@
 ---
-title: "Best Car Seat for Dogs That Get Car Sick: Top Cozy Booster Picks"
-description: "Finding the best car seat for dogs that get car sick can make travel easier and safer. A good car seat keeps pets secure and comfortable during trips. Car sickn"
+title: 'Best Car Seat for Dogs That Get Car Sick: Top Cozy Booster Picks'
+description: Finding the best car seat for dogs that get car sick can make travel
+  easier and safer. A good car seat keeps pets secure and comfortable during trips.
+  Car sickn
 pubDate: 2025-10-22
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-seat-for-dogs-that-get-car-sick&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Choosing Child Car Seats
+heroImage: https://tse1.mm.bing.net/th?q=best-car-seat-for-dogs-that-get-car-sick&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Finding the best car seat for dogs that get car sick can make travel easier and safer. A good car seat keeps pets secure and comfortable during trips.**

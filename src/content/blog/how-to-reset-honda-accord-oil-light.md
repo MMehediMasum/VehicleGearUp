@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Honda Accord Oil Light: Quick & Easy Guide"
-description: "Your Honda Accord’s oil light is a small warning that plays a big role in keeping your car running smoothly. When it turns on, it’s easy to feel a bit worried o"
+title: 'How to Reset Honda Accord Oil Light: Quick & Easy Guide'
+description: Your Honda Accord’s oil light is a small warning that plays a big role
+  in keeping your car running smoothly. When it turns on, it’s easy to feel a bit
+  worried o
 pubDate: 2026-05-08
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-honda-accord-oil-light&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Oil Light Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-honda-accord-oil-light&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Your Honda Accord’s oil light is a small warning that plays a big role in keeping your car running smoothly. When it turns on, it’s easy to feel a bit worried or unsure about what to do next.**

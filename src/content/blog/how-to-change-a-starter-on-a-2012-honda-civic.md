@@ -1,10 +1,13 @@
 ---
-title: "How to Change a Starter on a 2012 Honda Civic: Easy Step-by-Step Guide"
-description: "Is your 2012 Honda Civic struggling to start, leaving you stuck and frustrated? Changing the starter might be the solution you need—and the good news is, you ca"
+title: 'How to Change a Starter on a 2012 Honda Civic: Easy Step-by-Step Guide'
+description: Is your 2012 Honda Civic struggling to start, leaving you stuck and frustrated?
+  Changing the starter might be the solution you need—and the good news is, you ca
 pubDate: 2026-02-01
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-a-starter-on-a-2012-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Starter Problems
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-a-starter-on-a-2012-honda-civic&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Is your 2012 Honda Civic struggling to start, leaving you stuck and frustrated? Changing the starter might be the solution you need—and the good news is, you can do it yourself.**

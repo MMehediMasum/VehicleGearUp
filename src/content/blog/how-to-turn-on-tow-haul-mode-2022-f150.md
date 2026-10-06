@@ -1,10 +1,14 @@
 ---
-title: "How to Turn on Tow Haul Mode 2025 F150: Easy Steps Guide"
-description: "If you’re driving a 2022 Ford F-150 and need to tow heavy loads, turning on Tow Haul Mode can make a huge difference. It helps your truck handle tough terrain a"
+title: 'How to Turn on Tow Haul Mode 2025 F150: Easy Steps Guide'
+description: If you’re driving a 2022 Ford F-150 and need to tow heavy loads, turning
+  on Tow Haul Mode can make a huge difference. It helps your truck handle tough terrain
+  a
 pubDate: 2025-09-19
-author: "herbertlangham"
-categories: ["Towing & Hauling"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-on-tow-haul-mode-2022-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford F150 Towing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-on-tow-haul-mode-2022-f150&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **If you’re driving a 2022 Ford F-150 and need to tow heavy loads, turning on Tow Haul Mode can make a huge difference. It helps your truck handle tough terrain and heavy weight with more control and less strain.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Tesla Model Y 19: Top Wheel Covers and Rim Protectors"
-description: "Choosing the best tires for the Tesla Model Y 19\" enhances safety and driving comfort. Proper tires improve handling, efficiency, and tire life. Tesla Model Y o"
+title: 'Best Tires for Tesla Model Y 19: Top Wheel Covers and Rim Protectors'
+description: Choosing the best tires for the Tesla Model Y 19" enhances safety and
+  driving comfort. Proper tires improve handling, efficiency, and tire life. Tesla
+  Model Y o
 pubDate: 2026-01-04
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-tesla-model-y-19&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Hybrid Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-tesla-model-y-19&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best tires for the Tesla Model Y 19" enhances safety and driving comfort. Proper tires improve handling, efficiency, and tire life.**

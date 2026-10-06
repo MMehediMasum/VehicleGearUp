@@ -1,10 +1,13 @@
 ---
-title: "Best High Flow Air Filter for Harley Davidson: Top Performance Picks"
-description: "Choosing the best high flow air filter for your Harley Davidson improves engine performance and fuel efficiency. Quality filters boost airflow while protecting "
+title: 'Best High Flow Air Filter for Harley Davidson: Top Performance Picks'
+description: 'Choosing the best high flow air filter for your Harley Davidson improves
+  engine performance and fuel efficiency. Quality filters boost airflow while protecting '
 pubDate: 2025-09-25
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-high-flow-air-filter-for-harley-davidson&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Maintenance Basics
+heroImage: https://tse1.mm.bing.net/th?q=best-high-flow-air-filter-for-harley-davidson&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best high flow air filter for your Harley Davidson improves engine performance and fuel efficiency. Quality filters boost airflow while protecting your engine from dirt and debris.**

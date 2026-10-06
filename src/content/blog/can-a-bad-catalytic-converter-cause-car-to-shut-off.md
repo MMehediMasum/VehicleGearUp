@@ -1,10 +1,14 @@
 ---
-title: "Can a Bad Catalytic Converter Cause Car to Shut Off? Shocking Truth!"
-description: "Have you ever been driving when suddenly your car just shuts off without warning? It’s frustrating and even dangerous. One surprising reason this might happen i"
+title: Can a Bad Catalytic Converter Cause Car to Shut Off? Shocking Truth!
+description: Have you ever been driving when suddenly your car just shuts off without
+  warning? It’s frustrating and even dangerous. One surprising reason this might happen
+  i
 pubDate: 2025-12-09
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-a-bad-catalytic-converter-cause-car-to-shut-off&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Catalytic Converter Questions
+heroImage: https://tse1.mm.bing.net/th?q=can-a-bad-catalytic-converter-cause-car-to-shut-off&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you ever been driving when suddenly your car just shuts off without warning? It’s frustrating and even dangerous.**

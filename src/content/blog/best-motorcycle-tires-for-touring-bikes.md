@@ -1,10 +1,14 @@
 ---
-title: "Best Motorcycle Tires for Touring Bikes: Top Picks for Grip and Durability"
-description: "Choosing the right tires is crucial for touring bike safety and comfort. The best motorcycle tires improve grip, durability, and stability on long rides. Tourin"
+title: 'Best Motorcycle Tires for Touring Bikes: Top Picks for Grip and Durability'
+description: Choosing the right tires is crucial for touring bike safety and comfort.
+  The best motorcycle tires improve grip, durability, and stability on long rides.
+  Tourin
 pubDate: 2025-12-21
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-motorcycle-tires-for-touring-bikes&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-motorcycle-tires-for-touring-bikes&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the right tires is crucial for touring bike safety and comfort. The best motorcycle tires improve grip, durability, and stability on long rides.**

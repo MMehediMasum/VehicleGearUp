@@ -1,10 +1,14 @@
 ---
-title: "How to Turn off Auto High Beams Honda Accord: Easy Step-by-Step Guide"
-description: "Struggling with your Honda Accord’s auto high beams flickering on at the wrong times? You’re not alone. Those bright lights can be distracting or even dangerous"
+title: 'How to Turn off Auto High Beams Honda Accord: Easy Step-by-Step Guide'
+description: Struggling with your Honda Accord’s auto high beams flickering on at
+  the wrong times? You’re not alone. Those bright lights can be distracting or even
+  dangerous
 pubDate: 2025-09-14
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-auto-high-beams-honda-accord&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Interior Light Settings
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-auto-high-beams-honda-accord&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Struggling with your Honda Accord’s auto high beams flickering on at the wrong times? You’re not alone.**

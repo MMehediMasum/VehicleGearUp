@@ -1,10 +1,14 @@
 ---
-title: "Can You Jump a Car With an Electric Vehicle: Essential Safety Tips"
-description: "Have you ever wondered if you can jump-start a car using your electric vehicle? If your traditional car battery dies, it’s natural to think your EV might come t"
+title: 'Can You Jump a Car With an Electric Vehicle: Essential Safety Tips'
+description: Have you ever wondered if you can jump-start a car using your electric
+  vehicle? If your traditional car battery dies, it’s natural to think your EV might
+  come t
 pubDate: 2026-02-02
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-jump-a-car-with-an-electric-vehicle&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hybrid Battery and Braking
+heroImage: https://tse1.mm.bing.net/th?q=can-you-jump-a-car-with-an-electric-vehicle&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Have you ever wondered if you can jump-start a car using your electric vehicle? If your traditional car battery dies, it’s natural to think your EV might come to the rescue.**

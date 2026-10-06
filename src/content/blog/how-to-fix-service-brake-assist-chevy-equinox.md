@@ -1,10 +1,14 @@
 ---
-title: "How to Fix Service Brake Assist Chevy Equinox: Quick & Easy Guide"
-description: "If you’ve seen the “Service Brake Assist” warning on your Chevy Equinox, you know how unsettling it can be. Your brakes are one of the most important parts of y"
+title: 'How to Fix Service Brake Assist Chevy Equinox: Quick & Easy Guide'
+description: If you’ve seen the “Service Brake Assist” warning on your Chevy Equinox,
+  you know how unsettling it can be. Your brakes are one of the most important parts
+  of y
 pubDate: 2026-05-05
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-service-brake-assist-chevy-equinox&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Parking Brake Help
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-service-brake-assist-chevy-equinox&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you’ve seen the “Service Brake Assist” warning on your Chevy Equinox, you know how unsettling it can be. Your brakes are one of the most important parts of your vehicle, and any issue with them demands quick attention.**

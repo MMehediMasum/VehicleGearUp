@@ -1,10 +1,14 @@
 ---
-title: "Is 2019 Bmw X3 All Wheel Drive: Ultimate Traction & Performance Guide"
-description: "Are you wondering if the 2019 BMW X3 comes with all-wheel drive? This is an important question because all-wheel drive can make a big difference in how your car"
+title: 'Is 2019 Bmw X3 All Wheel Drive: Ultimate Traction & Performance Guide'
+description: Are you wondering if the 2019 BMW X3 comes with all-wheel drive? This
+  is an important question because all-wheel drive can make a big difference in how
+  your car
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-2019-bmw-x3-all-wheel-drive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- All Wheel Drive Questions
+heroImage: https://tse1.mm.bing.net/th?q=is-2019-bmw-x3-all-wheel-drive&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you wondering if the 2019 BMW X3 comes with all-wheel drive? This is an important question because all-wheel drive can make a big difference in how your car handles different road conditions.**

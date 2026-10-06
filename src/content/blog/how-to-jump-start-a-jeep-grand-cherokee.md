@@ -1,10 +1,14 @@
 ---
-title: "How to Jump Start a Jeep Grand Cherokee: Quick & Easy Guide"
-description: "Have you ever turned the key in your Jeep Grand Cherokee only to find that it won’t start? It’s frustrating, especially when you’re in a hurry or far from help."
+title: 'How to Jump Start a Jeep Grand Cherokee: Quick & Easy Guide'
+description: Have you ever turned the key in your Jeep Grand Cherokee only to find
+  that it won’t start? It’s frustrating, especially when you’re in a hurry or far
+  from help.
 pubDate: 2026-02-04
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-jump-start-a-jeep-grand-cherokee&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jump Starting by Model
+heroImage: https://tse1.mm.bing.net/th?q=how-to-jump-start-a-jeep-grand-cherokee&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever turned the key in your Jeep Grand Cherokee only to find that it won’t start? It’s frustrating, especially when you’re in a hurry or far from help.**

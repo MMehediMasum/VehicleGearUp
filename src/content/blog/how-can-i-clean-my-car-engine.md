@@ -1,10 +1,14 @@
 ---
-title: "How Can I Clean My Car Engine: Easy Steps for a Sparkling Finish"
-description: "Want your car to run smoother and look great under the hood? Cleaning your car engine can do just that. But you might be wondering, “How can I clean my car engi"
+title: 'How Can I Clean My Car Engine: Easy Steps for a Sparkling Finish'
+description: Want your car to run smoother and look great under the hood? Cleaning
+  your car engine can do just that. But you might be wondering, “How can I clean my
+  car engi
 pubDate: 2026-05-10
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-can-i-clean-my-car-engine&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- How Car Engines Work
+heroImage: https://tse1.mm.bing.net/th?q=how-can-i-clean-my-car-engine&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Want your car to run smoother and look great under the hood? Cleaning your car engine can do just that.**

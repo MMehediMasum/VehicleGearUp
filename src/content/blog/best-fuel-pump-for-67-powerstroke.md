@@ -1,10 +1,13 @@
 ---
-title: "Best Fuel Pump for 6.7 Powerstroke: Top Reliable Picks for Super Duty"
-description: "Choosing the best fuel pump for your 6.7 Powerstroke ensures strong engine performance and reliability. A quality fuel pump supports smooth fuel flow and engine"
+title: 'Best Fuel Pump for 6.7 Powerstroke: Top Reliable Picks for Super Duty'
+description: Choosing the best fuel pump for your 6.7 Powerstroke ensures strong engine
+  performance and reliability. A quality fuel pump supports smooth fuel flow and engine
 pubDate: 2026-05-31
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-fuel-pump-for-67-powerstroke&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Diesel Fuel Filters and Additives
+heroImage: https://tse1.mm.bing.net/th?q=best-fuel-pump-for-67-powerstroke&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best fuel pump for your 6.7 Powerstroke ensures strong engine performance and reliability. A quality fuel pump supports smooth fuel flow and engine efficiency.**

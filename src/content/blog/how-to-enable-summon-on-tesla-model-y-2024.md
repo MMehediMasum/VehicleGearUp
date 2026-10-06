@@ -1,10 +1,14 @@
 ---
-title: "How to Enable Summon on Tesla Model Y 2025: Ultimate Guide"
-description: "Imagine being able to call your Tesla Model Y to come to you without even stepping outside. Sounds futuristic, right? With the 2024 Model Y, this is now a reali"
+title: 'How to Enable Summon on Tesla Model Y 2025: Ultimate Guide'
+description: Imagine being able to call your Tesla Model Y to come to you without
+  even stepping outside. Sounds futuristic, right? With the 2024 Model Y, this is
+  now a reali
 pubDate: 2026-02-07
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-enable-summon-on-tesla-model-y-2024&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Model Y Features
+heroImage: https://tse1.mm.bing.net/th?q=how-to-enable-summon-on-tesla-model-y-2024&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Imagine being able to call your Tesla Model Y to come to you without even stepping outside. Sounds futuristic, right?**

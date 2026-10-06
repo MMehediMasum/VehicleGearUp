@@ -1,10 +1,14 @@
 ---
-title: "Best Car Wash Soap for Power Washer: Top Foam Cannons and Detergents"
-description: "Choosing the best car wash soap for a power washer ensures a spotless, shiny vehicle with less effort. Not all soaps work well with foam guns or pressure washer"
+title: 'Best Car Wash Soap for Power Washer: Top Foam Cannons and Detergents'
+description: Choosing the best car wash soap for a power washer ensures a spotless,
+  shiny vehicle with less effort. Not all soaps work well with foam guns or pressure
+  washer
 pubDate: 2026-07-05
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-wash-soap-for-power-washer&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wash Soap Picks
+heroImage: https://tse1.mm.bing.net/th?q=best-car-wash-soap-for-power-washer&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best car wash soap for a power washer ensures a spotless, shiny vehicle with less effort. Not all soaps work well with foam guns or pressure washers.**

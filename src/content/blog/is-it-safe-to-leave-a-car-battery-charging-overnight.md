@@ -1,10 +1,14 @@
 ---
-title: "Is It Safe to Leave a Car Battery Charging Overnight: Essential Facts"
-description: "Have you ever wondered if it’s safe to leave your car battery charging overnight? Maybe you’ve heard mixed advice or felt unsure about what could happen while y"
+title: 'Is It Safe to Leave a Car Battery Charging Overnight: Essential Facts'
+description: Have you ever wondered if it’s safe to leave your car battery charging
+  overnight? Maybe you’ve heard mixed advice or felt unsure about what could happen
+  while y
 pubDate: 2026-04-02
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-it-safe-to-leave-a-car-battery-charging-overnight&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Charging While Idling
+heroImage: https://tse1.mm.bing.net/th?q=is-it-safe-to-leave-a-car-battery-charging-overnight&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if it’s safe to leave your car battery charging overnight? Maybe you’ve heard mixed advice or felt unsure about what could happen while you’re asleep.**

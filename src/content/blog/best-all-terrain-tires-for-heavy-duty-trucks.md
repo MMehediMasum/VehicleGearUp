@@ -1,10 +1,14 @@
 ---
-title: "Best All Terrain Tires for Heavy Duty Trucks: Top Durable Picks"
-description: "Choosing the right all-terrain tires for heavy-duty trucks ensures safety and performance on any surface. Durable tires handle mud, sand, rocks, and rough trail"
+title: 'Best All Terrain Tires for Heavy Duty Trucks: Top Durable Picks'
+description: Choosing the right all-terrain tires for heavy-duty trucks ensures safety
+  and performance on any surface. Durable tires handle mud, sand, rocks, and rough
+  trail
 pubDate: 2026-01-12
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-all-terrain-tires-for-heavy-duty-trucks&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- All Terrain Truck Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-all-terrain-tires-for-heavy-duty-trucks&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the right all-terrain tires for heavy-duty trucks ensures safety and performance on any surface. Durable tires handle mud, sand, rocks, and rough trails with ease.**

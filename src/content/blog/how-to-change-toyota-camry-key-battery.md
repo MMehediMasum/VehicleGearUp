@@ -1,10 +1,14 @@
 ---
-title: "How to Change Toyota Camry Key Battery: Easy Step-by-Step Guide"
-description: "Is your Toyota Camry key fob acting up or not working as well as it used to? The most common culprit is a weak or dead key battery. Changing it might seem trick"
+title: 'How to Change Toyota Camry Key Battery: Easy Step-by-Step Guide'
+description: Is your Toyota Camry key fob acting up or not working as well as it used
+  to? The most common culprit is a weak or dead key battery. Changing it might seem
+  trick
 pubDate: 2026-05-11
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-toyota-camry-key-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Key Batteries
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-toyota-camry-key-battery&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **Is your Toyota Camry key fob acting up or not working as well as it used to? The most common culprit is a weak or dead key battery.**

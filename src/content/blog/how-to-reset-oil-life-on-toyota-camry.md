@@ -1,10 +1,13 @@
 ---
-title: "How to Reset Oil Life on Toyota Camry: Quick & Easy Steps"
-description: "Keeping your Toyota Camry running smoothly means staying on top of maintenance. One key step is resetting the oil life indicator after an oil change. If you don"
+title: 'How to Reset Oil Life on Toyota Camry: Quick & Easy Steps'
+description: Keeping your Toyota Camry running smoothly means staying on top of maintenance.
+  One key step is resetting the oil life indicator after an oil change. If you don
 pubDate: 2026-04-23
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-life-on-toyota-camry&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ram and Dodge Oil Life
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-life-on-toyota-camry&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Keeping your Toyota Camry running smoothly means staying on top of maintenance. One key step is resetting the oil life indicator after an oil change.**

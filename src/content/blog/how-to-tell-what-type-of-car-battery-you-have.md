@@ -1,10 +1,14 @@
 ---
-title: "How to Tell What Type of Car Battery You Have: Quick & Easy Guide"
-description: "Are you unsure about the type of car battery powering your vehicle? Knowing exactly what kind of battery you have can save you time, money, and hassle when it’s"
+title: 'How to Tell What Type of Car Battery You Have: Quick & Easy Guide'
+description: Are you unsure about the type of car battery powering your vehicle? Knowing
+  exactly what kind of battery you have can save you time, money, and hassle when
+  it’s
 pubDate: 2026-04-14
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-tell-what-type-of-car-battery-you-have&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Price and Installation
+heroImage: https://tse1.mm.bing.net/th?q=how-to-tell-what-type-of-car-battery-you-have&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you unsure about the type of car battery powering your vehicle? Knowing exactly what kind of battery you have can save you time, money, and hassle when it’s time for maintenance or replacement.**

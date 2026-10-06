@@ -1,10 +1,14 @@
 ---
-title: "Why Does My Car Battery Light Stay on: Top Causes & Fixes"
-description: "Have you ever noticed your car battery light staying on and wondered what it means? That little warning can feel confusing and even a bit scary. But don’t worry"
+title: 'Why Does My Car Battery Light Stay on: Top Causes & Fixes'
+description: Have you ever noticed your car battery light staying on and wondered
+  what it means? That little warning can feel confusing and even a bit scary. But
+  don’t worry
 pubDate: 2026-04-05
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-does-my-car-battery-light-stay-on&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Warranty and Storage
+heroImage: https://tse1.mm.bing.net/th?q=why-does-my-car-battery-light-stay-on&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever noticed your car battery light staying on and wondered what it means? That little warning can feel confusing and even a bit scary.**

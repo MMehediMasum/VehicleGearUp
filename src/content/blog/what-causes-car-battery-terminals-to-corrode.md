@@ -1,10 +1,14 @@
 ---
-title: "What Causes Car Battery Terminals to Corrode: Shocking Truths Revealed"
-description: "Have you ever opened your car’s hood only to find a white, powdery buildup around the battery terminals? That crusty mess can stop your car from starting and le"
+title: 'What Causes Car Battery Terminals to Corrode: Shocking Truths Revealed'
+description: Have you ever opened your car’s hood only to find a white, powdery buildup
+  around the battery terminals? That crusty mess can stop your car from starting and
+  le
 pubDate: 2026-04-17
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-causes-car-battery-terminals-to-corrode&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Polarity and Acid
+heroImage: https://tse1.mm.bing.net/th?q=what-causes-car-battery-terminals-to-corrode&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever opened your car’s hood only to find a white, powdery buildup around the battery terminals? That crusty mess can stop your car from starting and leave you stranded at the worst possible time.**

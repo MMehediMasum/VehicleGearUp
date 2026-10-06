@@ -1,10 +1,13 @@
 ---
-title: "How to Reset Check Engine Light on Honda Accord: Quick & Easy Guide"
-description: "Is your Honda Accord’s check engine light flashing or staying on, leaving you worried about what’s wrong? You’re not alone, and the good news is that sometimes,"
+title: 'How to Reset Check Engine Light on Honda Accord: Quick & Easy Guide'
+description: Is your Honda Accord’s check engine light flashing or staying on, leaving
+  you worried about what’s wrong? You’re not alone, and the good news is that sometimes,
 pubDate: 2026-05-17
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-check-engine-light-on-honda-accord&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Resetting Check Engine Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-check-engine-light-on-honda-accord&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Is your Honda Accord’s check engine light flashing or staying on, leaving you worried about what’s wrong? You’re not alone, and the good news is that sometimes, resetting this light is easier than you think.**

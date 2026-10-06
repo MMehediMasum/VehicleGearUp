@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Find a Car Owner by License Plate Number: Ultimate Guide"
 description: "Have you ever needed to find out who owns a car but didn’t know where to start? Maybe you saw a suspicious vehicle near your home or want to get in touch with s"
 pubDate: 2026-02-19

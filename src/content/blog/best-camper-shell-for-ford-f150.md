@@ -1,10 +1,14 @@
 ---
-title: "Best Camper Shell for Ford F150: Ultimate Truck Bed Tent and Cover Guide"
-description: "Choosing the best camper shell for your Ford F150 can improve storage, security, and camping comfort. This guide covers top options for models from 2015 to 2025"
+title: 'Best Camper Shell for Ford F150: Ultimate Truck Bed Tent and Cover Guide'
+description: Choosing the best camper shell for your Ford F150 can improve storage,
+  security, and camping comfort. This guide covers top options for models from 2015
+  to 2025
 pubDate: 2026-06-13
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-camper-shell-for-ford-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford F150 Towing
+heroImage: https://tse1.mm.bing.net/th?q=best-camper-shell-for-ford-f150&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Choosing the best camper shell for your Ford F150 can improve storage, security, and camping comfort. This guide covers top options for models from 2015 to 2025.**

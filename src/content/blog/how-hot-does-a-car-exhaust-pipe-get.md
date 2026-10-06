@@ -1,10 +1,14 @@
 ---
-title: "How Hot Does a Car Exhaust Pipe Get: Surprising Temperature Facts"
-description: "Have you ever wondered just how hot your car’s exhaust pipe gets after a drive? It’s something many people don’t think about, but understanding this can help ke"
+title: 'How Hot Does a Car Exhaust Pipe Get: Surprising Temperature Facts'
+description: Have you ever wondered just how hot your car’s exhaust pipe gets after
+  a drive? It’s something many people don’t think about, but understanding this can
+  help ke
 pubDate: 2026-02-28
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-hot-does-a-car-exhaust-pipe-get&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Exhaust Systems
+heroImage: https://tse1.mm.bing.net/th?q=how-hot-does-a-car-exhaust-pipe-get&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you ever wondered just how hot your car’s exhaust pipe gets after a drive? It’s something many people don’t think about, but understanding this can help keep you and your car safe.**

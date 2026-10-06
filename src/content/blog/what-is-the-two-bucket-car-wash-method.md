@@ -1,10 +1,14 @@
 ---
-title: "What is the Two Bucket Car Wash Method: Ultimate Guide for Shiny Cars"
-description: "If you care about keeping your car spotless without causing scratches, the Two Bucket Car Wash Method is something you need to know. This simple technique can s"
+title: 'What is the Two Bucket Car Wash Method: Ultimate Guide for Shiny Cars'
+description: If you care about keeping your car spotless without causing scratches,
+  the Two Bucket Car Wash Method is something you need to know. This simple technique
+  can s
 pubDate: 2026-03-23
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-two-bucket-car-wash-method&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wash Basics
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-two-bucket-car-wash-method&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **If you care about keeping your car spotless without causing scratches, the Two Bucket Car Wash Method is something you need to know. This simple technique can save your paint and make washing your car easier and more effective.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Clean a Car Windshield Inside: Expert Tips for Sparkling Clarity"
-description: "Your car’s windshield is more than just a window to the road—it’s your safety shield. But have you ever noticed that annoying haze or streaks when you look thro"
+title: 'How to Clean a Car Windshield Inside: Expert Tips for Sparkling Clarity'
+description: Your car’s windshield is more than just a window to the road—it’s your
+  safety shield. But have you ever noticed that annoying haze or streaks when you
+  look thro
 pubDate: 2025-10-25
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-a-car-windshield-inside&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Windshield and Mirror Repair
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-a-car-windshield-inside&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Your car’s windshield is more than just a window to the road—it’s your safety shield. But have you ever noticed that annoying haze or streaks when you look through it from inside?**

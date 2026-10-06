@@ -1,10 +1,14 @@
 ---
-title: "How Reliable is the Mazda CX-5: Unveiling Truths & Insights"
-description: "Are you thinking about buying a Mazda CX-5 but wondering how reliable it really is? You want a car that won’t let you down, one that keeps you safe and saves yo"
+title: 'How Reliable is the Mazda CX-5: Unveiling Truths & Insights'
+description: Are you thinking about buying a Mazda CX-5 but wondering how reliable
+  it really is? You want a car that won’t let you down, one that keeps you safe and
+  saves yo
 pubDate: 2026-02-07
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-reliable-is-the-mazda-cx-5&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Turning On 4WD
+heroImage: https://tse1.mm.bing.net/th?q=how-reliable-is-the-mazda-cx-5&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you thinking about buying a Mazda CX-5 but wondering how reliable it really is? You want a car that won’t let you down, one that keeps you safe and saves you money on repairs.**

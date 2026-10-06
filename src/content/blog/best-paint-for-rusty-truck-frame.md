@@ -1,10 +1,14 @@
 ---
-title: "Best Paint for Rusty Truck Frame: Top Rust Converters & Protective Coatings"
-description: "Choosing the best paint for a rusty truck frame protects your vehicle and stops rust from spreading. Using the right rust converter paint saves time and money b"
+title: 'Best Paint for Rusty Truck Frame: Top Rust Converters & Protective Coatings'
+description: Choosing the best paint for a rusty truck frame protects your vehicle
+  and stops rust from spreading. Using the right rust converter paint saves time and
+  money b
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-paint-for-rusty-truck-frame&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spray Paint and Scratch Repair
+heroImage: https://tse1.mm.bing.net/th?q=best-paint-for-rusty-truck-frame&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best paint for a rusty truck frame protects your vehicle and stops rust from spreading. Using the right rust converter paint saves time and money by preventing further damage.**

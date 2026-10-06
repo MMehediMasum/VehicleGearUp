@@ -1,10 +1,13 @@
 ---
-title: "Can Ford Fusion Last $300 000 Miles? Ultimate Durability Guide"
-description: "Are you wondering if your Ford Fusion can really last up to 300,000 miles? It’s a question many drivers ask when thinking about long-term value and reliability."
+title: Can Ford Fusion Last $300 000 Miles? Ultimate Durability Guide
+description: Are you wondering if your Ford Fusion can really last up to 300,000 miles?
+  It’s a question many drivers ask when thinking about long-term value and reliability.
 pubDate: 2026-03-08
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-ford-fusion-last-300-000-miles&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Third Row and Mileage
+heroImage: https://tse1.mm.bing.net/th?q=can-ford-fusion-last-300-000-miles&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you wondering if your Ford Fusion can really last up to 300,000 miles? It’s a question many drivers ask when thinking about long-term value and reliability.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Change Light Honda Accord: Quick & Easy Guide"
-description: "If you drive a Honda Accord, you’ve probably seen that stubborn oil change light pop up on your dashboard. It’s there to remind you to keep your engine in top s"
+title: 'How to Reset Oil Change Light Honda Accord: Quick & Easy Guide'
+description: If you drive a Honda Accord, you’ve probably seen that stubborn oil change
+  light pop up on your dashboard. It’s there to remind you to keep your engine in
+  top s
 pubDate: 2026-05-17
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-change-light-honda-accord&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Oil Change Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-change-light-honda-accord&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you drive a Honda Accord, you’ve probably seen that stubborn oil change light pop up on your dashboard. It’s there to remind you to keep your engine in top shape, but once you’ve changed the oil, that light can feel like an annoying distraction.**

@@ -1,10 +1,14 @@
 ---
-title: "What Causes a Car Battery to Corrode: Top Reasons Revealed"
-description: "Have you ever opened your car’s hood and noticed a white or greenish powdery buildup around the battery terminals? That’s corrosion, and it can quietly cause bi"
+title: 'What Causes a Car Battery to Corrode: Top Reasons Revealed'
+description: Have you ever opened your car’s hood and noticed a white or greenish
+  powdery buildup around the battery terminals? That’s corrosion, and it can quietly
+  cause bi
 pubDate: 2026-04-15
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-causes-a-car-battery-to-corrode&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Polarity and Acid
+heroImage: https://tse1.mm.bing.net/th?q=what-causes-a-car-battery-to-corrode&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever opened your car’s hood and noticed a white or greenish powdery buildup around the battery terminals? That’s corrosion, and it can quietly cause big problems for your car’s performance.**

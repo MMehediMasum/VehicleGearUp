@@ -1,10 +1,14 @@
 ---
-title: "Best Portable Air Compressor for Bike Tires: Top Cordless Inflators Reviewed"
-description: "A reliable portable air compressor keeps your bike tires properly inflated on every ride. It saves time and effort during tire maintenance or emergencies. Choos"
+title: 'Best Portable Air Compressor for Bike Tires: Top Cordless Inflators Reviewed'
+description: A reliable portable air compressor keeps your bike tires properly inflated
+  on every ride. It saves time and effort during tire maintenance or emergencies.
+  Choos
 pubDate: 2026-01-07
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-portable-air-compressor-for-bike-tires&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Bike Tires and Pumps
+heroImage: https://tse1.mm.bing.net/th?q=best-portable-air-compressor-for-bike-tires&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **A reliable portable air compressor keeps your bike tires properly inflated on every ride. It saves time and effort during tire maintenance or emergencies.**

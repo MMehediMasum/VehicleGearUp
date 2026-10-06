@@ -1,10 +1,14 @@
 ---
-title: "Can a Cracked Car Bumper Be Repaired: Expert Tips Revealed"
-description: "Has your car bumper recently cracked, leaving you worried about the next steps? You might be wondering if that damage means you need an expensive replacement or"
+title: 'Can a Cracked Car Bumper Be Repaired: Expert Tips Revealed'
+description: Has your car bumper recently cracked, leaving you worried about the next
+  steps? You might be wondering if that damage means you need an expensive replacement
+  or
 pubDate: 2025-11-15
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-a-cracked-car-bumper-be-repaired&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Bumper Dent and Scratch Repair
+heroImage: https://tse1.mm.bing.net/th?q=can-a-cracked-car-bumper-be-repaired&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Has your car bumper recently cracked, leaving you worried about the next steps? You might be wondering if that damage means you need an expensive replacement or if a simple repair can fix it.**

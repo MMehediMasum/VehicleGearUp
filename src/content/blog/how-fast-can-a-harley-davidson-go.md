@@ -1,10 +1,14 @@
 ---
-title: "How Fast Can a Harley Davidson Go: Shocking Top Speed Revealed"
-description: "Have you ever wondered just how fast a Harley Davidson can go? If you’re curious about the speed and power behind these iconic bikes, you’re in the right place."
+title: 'How Fast Can a Harley Davidson Go: Shocking Top Speed Revealed'
+description: Have you ever wondered just how fast a Harley Davidson can go? If you’re
+  curious about the speed and power behind these iconic bikes, you’re in the right
+  place.
 pubDate: 2025-09-04
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-fast-can-a-harley-davidson-go&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Maintenance Basics
+heroImage: https://tse1.mm.bing.net/th?q=how-fast-can-a-harley-davidson-go&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Have you ever wondered just how fast a Harley Davidson can go? If you’re curious about the speed and power behind these iconic bikes, you’re in the right place.**

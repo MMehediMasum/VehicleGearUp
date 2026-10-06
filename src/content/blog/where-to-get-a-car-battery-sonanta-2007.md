@@ -1,10 +1,14 @@
 ---
-title: "Where to Get a Car Battery Sonanta 2007: Top Reliable Sources"
-description: "Are you struggling to find the right car battery for your Sonata 2007? You need a battery that fits perfectly and keeps your car running smoothly. Choosing the "
+title: 'Where to Get a Car Battery Sonanta 2007: Top Reliable Sources'
+description: 'Are you struggling to find the right car battery for your Sonata 2007?
+  You need a battery that fits perfectly and keeps your car running smoothly. Choosing
+  the '
 pubDate: 2026-04-12
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-get-a-car-battery-sonanta-2007&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Selling Old Car Batteries
+heroImage: https://tse1.mm.bing.net/th?q=where-to-get-a-car-battery-sonanta-2007&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you struggling to find the right car battery for your Sonata 2007? You need a battery that fits perfectly and keeps your car running smoothly.**

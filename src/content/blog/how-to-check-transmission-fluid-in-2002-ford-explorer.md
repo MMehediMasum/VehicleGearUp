@@ -1,10 +1,14 @@
 ---
-title: "How to Check Transmission Fluid in 2002 Ford Explorer: Easy Steps"
-description: "If you own a 2002 Ford Explorer, knowing how to check your transmission fluid is one of the simplest ways to keep your vehicle running smoothly. Transmission fl"
+title: 'How to Check Transmission Fluid in 2002 Ford Explorer: Easy Steps'
+description: If you own a 2002 Ford Explorer, knowing how to check your transmission
+  fluid is one of the simplest ways to keep your vehicle running smoothly. Transmission
+  fl
 pubDate: 2026-04-28
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-check-transmission-fluid-in-2002-ford-explorer&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Transmission Fluid Checks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-check-transmission-fluid-in-2002-ford-explorer&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a 2002 Ford Explorer, knowing how to check your transmission fluid is one of the simplest ways to keep your vehicle running smoothly. Transmission fluid plays a key role in preventing costly repairs and ensuring your Explorer shifts gears without trouble.**

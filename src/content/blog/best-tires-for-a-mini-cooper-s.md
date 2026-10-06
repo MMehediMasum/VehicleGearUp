@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for a Mini Cooper S: Top Picks for Performance and Style"
-description: "Choosing the best tires for a Mini Cooper S improves driving safety and performance. The right tires match your car’s style and road needs perfectly. Mini Coope"
+title: 'Best Tires for a Mini Cooper S: Top Picks for Performance and Style'
+description: Choosing the best tires for a Mini Cooper S improves driving safety and
+  performance. The right tires match your car’s style and road needs perfectly. Mini
+  Coope
 pubDate: 2026-01-11
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-a-mini-cooper-s&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- European Car Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-a-mini-cooper-s&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for a Mini Cooper S improves driving safety and performance. The right tires match your car’s style and road needs perfectly.**

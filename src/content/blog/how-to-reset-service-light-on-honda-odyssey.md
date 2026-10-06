@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Service Light on Honda Odyssey: Easy Step-by-Step Guide"
-description: "Is your Honda Odyssey’s service light on and you’re not sure what to do next? You’re not alone. That little warning can feel confusing and even a bit frustratin"
+title: 'How to Reset Service Light on Honda Odyssey: Easy Step-by-Step Guide'
+description: Is your Honda Odyssey’s service light on and you’re not sure what to
+  do next? You’re not alone. That little warning can feel confusing and even a bit
+  frustratin
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-service-light-on-honda-odyssey&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Maintenance Light Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-service-light-on-honda-odyssey&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your Honda Odyssey’s service light on and you’re not sure what to do next? You’re not alone.**

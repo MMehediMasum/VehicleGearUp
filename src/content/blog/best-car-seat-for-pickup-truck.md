@@ -1,10 +1,14 @@
 ---
-title: "Best Car Seat for Pickup Truck: Top Durable and Comfortable Picks"
-description: "Choosing the best car seat for a pickup truck improves comfort and safety for drivers and passengers. It also protects your truck’s interior from wear and tear."
+title: 'Best Car Seat for Pickup Truck: Top Durable and Comfortable Picks'
+description: Choosing the best car seat for a pickup truck improves comfort and safety
+  for drivers and passengers. It also protects your truck’s interior from wear and
+  tear.
 pubDate: 2026-07-16
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-seat-for-pickup-truck&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Choosing Child Car Seats
+heroImage: https://tse1.mm.bing.net/th?q=best-car-seat-for-pickup-truck&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best car seat for a pickup truck improves comfort and safety for drivers and passengers. It also protects your truck’s interior from wear and tear.**

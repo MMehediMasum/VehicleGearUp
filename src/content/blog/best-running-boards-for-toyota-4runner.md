@@ -1,10 +1,14 @@
 ---
-title: "Best Running Boards for Toyota 4Runner: Top Durable Side Steps Reviewed"
-description: "Choosing the best running boards for your Toyota 4Runner improves access and adds style. Running boards also protect the vehicle’s sides from dirt and damage. T"
+title: 'Best Running Boards for Toyota 4Runner: Top Durable Side Steps Reviewed'
+description: Choosing the best running boards for your Toyota 4Runner improves access
+  and adds style. Running boards also protect the vehicle’s sides from dirt and damage.
+  T
 pubDate: 2026-05-31
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-running-boards-for-toyota-4runner&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Running Boards
+heroImage: https://tse1.mm.bing.net/th?q=best-running-boards-for-toyota-4runner&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Choosing the best running boards for your Toyota 4Runner improves access and adds style. Running boards also protect the vehicle’s sides from dirt and damage.**

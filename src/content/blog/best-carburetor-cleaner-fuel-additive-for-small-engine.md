@@ -1,10 +1,14 @@
 ---
-title: "Best Carburetor Cleaner Fuel Additive for Small Engine Performance Boost"
-description: "A clean carburetor boosts small engine performance and saves fuel. The right carburetor cleaner fuel additive keeps engines running smoothly. Small engines ofte"
+title: Best Carburetor Cleaner Fuel Additive for Small Engine Performance Boost
+description: A clean carburetor boosts small engine performance and saves fuel. The
+  right carburetor cleaner fuel additive keeps engines running smoothly. Small engines
+  ofte
 pubDate: 2026-07-15
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-carburetor-cleaner-fuel-additive-for-small-engine&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Carburetor and Fuel Injection Kits
+heroImage: https://tse1.mm.bing.net/th?q=best-carburetor-cleaner-fuel-additive-for-small-engine&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **A clean carburetor boosts small engine performance and saves fuel. The right carburetor cleaner fuel additive keeps engines running smoothly.**

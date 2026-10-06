@@ -1,10 +1,13 @@
 ---
-title: "Best Cold Air Intake for Dodge Charger V6 to Boost Performance Fast"
-description: "Upgrading the cold air intake on your Dodge Charger V6 improves airflow and engine efficiency. It boosts horsepower and gives your car better throttle response."
+title: Best Cold Air Intake for Dodge Charger V6 to Boost Performance Fast
+description: Upgrading the cold air intake on your Dodge Charger V6 improves airflow
+  and engine efficiency. It boosts horsepower and gives your car better throttle response.
 pubDate: 2025-10-19
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-dodge-charger-v6&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hemi Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-dodge-charger-v6&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Upgrading the cold air intake on your Dodge Charger V6 improves airflow and engine efficiency. It boosts horsepower and gives your car better throttle response.**

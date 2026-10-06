@@ -1,10 +1,14 @@
 ---
-title: "How to Change Radio Station in Mazda Cx 5 2025: Easy Steps Guide"
-description: "Changing the radio station in your Mazda CX-5 2023 should be quick and hassle-free, but sometimes the controls can feel a bit tricky. If you’ve ever fumbled wit"
+title: 'How to Change Radio Station in Mazda Cx 5 2025: Easy Steps Guide'
+description: Changing the radio station in your Mazda CX-5 2023 should be quick and
+  hassle-free, but sometimes the controls can feel a bit tricky. If you’ve ever fumbled
+  wit
 pubDate: 2026-02-26
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-radio-station-in-mazda-cx-5-2023&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Entertainment Systems
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-radio-station-in-mazda-cx-5-2023&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Changing the radio station in your Mazda CX-5 2023 should be quick and hassle-free, but sometimes the controls can feel a bit tricky. If you’ve ever fumbled with buttons or struggled to find your favorite station while driving, you’re not alone.**

@@ -1,10 +1,14 @@
 ---
-title: "When Taking off a Car Battery Which Terminal First: Expert Tips"
-description: "When it comes to removing your car battery, one small mistake can lead to sparks, shocks, or even damage to your vehicle’s electrical system. So, which terminal"
+title: 'When Taking off a Car Battery Which Terminal First: Expert Tips'
+description: When it comes to removing your car battery, one small mistake can lead
+  to sparks, shocks, or even damage to your vehicle’s electrical system. So, which
+  terminal
 pubDate: 2026-04-08
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=when-taking-off-a-car-battery-which-terminal-first&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Disconnect Order
+heroImage: https://tse1.mm.bing.net/th?q=when-taking-off-a-car-battery-which-terminal-first&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **When it comes to removing your car battery, one small mistake can lead to sparks, shocks, or even damage to your vehicle’s electrical system. So, which terminal should you disconnect first?**

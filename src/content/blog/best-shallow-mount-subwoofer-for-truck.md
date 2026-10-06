@@ -1,10 +1,14 @@
 ---
-title: "Best Shallow Mount Subwoofer for Truck: Top Compact Bass Solutions"
-description: "Finding the best shallow mount subwoofer for your truck can enhance your audio experience without taking up much space. These subwoofers deliver deep bass while"
+title: 'Best Shallow Mount Subwoofer for Truck: Top Compact Bass Solutions'
+description: Finding the best shallow mount subwoofer for your truck can enhance your
+  audio experience without taking up much space. These subwoofers deliver deep bass
+  while
 pubDate: 2026-06-01
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-shallow-mount-subwoofer-for-truck&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Entertainment Systems
+heroImage: https://tse1.mm.bing.net/th?q=best-shallow-mount-subwoofer-for-truck&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Finding the best shallow mount subwoofer for your truck can enhance your audio experience without taking up much space. These subwoofers deliver deep bass while fitting perfectly in tight spots.**

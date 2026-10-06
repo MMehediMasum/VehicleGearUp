@@ -1,10 +1,14 @@
 ---
-title: "How to Get Rid of Water Spots on Car Windshield: Easy Quick Fixes"
-description: "Have you ever noticed those annoying water spots ruining the clear view through your car windshield? They can be stubborn, distracting, and even dangerous when "
+title: 'How to Get Rid of Water Spots on Car Windshield: Easy Quick Fixes'
+description: 'Have you ever noticed those annoying water spots ruining the clear view
+  through your car windshield? They can be stubborn, distracting, and even dangerous
+  when '
 pubDate: 2025-11-06
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-get-rid-of-water-spots-on-car-windshield&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Water Spot Removal
+heroImage: https://tse1.mm.bing.net/th?q=how-to-get-rid-of-water-spots-on-car-windshield&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever noticed those annoying water spots ruining the clear view through your car windshield? They can be stubborn, distracting, and even dangerous when they block your vision.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Change on Volkswagen Tiguan: Quick & Easy Guide"
-description: "If you own a Volkswagen Tiguan, knowing how to reset the oil change light is essential for keeping your vehicle running smoothly. Ignoring this simple step can "
+title: 'How to Reset Oil Change on Volkswagen Tiguan: Quick & Easy Guide'
+description: 'If you own a Volkswagen Tiguan, knowing how to reset the oil change
+  light is essential for keeping your vehicle running smoothly. Ignoring this simple
+  step can '
 pubDate: 2025-09-06
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-change-on-volkswagen-tiguan&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Oil Change Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-change-on-volkswagen-tiguan&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a Volkswagen Tiguan, knowing how to reset the oil change light is essential for keeping your vehicle running smoothly. Ignoring this simple step can lead to confusion and even costly maintenance mistakes.**

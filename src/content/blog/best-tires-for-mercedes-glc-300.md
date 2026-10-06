@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Mercedes GLC 300: Top Picks for Ultimate Performance"
-description: "Choosing the best tires for your Mercedes GLC 300 ensures safety and smooth driving. The right tires improve performance on all roads and in any weather. The Me"
+title: 'Best Tires for Mercedes GLC 300: Top Picks for Ultimate Performance'
+description: Choosing the best tires for your Mercedes GLC 300 ensures safety and
+  smooth driving. The right tires improve performance on all roads and in any weather.
+  The Me
 pubDate: 2025-12-21
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-mercedes-glc-300&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- European Car Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-mercedes-glc-300&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your Mercedes GLC 300 ensures safety and smooth driving. The right tires improve performance on all roads and in any weather.**

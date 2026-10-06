@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Jeep Grand Cherokee Battery: Quick & Easy Guide"
-description: "Is your Jeep Grand Cherokee acting up after a battery change or disconnect? You’re not alone. Resetting your Jeep Grand Cherokee battery might sound tricky, but"
+title: 'How to Reset Jeep Grand Cherokee Battery: Quick & Easy Guide'
+description: Is your Jeep Grand Cherokee acting up after a battery change or disconnect?
+  You’re not alone. Resetting your Jeep Grand Cherokee battery might sound tricky,
+  but
 pubDate: 2026-04-12
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-jeep-grand-cherokee-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Warranty and Storage
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-jeep-grand-cherokee-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your Jeep Grand Cherokee acting up after a battery change or disconnect? You’re not alone.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Turn off Cruise Main Honda Civic: Easy Steps to Disable"
-description: "Are you driving your Honda Civic and wondering how to turn off the Cruise Main feature quickly and safely? Knowing exactly how to do this can save you from conf"
+title: 'How to Turn off Cruise Main Honda Civic: Easy Steps to Disable'
+description: Are you driving your Honda Civic and wondering how to turn off the Cruise
+  Main feature quickly and safely? Knowing exactly how to do this can save you from
+  conf
 pubDate: 2026-01-23
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-cruise-main-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Turning Off Safety Features
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-cruise-main-honda-civic&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are you driving your Honda Civic and wondering how to turn off the Cruise Main feature quickly and safely? Knowing exactly how to do this can save you from confusion and keep your drive smooth.**

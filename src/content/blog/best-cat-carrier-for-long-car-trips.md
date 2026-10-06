@@ -1,10 +1,14 @@
 ---
-title: "Best Cat Carrier for Long Car Trips: Spacious, Secure & Comfortable Choices"
-description: "Choosing the best cat carrier for long car trips helps keep your pet safe and comfortable. A good carrier also makes travel easier for you and your cat. Long ca"
+title: 'Best Cat Carrier for Long Car Trips: Spacious, Secure & Comfortable Choices'
+description: Choosing the best cat carrier for long car trips helps keep your pet
+  safe and comfortable. A good carrier also makes travel easier for you and your cat.
+  Long ca
 pubDate: 2026-06-01
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cat-carrier-for-long-car-trips&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Pets and Babies in Cars
+heroImage: https://tse1.mm.bing.net/th?q=best-cat-carrier-for-long-car-trips&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best cat carrier for long car trips helps keep your pet safe and comfortable. A good carrier also makes travel easier for you and your cat.**

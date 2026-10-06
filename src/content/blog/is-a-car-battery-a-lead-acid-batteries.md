@@ -1,10 +1,14 @@
 ---
-title: "Is a Car Battery a Lead Acid Batteries: Essential Facts Revealed"
-description: "Have you ever wondered what kind of battery powers your car? You might have heard the term \"lead acid battery\" but aren’t sure if it really applies to your vehi"
+title: 'Is a Car Battery a Lead Acid Batteries: Essential Facts Revealed'
+description: Have you ever wondered what kind of battery powers your car? You might
+  have heard the term "lead acid battery" but aren’t sure if it really applies to
+  your vehi
 pubDate: 2026-04-04
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-a-car-battery-a-lead-acid-batteries&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Types and Specs
+heroImage: https://tse1.mm.bing.net/th?q=is-a-car-battery-a-lead-acid-batteries&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered what kind of battery powers your car? You might have heard the term "lead acid battery" but aren’t sure if it really applies to your vehicle.**

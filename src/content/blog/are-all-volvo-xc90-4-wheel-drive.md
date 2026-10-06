@@ -1,10 +1,14 @@
 ---
-title: "Are All Volvo XC90 4 Wheel Drive? Unveiling the Truth"
-description: "Are you curious whether all Volvo XC90 models come with 4-wheel drive? If you’re thinking about buying one or already own this stylish SUV, knowing how its driv"
+title: Are All Volvo XC90 4 Wheel Drive? Unveiling the Truth
+description: Are you curious whether all Volvo XC90 models come with 4-wheel drive?
+  If you’re thinking about buying one or already own this stylish SUV, knowing how
+  its driv
 pubDate: 2025-11-13
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-all-volvo-xc90-4-wheel-drive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- All Wheel Drive Questions
+heroImage: https://tse1.mm.bing.net/th?q=are-all-volvo-xc90-4-wheel-drive&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you curious whether all Volvo XC90 models come with 4-wheel drive? If you’re thinking about buying one or already own this stylish SUV, knowing how its drivetrain works can make a big difference.**

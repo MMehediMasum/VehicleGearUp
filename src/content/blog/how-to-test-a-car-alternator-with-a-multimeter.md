@@ -1,10 +1,14 @@
 ---
-title: "How to Test a Car Alternator With a Multimeter: Quick & Easy Guide"
-description: "Is your car battery constantly dying, or are you hearing strange noises under the hood? These could be signs that your alternator isn’t working right. But how c"
+title: 'How to Test a Car Alternator With a Multimeter: Quick & Easy Guide'
+description: Is your car battery constantly dying, or are you hearing strange noises
+  under the hood? These could be signs that your alternator isn’t working right. But
+  how c
 pubDate: 2026-04-20
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-test-a-car-alternator-with-a-multimeter&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Charging While Idling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-test-a-car-alternator-with-a-multimeter&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your car battery constantly dying, or are you hearing strange noises under the hood? These could be signs that your alternator isn’t working right.**

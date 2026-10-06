@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Spark Plug for Predator 212: Top Picks for Power and Durability"
 description: "Choosing the best spark plug for the Predator 212 engine ensures reliable starts and smooth running. The right spark plug improves engine power, fuel efficiency"
 pubDate: 2026-06-06

@@ -1,10 +1,14 @@
 ---
-title: "How to Replace a Honda Odyssey Battery: Easy Step-by-Step Guide"
-description: "Is your Honda Odyssey struggling to start, or have you noticed dimmer lights and slow power windows? These are clear signs your battery might be failing. Replac"
+title: 'How to Replace a Honda Odyssey Battery: Easy Step-by-Step Guide'
+description: Is your Honda Odyssey struggling to start, or have you noticed dimmer
+  lights and slow power windows? These are clear signs your battery might be failing.
+  Replac
 pubDate: 2026-05-18
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-replace-a-honda-odyssey-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- When to Replace a Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-replace-a-honda-odyssey-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your Honda Odyssey struggling to start, or have you noticed dimmer lights and slow power windows? These are clear signs your battery might be failing.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Turn off Auto High Beams Honda Civic: Quick & Easy Guide"
-description: "Are you finding your Honda Civic’s auto high beams more annoying than helpful? Maybe they switch on at the wrong times or blind other drivers, leaving you frust"
+title: 'How to Turn off Auto High Beams Honda Civic: Quick & Easy Guide'
+description: Are you finding your Honda Civic’s auto high beams more annoying than
+  helpful? Maybe they switch on at the wrong times or blind other drivers, leaving
+  you frust
 pubDate: 2026-02-10
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-auto-high-beams-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Interior Light Settings
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-auto-high-beams-honda-civic&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are you finding your Honda Civic’s auto high beams more annoying than helpful? Maybe they switch on at the wrong times or blind other drivers, leaving you frustrated.**

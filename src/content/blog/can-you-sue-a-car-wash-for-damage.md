@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can You Sue a Car Wash for Damage? Know Your Legal Rights"
 description: "Have you ever pulled your car out of a car wash only to find scratches, dents, or other damage? It’s frustrating and can leave you wondering: can you sue a car "
 pubDate: 2026-03-23

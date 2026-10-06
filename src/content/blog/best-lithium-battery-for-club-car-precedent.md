@@ -1,10 +1,14 @@
 ---
-title: "Best Lithium Battery for Club Car Precedent: Top Durable Choices Reviewed"
-description: "Choosing the best lithium battery for your Club Car Precedent ensures longer rides and reliable power. This guide highlights top lithium battery options designe"
+title: 'Best Lithium Battery for Club Car Precedent: Top Durable Choices Reviewed'
+description: Choosing the best lithium battery for your Club Car Precedent ensures
+  longer rides and reliable power. This guide highlights top lithium battery options
+  designe
 pubDate: 2026-07-10
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lithium-battery-for-club-car-precedent&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Powersports Batteries
+heroImage: https://tse1.mm.bing.net/th?q=best-lithium-battery-for-club-car-precedent&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best lithium battery for your Club Car Precedent ensures longer rides and reliable power. This guide highlights top lithium battery options designed for Club Car Precedent golf carts.**

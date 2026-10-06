@@ -1,10 +1,14 @@
 ---
-title: "Best Fuel Injector Cleaner for Subaru: Top Picks for Ultimate Engine Care"
-description: "Choosing the best fuel injector cleaner for your Subaru helps keep its engine running smoothly. Clean injectors improve fuel efficiency and reduce emissions. Fu"
+title: 'Best Fuel Injector Cleaner for Subaru: Top Picks for Ultimate Engine Care'
+description: Choosing the best fuel injector cleaner for your Subaru helps keep its
+  engine running smoothly. Clean injectors improve fuel efficiency and reduce emissions.
+  Fu
 pubDate: 2026-07-04
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-fuel-injector-cleaner-for-subaru&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Fuel Injector Cleaner Picks
+heroImage: https://tse1.mm.bing.net/th?q=best-fuel-injector-cleaner-for-subaru&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best fuel injector cleaner for your Subaru helps keep its engine running smoothly. Clean injectors improve fuel efficiency and reduce emissions.**

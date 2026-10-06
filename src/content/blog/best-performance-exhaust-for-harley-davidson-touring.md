@@ -1,10 +1,14 @@
 ---
-title: "Best Performance Exhaust for Harley Davidson Touring: Top Slip-Ons Reviewed"
-description: "Choosing the best performance exhaust for Harley Davidson Touring bikes can boost power and sound. Quality slip-ons and full systems enhance your ride’s look an"
+title: 'Best Performance Exhaust for Harley Davidson Touring: Top Slip-Ons Reviewed'
+description: Choosing the best performance exhaust for Harley Davidson Touring bikes
+  can boost power and sound. Quality slip-ons and full systems enhance your ride’s
+  look an
 pubDate: 2025-11-14
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-performance-exhaust-for-harley-davidson-touring&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Fuel and Exhaust
+heroImage: https://tse1.mm.bing.net/th?q=best-performance-exhaust-for-harley-davidson-touring&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best performance exhaust for Harley Davidson Touring bikes can boost power and sound. Quality slip-ons and full systems enhance your ride’s look and feel.**

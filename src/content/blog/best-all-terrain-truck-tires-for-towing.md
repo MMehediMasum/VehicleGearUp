@@ -1,10 +1,14 @@
 ---
-title: "Best All Terrain Truck Tires for Towing: Top Durable Picks for Heavy Loads"
-description: "Choosing the right all-terrain truck tires makes towing safer and easier. Strong tires improve grip and handle heavy loads better. Towing demands tires that can"
+title: 'Best All Terrain Truck Tires for Towing: Top Durable Picks for Heavy Loads'
+description: Choosing the right all-terrain truck tires makes towing safer and easier.
+  Strong tires improve grip and handle heavy loads better. Towing demands tires that
+  can
 pubDate: 2025-11-09
-author: "herbertlangham"
-categories: ["Towing & Hauling"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-all-terrain-truck-tires-for-towing&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Best Trucks for Towing
+heroImage: https://tse1.mm.bing.net/th?q=best-all-terrain-truck-tires-for-towing&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Choosing the right all-terrain truck tires makes towing safer and easier. Strong tires improve grip and handle heavy loads better.**

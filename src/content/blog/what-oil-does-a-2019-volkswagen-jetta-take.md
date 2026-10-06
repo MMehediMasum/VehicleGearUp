@@ -1,10 +1,14 @@
 ---
-title: "What Oil Does a 2019 Volkswagen Jetta Take: Expert Guide"
-description: "If you own a 2019 Volkswagen Jetta, you know how important it is to keep your car running smoothly. One key part of that is using the right oil. But with so man"
+title: 'What Oil Does a 2019 Volkswagen Jetta Take: Expert Guide'
+description: If you own a 2019 Volkswagen Jetta, you know how important it is to keep
+  your car running smoothly. One key part of that is using the right oil. But with
+  so man
 pubDate: 2026-05-10
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-oil-does-a-2019-volkswagen-jetta-take&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- What Oil to Use
+heroImage: https://tse1.mm.bing.net/th?q=what-oil-does-a-2019-volkswagen-jetta-take&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a 2019 Volkswagen Jetta, you know how important it is to keep your car running smoothly. One key part of that is using the right oil.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Oil And Filter for 6.7 Cummins: Top Diesel Filter Kits Reviewed"
-description: "Choosing the best oil and filter for your 6.7 Cummins engine keeps it running smoothly and lasting longer. High-quality filters and oils protect the engine from"
+title: 'Best Oil And Filter for 6.7 Cummins: Top Diesel Filter Kits Reviewed'
+description: Choosing the best oil and filter for your 6.7 Cummins engine keeps it
+  running smoothly and lasting longer. High-quality filters and oils protect the engine
+  from
 pubDate: 2026-07-12
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-oil-and-filter-for-67-cummins&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Oil Filters for Ram Engines
+heroImage: https://tse1.mm.bing.net/th?q=best-oil-and-filter-for-67-cummins&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Choosing the best oil and filter for your 6.7 Cummins engine keeps it running smoothly and lasting longer. High-quality filters and oils protect the engine from wear and dirt.**

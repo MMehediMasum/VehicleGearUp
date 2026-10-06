@@ -1,10 +1,14 @@
 ---
-title: "Best Car Scratch Remover for Black Cars: Top Products to Restore Shine"
-description: "Black cars show scratches more clearly than other colors. Finding the best scratch remover helps keep your car looking new. Scratches on black cars stand out an"
+title: 'Best Car Scratch Remover for Black Cars: Top Products to Restore Shine'
+description: Black cars show scratches more clearly than other colors. Finding the
+  best scratch remover helps keep your car looking new. Scratches on black cars stand
+  out an
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-scratch-remover-for-black-cars&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Paint Contaminant Removers
+heroImage: https://tse1.mm.bing.net/th?q=best-car-scratch-remover-for-black-cars&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Black cars show scratches more clearly than other colors. Finding the best scratch remover helps keep your car looking new.**

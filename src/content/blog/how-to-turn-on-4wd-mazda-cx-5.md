@@ -1,10 +1,14 @@
 ---
-title: "How to Turn on 4Wd Mazda Cx 5: Easy Steps for Ultimate Traction"
-description: "Are you ready to get the most out of your Mazda CX-5, especially when the road gets tough? Knowing how to turn on 4WD in your CX-5 can make a huge difference in"
+title: 'How to Turn on 4Wd Mazda Cx 5: Easy Steps for Ultimate Traction'
+description: Are you ready to get the most out of your Mazda CX-5, especially when
+  the road gets tough? Knowing how to turn on 4WD in your CX-5 can make a huge difference
+  in
 pubDate: 2026-03-10
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-on-4wd-mazda-cx-5&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Turning On 4WD
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-on-4wd-mazda-cx-5&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you ready to get the most out of your Mazda CX-5, especially when the road gets tough? Knowing how to turn on 4WD in your CX-5 can make a huge difference in how confidently you drive through snow, mud, or uneven terrain.**

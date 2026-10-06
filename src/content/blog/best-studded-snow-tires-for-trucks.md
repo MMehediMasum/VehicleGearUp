@@ -1,10 +1,14 @@
 ---
-title: "Best Studded Snow Tires for Trucks: Top Traction Chains and Accessories"
-description: "Finding the best studded snow tires for trucks ensures safer driving on icy roads. These tires offer improved grip and control in harsh winter conditions. Winte"
+title: 'Best Studded Snow Tires for Trucks: Top Traction Chains and Accessories'
+description: Finding the best studded snow tires for trucks ensures safer driving
+  on icy roads. These tires offer improved grip and control in harsh winter conditions.
+  Winte
 pubDate: 2025-11-20
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-studded-snow-tires-for-trucks&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Snow Tires for Trucks
+heroImage: https://tse1.mm.bing.net/th?q=best-studded-snow-tires-for-trucks&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Finding the best studded snow tires for trucks ensures safer driving on icy roads. These tires offer improved grip and control in harsh winter conditions.**

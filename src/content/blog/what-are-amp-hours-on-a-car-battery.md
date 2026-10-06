@@ -1,10 +1,13 @@
 ---
-title: "What are Amp Hours on a Car Battery: Essential Guide Explained"
-description: "Have you ever wondered what those numbers on your car battery really mean? If you’ve seen “Amp Hours” or “Ah” and felt confused, you’re not alone. Understanding"
+title: 'What are Amp Hours on a Car Battery: Essential Guide Explained'
+description: Have you ever wondered what those numbers on your car battery really
+  mean? If you’ve seen “Amp Hours” or “Ah” and felt confused, you’re not alone. Understanding
 pubDate: 2026-03-30
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-amp-hours-on-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Ratings Explained
+heroImage: https://tse1.mm.bing.net/th?q=what-are-amp-hours-on-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered what those numbers on your car battery really mean? If you’ve seen “Amp Hours” or “Ah” and felt confused, you’re not alone.**

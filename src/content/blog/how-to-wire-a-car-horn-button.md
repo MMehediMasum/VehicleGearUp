@@ -1,10 +1,14 @@
 ---
-title: "How to Wire a Car Horn Button: Easy Step-by-Step Guide"
-description: "Have you ever wanted to upgrade your car’s horn but felt unsure about how to connect the horn button properly? Wiring a car horn button might seem tricky at fir"
+title: 'How to Wire a Car Horn Button: Easy Step-by-Step Guide'
+description: Have you ever wanted to upgrade your car’s horn but felt unsure about
+  how to connect the horn button properly? Wiring a car horn button might seem tricky
+  at fir
 pubDate: 2025-12-15
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-wire-a-car-horn-button&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Horn Problems
+heroImage: https://tse1.mm.bing.net/th?q=how-to-wire-a-car-horn-button&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Have you ever wanted to upgrade your car’s horn but felt unsure about how to connect the horn button properly? Wiring a car horn button might seem tricky at first, but with the right steps, you can do it yourself quickly and safely.**

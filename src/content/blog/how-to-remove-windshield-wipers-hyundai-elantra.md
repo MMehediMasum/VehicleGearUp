@@ -1,10 +1,14 @@
 ---
-title: "How to Remove Windshield Wipers Hyundai Elantra: Easy Step-by-Step Guide"
-description: "If your Hyundai Elantra’s windshield wipers aren’t working well, it’s time for a change. Removing and replacing your wipers yourself can save you time and money"
+title: 'How to Remove Windshield Wipers Hyundai Elantra: Easy Step-by-Step Guide'
+description: If your Hyundai Elantra’s windshield wipers aren’t working well, it’s
+  time for a change. Removing and replacing your wipers yourself can save you time
+  and money
 pubDate: 2025-11-13
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-remove-windshield-wipers-hyundai-elantra&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Windshield Wipers
+heroImage: https://tse1.mm.bing.net/th?q=how-to-remove-windshield-wipers-hyundai-elantra&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If your Hyundai Elantra’s windshield wipers aren’t working well, it’s time for a change. Removing and replacing your wipers yourself can save you time and money.**

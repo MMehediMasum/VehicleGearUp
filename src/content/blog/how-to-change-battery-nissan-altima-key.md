@@ -1,10 +1,14 @@
 ---
-title: "How to Change Battery Nissan Altima Key: Easy Step-by-Step Guide"
-description: "Is your Nissan Altima key fob acting up or not unlocking your car like it used to? It might be time to change the battery. Knowing how to change your Nissan Alt"
+title: 'How to Change Battery Nissan Altima Key: Easy Step-by-Step Guide'
+description: Is your Nissan Altima key fob acting up or not unlocking your car like
+  it used to? It might be time to change the battery. Knowing how to change your Nissan
+  Alt
 pubDate: 2026-04-16
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-battery-nissan-altima-key&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Key Fob Battery Replacement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-battery-nissan-altima-key&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **Is your Nissan Altima key fob acting up or not unlocking your car like it used to? It might be time to change the battery.**

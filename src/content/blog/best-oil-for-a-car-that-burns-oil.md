@@ -1,10 +1,14 @@
 ---
-title: "Best Oil for a Car That Burns Oil: Top High Mileage Engine Treatments"
-description: "A car that burns oil needs special care to avoid damage and costly repairs. Choosing the right oil helps reduce oil consumption and protect the engine. Cars bur"
+title: 'Best Oil for a Car That Burns Oil: Top High Mileage Engine Treatments'
+description: A car that burns oil needs special care to avoid damage and costly repairs.
+  Choosing the right oil helps reduce oil consumption and protect the engine. Cars
+  bur
 pubDate: 2026-07-15
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-oil-for-a-car-that-burns-oil&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Oil Filters for Ram Engines
+heroImage: https://tse1.mm.bing.net/th?q=best-oil-for-a-car-that-burns-oil&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **A car that burns oil needs special care to avoid damage and costly repairs. Choosing the right oil helps reduce oil consumption and protect the engine.**

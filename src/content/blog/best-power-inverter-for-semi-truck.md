@@ -1,10 +1,14 @@
 ---
-title: "Best Power Inverter for Semi Truck: Top Reliable High-Power Choices"
-description: "Choosing the best power inverter for a semi truck ensures reliable energy on the road. It powers devices safely and efficiently during long trips. Semi truck dr"
+title: 'Best Power Inverter for Semi Truck: Top Reliable High-Power Choices'
+description: Choosing the best power inverter for a semi truck ensures reliable energy
+  on the road. It powers devices safely and efficiently during long trips. Semi truck
+  dr
 pubDate: 2026-06-20
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-power-inverter-for-semi-truck&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Power Supplies and Inverters
+heroImage: https://tse1.mm.bing.net/th?q=best-power-inverter-for-semi-truck&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Choosing the best power inverter for a semi truck ensures reliable energy on the road. It powers devices safely and efficiently during long trips.**

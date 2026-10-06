@@ -1,10 +1,14 @@
 ---
-title: "Best Coconut Air Freshener for Car: Top Long-Lasting Scents Reviewed"
-description: "Coconut air fresheners bring a fresh, tropical scent to your car. They help keep your vehicle smelling clean and inviting. Choosing the best coconut air freshen"
+title: 'Best Coconut Air Freshener for Car: Top Long-Lasting Scents Reviewed'
+description: Coconut air fresheners bring a fresh, tropical scent to your car. They
+  help keep your vehicle smelling clean and inviting. Choosing the best coconut air
+  freshen
 pubDate: 2026-06-27
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-coconut-air-freshener-for-car&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Air Fresheners and Odors
+heroImage: https://tse1.mm.bing.net/th?q=best-coconut-air-freshener-for-car&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Coconut air fresheners bring a fresh, tropical scent to your car. They help keep your vehicle smelling clean and inviting.**

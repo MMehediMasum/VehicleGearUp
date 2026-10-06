@@ -1,10 +1,14 @@
 ---
-title: "Why Does My Car Battery Die Overnight: Shocking Causes Revealed"
-description: "Have you ever woken up to find your car won’t start, even though you left it perfectly fine the night before? It’s frustrating, confusing, and can throw off you"
+title: 'Why Does My Car Battery Die Overnight: Shocking Causes Revealed'
+description: Have you ever woken up to find your car won’t start, even though you
+  left it perfectly fine the night before? It’s frustrating, confusing, and can throw
+  off you
 pubDate: 2026-04-16
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-does-my-car-battery-die-overnight&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Heat and Cold Battery Failure
+heroImage: https://tse1.mm.bing.net/th?q=why-does-my-car-battery-die-overnight&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever woken up to find your car won’t start, even though you left it perfectly fine the night before? It’s frustrating, confusing, and can throw off your whole day.**

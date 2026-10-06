@@ -1,10 +1,14 @@
 ---
-title: "How Good is the Ride in a Volvo XC90: Ultimate Comfort Revealed"
-description: "When you’re behind the wheel of a Volvo XC90, the ride isn’t just about getting from point A to B—it’s about how every moment feels on the road. You might be wo"
+title: 'How Good is the Ride in a Volvo XC90: Ultimate Comfort Revealed'
+description: When you’re behind the wheel of a Volvo XC90, the ride isn’t just about
+  getting from point A to B—it’s about how every moment feels on the road. You might
+  be wo
 pubDate: 2025-12-11
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-good-is-the-ride-in-a-volvo-xc90&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Everyday Car Questions
+heroImage: https://tse1.mm.bing.net/th?q=how-good-is-the-ride-in-a-volvo-xc90&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **When you’re behind the wheel of a Volvo XC90, the ride isn’t just about getting from point A to B—it’s about how every moment feels on the road. You might be wondering, how smooth is the drive?**

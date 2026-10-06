@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Bronco Sport Big Bend: Top Picks for Ultimate Grip"
-description: "Choosing the best tires for your Bronco Sport Big Bend improves safety and performance. The right tires handle rough roads and daily drives well. Tires affect h"
+title: 'Best Tires for Bronco Sport Big Bend: Top Picks for Ultimate Grip'
+description: Choosing the best tires for your Bronco Sport Big Bend improves safety
+  and performance. The right tires handle rough roads and daily drives well. Tires
+  affect h
 pubDate: 2026-01-10
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-bronco-sport-big-bend&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Sport Model Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-bronco-sport-big-bend&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your Bronco Sport Big Bend improves safety and performance. The right tires handle rough roads and daily drives well.**

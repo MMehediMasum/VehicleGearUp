@@ -1,10 +1,14 @@
 ---
-title: "Best Manual Air Pump for Car Tires: Top Portable Inflators Reviewed"
-description: "Finding the best manual air pump for car tires ensures you stay prepared on the road. A reliable pump keeps your tires properly inflated and safe. Car tires los"
+title: 'Best Manual Air Pump for Car Tires: Top Portable Inflators Reviewed'
+description: Finding the best manual air pump for car tires ensures you stay prepared
+  on the road. A reliable pump keeps your tires properly inflated and safe. Car tires
+  los
 pubDate: 2025-09-25
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-manual-air-pump-for-car-tires&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tire Inflators and Compressors
+heroImage: https://tse1.mm.bing.net/th?q=best-manual-air-pump-for-car-tires&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Finding the best manual air pump for car tires ensures you stay prepared on the road. A reliable pump keeps your tires properly inflated and safe.**

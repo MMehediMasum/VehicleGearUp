@@ -1,10 +1,14 @@
 ---
-title: "Best Windshield Sun Shade for Trucks to Block Heat and UV Rays"
-description: "Finding the best windshield sun shade for trucks helps protect your vehicle from heat and sun damage. A good sun shade keeps your truck cool and preserves the i"
+title: Best Windshield Sun Shade for Trucks to Block Heat and UV Rays
+description: Finding the best windshield sun shade for trucks helps protect your vehicle
+  from heat and sun damage. A good sun shade keeps your truck cool and preserves the
+  i
 pubDate: 2026-07-04
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-windshield-sun-shade-for-trucks&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Sun Shades and Visors
+heroImage: https://tse1.mm.bing.net/th?q=best-windshield-sun-shade-for-trucks&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Finding the best windshield sun shade for trucks helps protect your vehicle from heat and sun damage. A good sun shade keeps your truck cool and preserves the interior.**

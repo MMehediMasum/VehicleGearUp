@@ -1,10 +1,14 @@
 ---
-title: "What Car Tires are Made in USA: Top Durable Brands Revealed"
-description: "Are you looking for reliable car tires made right here in the USA? Choosing the right tires for your vehicle is more than just a purchase—it’s about safety, per"
+title: 'What Car Tires are Made in USA: Top Durable Brands Revealed'
+description: Are you looking for reliable car tires made right here in the USA? Choosing
+  the right tires for your vehicle is more than just a purchase—it’s about safety,
+  per
 pubDate: 2025-10-16
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-car-tires-are-made-in-usa&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tire Construction and Origin
+heroImage: https://tse1.mm.bing.net/th?q=what-car-tires-are-made-in-usa&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Are you looking for reliable car tires made right here in the USA? Choosing the right tires for your vehicle is more than just a purchase—it’s about safety, performance, and supporting local businesses.**

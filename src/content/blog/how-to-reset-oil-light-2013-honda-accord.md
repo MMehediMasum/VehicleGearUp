@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Light 2013 Honda Accord: Quick & Easy Guide"
-description: "Your 2013 Honda Accord’s oil light just came on, and now you’re wondering what to do next. Don’t worry—resetting the oil light is easier than you might think. I"
+title: 'How to Reset Oil Light 2013 Honda Accord: Quick & Easy Guide'
+description: Your 2013 Honda Accord’s oil light just came on, and now you’re wondering
+  what to do next. Don’t worry—resetting the oil light is easier than you might think.
+  I
 pubDate: 2026-05-12
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-light-2013-honda-accord&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Oil Light Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-light-2013-honda-accord&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Your 2013 Honda Accord’s oil light just came on, and now you’re wondering what to do next. Don’t worry—resetting the oil light is easier than you might think.**

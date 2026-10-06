@@ -1,10 +1,14 @@
 ---
-title: "How to Set Clock on Kenwood Car Stereo: Easy Step-by-Step Guide"
-description: "Do you find yourself glancing at your Kenwood car stereo, wishing the clock showed the right time? Setting the clock might seem tricky at first, but once you kn"
+title: 'How to Set Clock on Kenwood Car Stereo: Easy Step-by-Step Guide'
+description: Do you find yourself glancing at your Kenwood car stereo, wishing the
+  clock showed the right time? Setting the clock might seem tricky at first, but once
+  you kn
 pubDate: 2026-05-28
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-set-clock-on-kenwood-car-stereo&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Setting Stereo Clocks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-set-clock-on-kenwood-car-stereo&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Do you find yourself glancing at your Kenwood car stereo, wishing the clock showed the right time? Setting the clock might seem tricky at first, but once you know the steps, it becomes quick and easy.**

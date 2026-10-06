@@ -1,10 +1,14 @@
 ---
-title: "Best Open Face Helmets for Motorcycles with Sun Visor and Quick Release Buckle"
-description: "Open face helmets offer great comfort and visibility for motorcycle riders. They provide essential protection while keeping riders cool and aware. Choosing the "
+title: Best Open Face Helmets for Motorcycles with Sun Visor and Quick Release Buckle
+description: 'Open face helmets offer great comfort and visibility for motorcycle
+  riders. They provide essential protection while keeping riders cool and aware. Choosing
+  the '
 pubDate: 2025-10-25
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-open-face-helmets-for-motorcycles&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Riding Accessories
+heroImage: https://tse1.mm.bing.net/th?q=best-open-face-helmets-for-motorcycles&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Open face helmets offer great comfort and visibility for motorcycle riders. They provide essential protection while keeping riders cool and aware.**

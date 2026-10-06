@@ -1,10 +1,14 @@
 ---
-title: "Best Group 65 Battery for Diesel Truck: Top Reliable Picks Reviewed"
-description: "Choosing the best Group 65 battery for a diesel truck ensures reliable starting power and long-lasting performance. Diesel engines need strong batteries to hand"
+title: 'Best Group 65 Battery for Diesel Truck: Top Reliable Picks Reviewed'
+description: Choosing the best Group 65 battery for a diesel truck ensures reliable
+  starting power and long-lasting performance. Diesel engines need strong batteries
+  to hand
 pubDate: 2026-07-10
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-group-65-battery-for-diesel-truck&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Retailers and Returns
+heroImage: https://tse1.mm.bing.net/th?q=best-group-65-battery-for-diesel-truck&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Choosing the best Group 65 battery for a diesel truck ensures reliable starting power and long-lasting performance. Diesel engines need strong batteries to handle tough conditions and heavy loads.**

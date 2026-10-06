@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Harley Davidson Touring Bikes: Top Dunlop Picks Reviewed"
-description: "Choosing the best tires for Harley Davidson touring bikes ensures a safe and smooth ride on long journeys. Tires affect handling, comfort, and bike performance "
+title: 'Best Tires for Harley Davidson Touring Bikes: Top Dunlop Picks Reviewed'
+description: 'Choosing the best tires for Harley Davidson touring bikes ensures a
+  safe and smooth ride on long journeys. Tires affect handling, comfort, and bike
+  performance '
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-harley-davidson-touring-bikes&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-harley-davidson-touring-bikes&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best tires for Harley Davidson touring bikes ensures a safe and smooth ride on long journeys. Tires affect handling, comfort, and bike performance on all road types.**

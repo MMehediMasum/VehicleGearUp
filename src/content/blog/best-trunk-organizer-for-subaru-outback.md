@@ -1,10 +1,14 @@
 ---
-title: "Best Trunk Organizer for Subaru Outback: Maximize Your Cargo Space"
-description: "Finding the best trunk organizer for your Subaru Outback helps keep your cargo neat and easy to access. A good organizer fits well and holds all your items secu"
+title: 'Best Trunk Organizer for Subaru Outback: Maximize Your Cargo Space'
+description: Finding the best trunk organizer for your Subaru Outback helps keep your
+  cargo neat and easy to access. A good organizer fits well and holds all your items
+  secu
 pubDate: 2026-06-12
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-trunk-organizer-for-subaru-outback&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Floor Mats and Cargo Liners
+heroImage: https://tse1.mm.bing.net/th?q=best-trunk-organizer-for-subaru-outback&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Finding the best trunk organizer for your Subaru Outback helps keep your cargo neat and easy to access. A good organizer fits well and holds all your items securely.**

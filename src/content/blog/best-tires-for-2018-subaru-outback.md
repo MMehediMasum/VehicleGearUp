@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Subaru Outback: Top TPMS Sensors and Accessories Reviewed"
-description: "Choosing the best tires for a 2018 Subaru Outback improves safety and driving comfort. The right tires match your vehicle’s needs and road conditions. The 2018 "
+title: 'Best Tires for Subaru Outback: Top TPMS Sensors and Accessories Reviewed'
+description: 'Choosing the best tires for a 2018 Subaru Outback improves safety and
+  driving comfort. The right tires match your vehicle’s needs and road conditions.
+  The 2018 '
 pubDate: 2025-11-06
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-2018-subaru-outback&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Subaru and Mazda Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-2018-subaru-outback&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for a 2018 Subaru Outback improves safety and driving comfort. The right tires match your vehicle’s needs and road conditions.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Turn off Brake Assist Chevy Equinox: Quick & Easy Guide"
-description: "Are you finding your Chevy Equinox’s brake assist a bit too sensitive? Maybe it’s kicking in when you don’t want it to, making your driving experience less smoo"
+title: 'How to Turn off Brake Assist Chevy Equinox: Quick & Easy Guide'
+description: Are you finding your Chevy Equinox’s brake assist a bit too sensitive?
+  Maybe it’s kicking in when you don’t want it to, making your driving experience
+  less smoo
 pubDate: 2026-05-08
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-brake-assist-chevy-equinox&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Parking Brake Help
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-brake-assist-chevy-equinox&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Are you finding your Chevy Equinox’s brake assist a bit too sensitive? Maybe it’s kicking in when you don’t want it to, making your driving experience less smooth than it should be.**

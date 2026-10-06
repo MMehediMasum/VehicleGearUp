@@ -1,10 +1,14 @@
 ---
-title: "Can You Go Through a Car Wash in the Winter: Essential Tips"
-description: "Have you ever wondered if it’s safe to take your car through a car wash during the cold winter months? You might be worried about ice, damage, or whether it’s e"
+title: 'Can You Go Through a Car Wash in the Winter: Essential Tips'
+description: Have you ever wondered if it’s safe to take your car through a car wash
+  during the cold winter months? You might be worried about ice, damage, or whether
+  it’s e
 pubDate: 2026-03-18
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-go-through-a-car-wash-in-the-winter&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Going Through Car Washes
+heroImage: https://tse1.mm.bing.net/th?q=can-you-go-through-a-car-wash-in-the-winter&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever wondered if it’s safe to take your car through a car wash during the cold winter months? You might be worried about ice, damage, or whether it’s even effective when the temperatures drop.**

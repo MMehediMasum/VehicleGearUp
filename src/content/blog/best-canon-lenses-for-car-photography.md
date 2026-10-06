@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Canon Lenses for Car Photography: Capture Stunning Automotive Shots"
 description: "Choosing the right Canon lens greatly improves car photography results. Different lenses offer unique advantages for capturing sharp, dynamic car images. Car ph"
 pubDate: 2026-06-17

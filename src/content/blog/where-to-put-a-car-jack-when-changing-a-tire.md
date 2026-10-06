@@ -1,10 +1,14 @@
 ---
-title: "Where to Put a Car Jack When Changing a Tire: Essential Safety Tips"
-description: "Changing a tire can be stressful, especially if you don’t know exactly where to place the car jack. If you put it in the wrong spot, you could damage your car o"
+title: 'Where to Put a Car Jack When Changing a Tire: Essential Safety Tips'
+description: Changing a tire can be stressful, especially if you don’t know exactly
+  where to place the car jack. If you put it in the wrong spot, you could damage your
+  car o
 pubDate: 2025-11-11
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-put-a-car-jack-when-changing-a-tire&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Jacks and Jack Stands
+heroImage: https://tse1.mm.bing.net/th?q=where-to-put-a-car-jack-when-changing-a-tire&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Changing a tire can be stressful, especially if you don’t know exactly where to place the car jack. If you put it in the wrong spot, you could damage your car or even hurt yourself.**

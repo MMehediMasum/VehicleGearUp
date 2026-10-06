@@ -1,10 +1,14 @@
 ---
-title: "How to Use Car Battery Jump Starter: Quick & Easy Steps to Revive Your Car"
-description: "Have you ever faced the frustration of a dead car battery when you needed to get somewhere fast? Knowing how to use a car battery jump starter can save you from"
+title: 'How to Use Car Battery Jump Starter: Quick & Easy Steps to Revive Your Car'
+description: Have you ever faced the frustration of a dead car battery when you needed
+  to get somewhere fast? Knowing how to use a car battery jump starter can save you
+  from
 pubDate: 2025-09-01
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-use-car-battery-jump-starter&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jump Starting Special Cases
+heroImage: https://tse1.mm.bing.net/th?q=how-to-use-car-battery-jump-starter&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever faced the frustration of a dead car battery when you needed to get somewhere fast? Knowing how to use a car battery jump starter can save you from hours of waiting and costly towing fees.**

@@ -1,10 +1,14 @@
 ---
-title: "Why is My Steering Wheel Locked And Car Won't Start: Quick Fixes Explained"
-description: "Have you ever sat in your car, ready to go, only to find your steering wheel locked and the engine refusing to start? It’s frustrating, confusing, and can leave"
+title: 'Why is My Steering Wheel Locked And Car Won''t Start: Quick Fixes Explained'
+description: Have you ever sat in your car, ready to go, only to find your steering
+  wheel locked and the engine refusing to start? It’s frustrating, confusing, and
+  can leave
 pubDate: 2025-09-10
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-is-my-steering-wheel-locked-and-car-wont-start&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Steering Wheel Problems and Covers
+heroImage: https://tse1.mm.bing.net/th?q=why-is-my-steering-wheel-locked-and-car-wont-start&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever sat in your car, ready to go, only to find your steering wheel locked and the engine refusing to start? It’s frustrating, confusing, and can leave you feeling stuck—literally.**

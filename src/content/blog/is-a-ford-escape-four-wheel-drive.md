@@ -1,10 +1,14 @@
 ---
-title: "Is a Ford Escape Four Wheel Drive: Ultimate Off-Road Guide"
-description: "Are you curious if the Ford Escape comes with four-wheel drive? Whether you’re planning weekend adventures or just want extra control on slippery roads, knowing"
+title: 'Is a Ford Escape Four Wheel Drive: Ultimate Off-Road Guide'
+description: Are you curious if the Ford Escape comes with four-wheel drive? Whether
+  you’re planning weekend adventures or just want extra control on slippery roads,
+  knowing
 pubDate: 2025-11-01
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-a-ford-escape-four-wheel-drive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford 4WD Questions
+heroImage: https://tse1.mm.bing.net/th?q=is-a-ford-escape-four-wheel-drive&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you curious if the Ford Escape comes with four-wheel drive? Whether you’re planning weekend adventures or just want extra control on slippery roads, knowing about the Escape’s drive options can help you make the right choice.**

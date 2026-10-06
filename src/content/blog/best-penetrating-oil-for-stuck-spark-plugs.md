@@ -1,10 +1,14 @@
 ---
-title: "Best Penetrating Oil for Stuck Spark Plugs: Top Rust Removers Reviewed"
-description: "Stuck spark plugs can be frustrating and hard to remove. The right penetrating oil makes the job easier and protects your engine parts. Penetrating oils break d"
+title: 'Best Penetrating Oil for Stuck Spark Plugs: Top Rust Removers Reviewed'
+description: Stuck spark plugs can be frustrating and hard to remove. The right penetrating
+  oil makes the job easier and protects your engine parts. Penetrating oils break
+  d
 pubDate: 2025-11-15
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-penetrating-oil-for-stuck-spark-plugs&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spark Plug Maintenance
+heroImage: https://tse1.mm.bing.net/th?q=best-penetrating-oil-for-stuck-spark-plugs&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Stuck spark plugs can be frustrating and hard to remove. The right penetrating oil makes the job easier and protects your engine parts.**

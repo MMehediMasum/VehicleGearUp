@@ -1,10 +1,14 @@
 ---
-title: "Why Does My Car Wheel Feel Stiff: Causes and Quick Fixes"
-description: "Have you ever noticed your car wheel feeling stiff while driving? That sudden resistance can catch you off guard and make your ride uncomfortable or even unsafe"
+title: 'Why Does My Car Wheel Feel Stiff: Causes and Quick Fixes'
+description: Have you ever noticed your car wheel feeling stiff while driving? That
+  sudden resistance can catch you off guard and make your ride uncomfortable or even
+  unsafe
 pubDate: 2025-09-07
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-does-my-car-wheel-feel-stiff&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Steering Wheel Problems and Covers
+heroImage: https://tse1.mm.bing.net/th?q=why-does-my-car-wheel-feel-stiff&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever noticed your car wheel feeling stiff while driving? That sudden resistance can catch you off guard and make your ride uncomfortable or even unsafe.**

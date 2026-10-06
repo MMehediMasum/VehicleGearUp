@@ -1,10 +1,14 @@
 ---
-title: "How to Remove a Cd from a Car Stereo: Easy & Quick Solutions"
-description: "Have you ever tried to remove a CD from your car stereo, only to find it stuck or jammed? It’s frustrating, right? You want to enjoy your drive without worrying"
+title: 'How to Remove a Cd from a Car Stereo: Easy & Quick Solutions'
+description: Have you ever tried to remove a CD from your car stereo, only to find
+  it stuck or jammed? It’s frustrating, right? You want to enjoy your drive without
+  worrying
 pubDate: 2026-05-27
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-remove-a-cd-from-a-car-stereo&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Choosing Car Stereos
+heroImage: https://tse1.mm.bing.net/th?q=how-to-remove-a-cd-from-a-car-stereo&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Have you ever tried to remove a CD from your car stereo, only to find it stuck or jammed? It’s frustrating, right?**

@@ -1,10 +1,13 @@
 ---
-title: "What is the Correct Voltage for a Car Battery: Expert Guide"
-description: "Have you ever wondered if your car battery has the right voltage? Knowing the correct voltage for a car battery is crucial to keep your vehicle running smoothly"
+title: 'What is the Correct Voltage for a Car Battery: Expert Guide'
+description: Have you ever wondered if your car battery has the right voltage? Knowing
+  the correct voltage for a car battery is crucial to keep your vehicle running smoothly
 pubDate: 2026-04-14
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-correct-voltage-for-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Normal Battery Voltage
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-correct-voltage-for-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if your car battery has the right voltage? Knowing the correct voltage for a car battery is crucial to keep your vehicle running smoothly.**

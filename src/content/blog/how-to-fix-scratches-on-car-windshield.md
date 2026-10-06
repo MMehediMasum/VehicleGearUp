@@ -1,10 +1,14 @@
 ---
-title: "How to Fix Scratches on Car Windshield: Easy DIY Repair Tips"
-description: "Have you noticed scratches on your car windshield that keep catching your eye every time you drive? These marks might seem small, but they can quickly turn into"
+title: 'How to Fix Scratches on Car Windshield: Easy DIY Repair Tips'
+description: Have you noticed scratches on your car windshield that keep catching
+  your eye every time you drive? These marks might seem small, but they can quickly
+  turn into
 pubDate: 2025-10-26
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-scratches-on-car-windshield&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Windshield Sap and Scratches
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-scratches-on-car-windshield&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you noticed scratches on your car windshield that keep catching your eye every time you drive? These marks might seem small, but they can quickly turn into bigger problems if left untreated.**

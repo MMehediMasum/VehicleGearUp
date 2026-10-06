@@ -1,10 +1,14 @@
 ---
-title: "How to Charge a Toyota Prius Hybrid Battery: Easy Step-by-Step Guide"
-description: "If you own a Toyota Prius, you already know how smart and efficient this hybrid car is. But do you know the best way to charge your Prius hybrid battery? Gettin"
+title: 'How to Charge a Toyota Prius Hybrid Battery: Easy Step-by-Step Guide'
+description: If you own a Toyota Prius, you already know how smart and efficient this
+  hybrid car is. But do you know the best way to charge your Prius hybrid battery?
+  Gettin
 pubDate: 2025-09-23
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-charge-a-toyota-prius-hybrid-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- How Hybrids Work
+heroImage: https://tse1.mm.bing.net/th?q=how-to-charge-a-toyota-prius-hybrid-battery&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **If you own a Toyota Prius, you already know how smart and efficient this hybrid car is. But do you know the best way to charge your Prius hybrid battery?**

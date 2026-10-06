@@ -1,10 +1,14 @@
 ---
-title: "How to Delete Bluetooth Device from Honda Civic: Quick & Easy Steps"
-description: "Have you ever wanted to remove a Bluetooth device from your Honda Civic but didn’t know where to start? Whether you’re upgrading your phone or just clearing out"
+title: 'How to Delete Bluetooth Device from Honda Civic: Quick & Easy Steps'
+description: Have you ever wanted to remove a Bluetooth device from your Honda Civic
+  but didn’t know where to start? Whether you’re upgrading your phone or just clearing
+  out
 pubDate: 2026-01-24
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-delete-bluetooth-device-from-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Deleting Bluetooth Devices
+heroImage: https://tse1.mm.bing.net/th?q=how-to-delete-bluetooth-device-from-honda-civic&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Have you ever wanted to remove a Bluetooth device from your Honda Civic but didn’t know where to start? Whether you’re upgrading your phone or just clearing out old connections, deleting a Bluetooth device can help keep your car’s system running smoothly.**

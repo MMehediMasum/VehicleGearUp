@@ -1,10 +1,14 @@
 ---
-title: "Is a Ford Focus a Front Wheel Drive? Uncover the Truth!"
-description: "Are you curious about how your Ford Focus handles the road? Understanding whether your car is front wheel drive can change the way you drive, maintain, and even"
+title: Is a Ford Focus a Front Wheel Drive? Uncover the Truth!
+description: Are you curious about how your Ford Focus handles the road? Understanding
+  whether your car is front wheel drive can change the way you drive, maintain, and
+  even
 pubDate: 2025-09-11
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-a-ford-focus-a-front-wheel-drive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford 4WD Questions
+heroImage: https://tse1.mm.bing.net/th?q=is-a-ford-focus-a-front-wheel-drive&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you curious about how your Ford Focus handles the road? Understanding whether your car is front wheel drive can change the way you drive, maintain, and even enjoy it.**

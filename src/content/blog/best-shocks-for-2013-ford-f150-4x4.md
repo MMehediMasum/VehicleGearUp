@@ -1,10 +1,14 @@
 ---
-title: "Best Shocks for 2013 Ford F150 4X4: Top Suspension Upgrades Reviewed"
-description: "Choosing the best shocks for your 2013 Ford F150 4X4 improves ride comfort and off-road handling. Quality shocks keep your truck stable on rough roads and heavy"
+title: 'Best Shocks for 2013 Ford F150 4X4: Top Suspension Upgrades Reviewed'
+description: Choosing the best shocks for your 2013 Ford F150 4X4 improves ride comfort
+  and off-road handling. Quality shocks keep your truck stable on rough roads and
+  heavy
 pubDate: 2026-06-11
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-shocks-for-2013-ford-f150-4x4&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Silverado and Sierra Shocks
+heroImage: https://tse1.mm.bing.net/th?q=best-shocks-for-2013-ford-f150-4x4&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Choosing the best shocks for your 2013 Ford F150 4X4 improves ride comfort and off-road handling. Quality shocks keep your truck stable on rough roads and heavy loads.**

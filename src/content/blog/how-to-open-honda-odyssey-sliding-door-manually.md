@@ -1,10 +1,14 @@
 ---
-title: "How to Open Honda Odyssey Sliding Door Manually: Easy Step-by-Step Guide"
-description: "Have you ever found yourself stuck trying to open your Honda Odyssey’s sliding door when the automatic function isn’t working? It’s frustrating, especially when"
+title: 'How to Open Honda Odyssey Sliding Door Manually: Easy Step-by-Step Guide'
+description: Have you ever found yourself stuck trying to open your Honda Odyssey’s
+  sliding door when the automatic function isn’t working? It’s frustrating, especially
+  when
 pubDate: 2026-01-22
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-open-honda-odyssey-sliding-door-manually&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Features and Fixes
+heroImage: https://tse1.mm.bing.net/th?q=how-to-open-honda-odyssey-sliding-door-manually&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Have you ever found yourself stuck trying to open your Honda Odyssey’s sliding door when the automatic function isn’t working? It’s frustrating, especially when you’re in a hurry or carrying things.**

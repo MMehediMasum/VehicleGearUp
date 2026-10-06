@@ -1,10 +1,14 @@
 ---
-title: "Where is the Cabin Air Filter on 2021 Ford F150: Easy Guide"
-description: "If you own a 2021 Ford F150, knowing where the cabin air filter is can save you time and money. Your truck’s cabin air filter keeps the air inside fresh and cle"
+title: 'Where is the Cabin Air Filter on 2021 Ford F150: Easy Guide'
+description: If you own a 2021 Ford F150, knowing where the cabin air filter is can
+  save you time and money. Your truck’s cabin air filter keeps the air inside fresh
+  and cle
 pubDate: 2026-01-31
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-is-the-cabin-air-filter-on-2021-ford-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Cabin Air Filters
+heroImage: https://tse1.mm.bing.net/th?q=where-is-the-cabin-air-filter-on-2021-ford-f150&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a 2021 Ford F150, knowing where the cabin air filter is can save you time and money. Your truck’s cabin air filter keeps the air inside fresh and clean, protecting you from dust, pollen, and other pollutants.**

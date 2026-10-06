@@ -1,10 +1,14 @@
 ---
-title: "Where is Awd Lock Button Hyundai Tucson: Find It Fast!"
-description: "Are you wondering where the AWD lock button is on your Hyundai Tucson? Finding this feature can make a big difference when you’re driving on slippery roads or r"
+title: 'Where is Awd Lock Button Hyundai Tucson: Find It Fast!'
+description: Are you wondering where the AWD lock button is on your Hyundai Tucson?
+  Finding this feature can make a big difference when you’re driving on slippery roads
+  or r
 pubDate: 2026-02-08
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-is-awd-lock-button-hyundai-tucson&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Turning On 4WD
+heroImage: https://tse1.mm.bing.net/th?q=where-is-awd-lock-button-hyundai-tucson&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you wondering where the AWD lock button is on your Hyundai Tucson? Finding this feature can make a big difference when you’re driving on slippery roads or rough terrain.**

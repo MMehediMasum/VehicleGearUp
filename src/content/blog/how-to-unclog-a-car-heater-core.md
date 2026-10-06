@@ -1,10 +1,14 @@
 ---
-title: "How to Unclog a Car Heater Core: Quick & Easy Fixes Revealed"
-description: "Is your car heater blowing cold air when you need warmth the most? A clogged heater core might be the hidden problem behind your chilly drives. If you want to f"
+title: 'How to Unclog a Car Heater Core: Quick & Easy Fixes Revealed'
+description: Is your car heater blowing cold air when you need warmth the most? A
+  clogged heater core might be the hidden problem behind your chilly drives. If you
+  want to f
 pubDate: 2025-09-23
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-unclog-a-car-heater-core&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Heater Not Working
+heroImage: https://tse1.mm.bing.net/th?q=how-to-unclog-a-car-heater-core&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your car heater blowing cold air when you need warmth the most? A clogged heater core might be the hidden problem behind your chilly drives.**

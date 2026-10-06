@@ -1,10 +1,14 @@
 ---
-title: "How to Adjust Edelbrock Carb on 350 Chevy: Expert Tuning Tips"
-description: "If you own a 350 Chevy with an Edelbrock carburetor, you know how important it is to keep your engine running smoothly. But sometimes, your carburetor needs a l"
+title: 'How to Adjust Edelbrock Carb on 350 Chevy: Expert Tuning Tips'
+description: If you own a 350 Chevy with an Edelbrock carburetor, you know how important
+  it is to keep your engine running smoothly. But sometimes, your carburetor needs
+  a l
 pubDate: 2026-02-26
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-adjust-edelbrock-carb-on-350-chevy&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Chevy Engine Tuning
+heroImage: https://tse1.mm.bing.net/th?q=how-to-adjust-edelbrock-carb-on-350-chevy&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **If you own a 350 Chevy with an Edelbrock carburetor, you know how important it is to keep your engine running smoothly. But sometimes, your carburetor needs a little fine-tuning to get the best performance and fuel efficiency.**

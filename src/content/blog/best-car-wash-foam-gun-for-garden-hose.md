@@ -1,10 +1,14 @@
 ---
-title: "Best Car Wash Foam Gun for Garden Hose: Top Foam Cannon Picks"
-description: "Choosing the best car wash foam gun for your garden hose makes washing easier and faster. Foam guns create thick foam that lifts dirt gently from your vehicle’s"
+title: 'Best Car Wash Foam Gun for Garden Hose: Top Foam Cannon Picks'
+description: Choosing the best car wash foam gun for your garden hose makes washing
+  easier and faster. Foam guns create thick foam that lifts dirt gently from your
+  vehicle’s
 pubDate: 2026-07-05
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-wash-foam-gun-for-garden-hose&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wash Soap Picks
+heroImage: https://tse1.mm.bing.net/th?q=best-car-wash-foam-gun-for-garden-hose&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best car wash foam gun for your garden hose makes washing easier and faster. Foam guns create thick foam that lifts dirt gently from your vehicle’s surface.**

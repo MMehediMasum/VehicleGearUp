@@ -1,10 +1,14 @@
 ---
-title: "Best Car Seat Covers for Leather Seats: Ultimate Protection and Comfort"
-description: "Protecting leather seats helps keep your car’s interior looking new and clean. The right car seat covers add comfort and shield leather from damage. Leather sea"
+title: 'Best Car Seat Covers for Leather Seats: Ultimate Protection and Comfort'
+description: Protecting leather seats helps keep your car’s interior looking new and
+  clean. The right car seat covers add comfort and shield leather from damage. Leather
+  sea
 pubDate: 2026-07-30
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-seat-covers-for-leather-seats&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Seat Protectors and Cushions
+heroImage: https://tse1.mm.bing.net/th?q=best-car-seat-covers-for-leather-seats&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Protecting leather seats helps keep your car’s interior looking new and clean. The right car seat covers add comfort and shield leather from damage.**

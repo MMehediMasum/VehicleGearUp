@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Mercedes GLC 300 4Matic: Top Picks for Ultimate Performance"
-description: "Choosing the best tires for your Mercedes GLC 300 4Matic improves safety and performance. Proper tires offer better grip, comfort, and fuel efficiency. This gui"
+title: 'Best Tires for Mercedes GLC 300 4Matic: Top Picks for Ultimate Performance'
+description: Choosing the best tires for your Mercedes GLC 300 4Matic improves safety
+  and performance. Proper tires offer better grip, comfort, and fuel efficiency. This
+  gui
 pubDate: 2026-07-29
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-mercedes-glc-300-4matic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- European Car Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-mercedes-glc-300-4matic&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your Mercedes GLC 300 4Matic improves safety and performance. Proper tires offer better grip, comfort, and fuel efficiency.**

@@ -1,10 +1,13 @@
 ---
-title: "Best Tires for Honda Civic 2017: Top All-Season Performance Picks"
-description: "Choosing the right tires for your 2017 Honda Civic boosts safety, performance, and comfort. This guide covers top all-season options suited for your car’s needs"
+title: 'Best Tires for Honda Civic 2017: Top All-Season Performance Picks'
+description: Choosing the right tires for your 2017 Honda Civic boosts safety, performance,
+  and comfort. This guide covers top all-season options suited for your car’s needs
 pubDate: 2025-12-22
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-honda-civic-2017&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-honda-civic-2017&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the right tires for your 2017 Honda Civic boosts safety, performance, and comfort. This guide covers top all-season options suited for your car’s needs.**

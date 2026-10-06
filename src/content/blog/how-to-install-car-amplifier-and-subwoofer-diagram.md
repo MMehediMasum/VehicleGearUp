@@ -1,10 +1,13 @@
 ---
-title: "How to Install Car Amplifier And Subwoofer Diagram: Step-by-Step Guide"
-description: "Are you ready to take your car audio system to the next level? Installing a car amplifier and subwoofer can transform your driving experience with deep, powerfu"
+title: 'How to Install Car Amplifier And Subwoofer Diagram: Step-by-Step Guide'
+description: Are you ready to take your car audio system to the next level? Installing
+  a car amplifier and subwoofer can transform your driving experience with deep, powerfu
 pubDate: 2026-02-01
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-install-car-amplifier-and-subwoofer-diagram&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Stereo Installation Help
+heroImage: https://tse1.mm.bing.net/th?q=how-to-install-car-amplifier-and-subwoofer-diagram&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are you ready to take your car audio system to the next level? Installing a car amplifier and subwoofer can transform your driving experience with deep, powerful sound.**

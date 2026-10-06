@@ -1,10 +1,14 @@
 ---
-title: "When Do the 2025 Ram 2500 Come Out: Release Date & Features Revealed"
-description: "Are you eagerly waiting to get your hands on the 2025 Ram 2500? You’re not alone. This powerful truck promises to bring impressive features and performance that"
+title: 'When Do the 2025 Ram 2500 Come Out: Release Date & Features Revealed'
+description: Are you eagerly waiting to get your hands on the 2025 Ram 2500? You’re
+  not alone. This powerful truck promises to bring impressive features and performance
+  that
 pubDate: 2026-02-06
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=when-do-the-2025-ram-2500-come-out&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Model Availability and Value
+heroImage: https://tse1.mm.bing.net/th?q=when-do-the-2025-ram-2500-come-out&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you eagerly waiting to get your hands on the 2025 Ram 2500? You’re not alone.**

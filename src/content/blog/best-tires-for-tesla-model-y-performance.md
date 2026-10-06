@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Tesla Model Y Performance: Top Picks for Ultimate Grip"
-description: "Choosing the best tires for your Tesla Model Y Performance ensures safety and peak driving experience. Tires affect handling, comfort, and efficiency. Tesla Mod"
+title: 'Best Tires for Tesla Model Y Performance: Top Picks for Ultimate Grip'
+description: Choosing the best tires for your Tesla Model Y Performance ensures safety
+  and peak driving experience. Tires affect handling, comfort, and efficiency. Tesla
+  Mod
 pubDate: 2026-01-03
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-tesla-model-y-performance&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Hybrid Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-tesla-model-y-performance&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best tires for your Tesla Model Y Performance ensures safety and peak driving experience. Tires affect handling, comfort, and efficiency.**

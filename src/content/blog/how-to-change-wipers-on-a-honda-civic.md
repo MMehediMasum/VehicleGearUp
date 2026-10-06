@@ -1,10 +1,14 @@
 ---
-title: "How to Change Wipers on a Honda Civic: Easy Step-by-Step Guide"
-description: "If you’ve ever struggled to see clearly during a rainstorm, you know how important your wipers are. Changing the wipers on your Honda Civic might seem tricky, b"
+title: 'How to Change Wipers on a Honda Civic: Easy Step-by-Step Guide'
+description: If you’ve ever struggled to see clearly during a rainstorm, you know
+  how important your wipers are. Changing the wipers on your Honda Civic might seem
+  tricky, b
 pubDate: 2025-12-08
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-wipers-on-a-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Windshield Wipers
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-wipers-on-a-honda-civic&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you’ve ever struggled to see clearly during a rainstorm, you know how important your wipers are. Changing the wipers on your Honda Civic might seem tricky, but it’s easier than you think.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Light on Jeep Grand Cherokee: Quick & Easy Steps"
-description: "Is your Jeep Grand Cherokee’s oil light on, and you’re not sure how to turn it off? You’re not alone. That small warning light can cause a lot of stress, but re"
+title: 'How to Reset Oil Light on Jeep Grand Cherokee: Quick & Easy Steps'
+description: Is your Jeep Grand Cherokee’s oil light on, and you’re not sure how to
+  turn it off? You’re not alone. That small warning light can cause a lot of stress,
+  but re
 pubDate: 2026-05-06
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-light-on-jeep-grand-cherokee&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Oil Light Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-light-on-jeep-grand-cherokee&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your Jeep Grand Cherokee’s oil light on, and you’re not sure how to turn it off? You’re not alone.**

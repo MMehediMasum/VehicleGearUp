@@ -1,10 +1,14 @@
 ---
-title: "Can Spark Plugs Cause Car to Shake: Shocking Reasons Explained"
-description: "Have you ever felt your car shaking while driving and wondered what’s causing it? One common but often overlooked culprit could be your spark plugs. These small"
+title: 'Can Spark Plugs Cause Car to Shake: Shocking Reasons Explained'
+description: Have you ever felt your car shaking while driving and wondered what’s
+  causing it? One common but often overlooked culprit could be your spark plugs. These
+  small
 pubDate: 2026-03-14
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-spark-plugs-cause-car-to-shake&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spark Plug Misfire Symptoms
+heroImage: https://tse1.mm.bing.net/th?q=can-spark-plugs-cause-car-to-shake&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you ever felt your car shaking while driving and wondered what’s causing it? One common but often overlooked culprit could be your spark plugs.**

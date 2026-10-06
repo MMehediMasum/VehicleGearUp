@@ -1,10 +1,14 @@
 ---
-title: "Best Paint for a Truck Frame: Top Rust-Proofing Spray Reviews"
-description: "Choosing the best paint for a truck frame protects it from rust and damage. The right paint keeps your truck strong and looking good for years. Truck frames fac"
+title: 'Best Paint for a Truck Frame: Top Rust-Proofing Spray Reviews'
+description: Choosing the best paint for a truck frame protects it from rust and damage.
+  The right paint keeps your truck strong and looking good for years. Truck frames
+  fac
 pubDate: 2026-07-02
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-paint-for-a-truck-frame&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spray Paint and Scratch Repair
+heroImage: https://tse1.mm.bing.net/th?q=best-paint-for-a-truck-frame&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best paint for a truck frame protects it from rust and damage. The right paint keeps your truck strong and looking good for years.**

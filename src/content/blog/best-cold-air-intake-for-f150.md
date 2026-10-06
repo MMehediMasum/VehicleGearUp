@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for F150 to Boost Performance and Towing Power"
-description: "Choosing the best cold air intake for your F150 can boost engine power and improve fuel efficiency. This guide covers top options that fit various F150 models a"
+title: Best Cold Air Intake for F150 to Boost Performance and Towing Power
+description: Choosing the best cold air intake for your F150 can boost engine power
+  and improve fuel efficiency. This guide covers top options that fit various F150
+  models a
 pubDate: 2026-06-01
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-f150&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best cold air intake for your F150 can boost engine power and improve fuel efficiency. This guide covers top options that fit various F150 models and years.**

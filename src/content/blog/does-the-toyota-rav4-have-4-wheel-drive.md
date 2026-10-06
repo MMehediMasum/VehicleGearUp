@@ -1,10 +1,14 @@
 ---
-title: "Does the Toyota Rav4 Have 4 Wheel Drive? Ultimate Guide"
-description: "Are you thinking about getting a Toyota RAV4 and wondering if it comes with 4-wheel drive? Knowing this can make a big difference in how the vehicle handles tou"
+title: Does the Toyota Rav4 Have 4 Wheel Drive? Ultimate Guide
+description: Are you thinking about getting a Toyota RAV4 and wondering if it comes
+  with 4-wheel drive? Knowing this can make a big difference in how the vehicle handles
+  tou
 pubDate: 2025-09-22
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-the-toyota-rav4-have-4-wheel-drive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota 4WD Questions
+heroImage: https://tse1.mm.bing.net/th?q=does-the-toyota-rav4-have-4-wheel-drive&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you thinking about getting a Toyota RAV4 and wondering if it comes with 4-wheel drive? Knowing this can make a big difference in how the vehicle handles tough roads, bad weather, or off-road adventures.**

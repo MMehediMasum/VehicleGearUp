@@ -1,10 +1,14 @@
 ---
-title: "How to Install a Car Stereo Capacitor: Easy Steps for Better Sound"
-description: "Are you tired of your car stereo cutting out or losing power when the bass hits hard? Installing a car stereo capacitor could be the simple fix you need. This s"
+title: 'How to Install a Car Stereo Capacitor: Easy Steps for Better Sound'
+description: Are you tired of your car stereo cutting out or losing power when the
+  bass hits hard? Installing a car stereo capacitor could be the simple fix you need.
+  This s
 pubDate: 2025-09-14
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-install-a-car-stereo-capacitor&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Stereo Installation Help
+heroImage: https://tse1.mm.bing.net/th?q=how-to-install-a-car-stereo-capacitor&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are you tired of your car stereo cutting out or losing power when the bass hits hard? Installing a car stereo capacitor could be the simple fix you need.**

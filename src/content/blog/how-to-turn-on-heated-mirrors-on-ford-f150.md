@@ -1,10 +1,14 @@
 ---
-title: "How to Turn on Heated Mirrors on Ford F150: Quick & Easy Guide"
-description: "Are you tired of struggling to see through foggy or icy mirrors on your Ford F150? Heated mirrors can make a huge difference, clearing away frost and fog quickl"
+title: 'How to Turn on Heated Mirrors on Ford F150: Quick & Easy Guide'
+description: Are you tired of struggling to see through foggy or icy mirrors on your
+  Ford F150? Heated mirrors can make a huge difference, clearing away frost and fog
+  quickl
 pubDate: 2026-01-30
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-on-heated-mirrors-on-ford-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Snow Plows
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-on-heated-mirrors-on-ford-f150&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Are you tired of struggling to see through foggy or icy mirrors on your Ford F150? Heated mirrors can make a huge difference, clearing away frost and fog quickly so you can drive safely.**

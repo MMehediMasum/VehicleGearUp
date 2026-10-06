@@ -1,10 +1,14 @@
 ---
-title: "How Do You Deflate a Car Tire: Easy Steps for Safe Release"
-description: "Have you ever needed to deflate a car tire but didn’t know where to start? Whether you’re adjusting tire pressure for better traction or preparing your vehicle "
+title: 'How Do You Deflate a Car Tire: Easy Steps for Safe Release'
+description: 'Have you ever needed to deflate a car tire but didn’t know where to
+  start? Whether you’re adjusting tire pressure for better traction or preparing your
+  vehicle '
 pubDate: 2025-11-18
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-deflate-a-car-tire&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Checking Tire Pressure
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-deflate-a-car-tire&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Have you ever needed to deflate a car tire but didn’t know where to start? Whether you’re adjusting tire pressure for better traction or preparing your vehicle for storage, knowing how to safely and effectively let air out is key.**

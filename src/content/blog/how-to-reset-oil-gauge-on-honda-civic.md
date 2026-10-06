@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Gauge on Honda Civic: Quick & Easy Guide"
-description: "Is your Honda Civic’s oil gauge acting up or showing incorrect readings? Knowing how to reset the oil gauge can save you time, avoid unnecessary trips to the me"
+title: 'How to Reset Oil Gauge on Honda Civic: Quick & Easy Guide'
+description: Is your Honda Civic’s oil gauge acting up or showing incorrect readings?
+  Knowing how to reset the oil gauge can save you time, avoid unnecessary trips to
+  the me
 pubDate: 2025-10-05
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-gauge-on-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Oil Gauge Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-gauge-on-honda-civic&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your Honda Civic’s oil gauge acting up or showing incorrect readings? Knowing how to reset the oil gauge can save you time, avoid unnecessary trips to the mechanic, and keep your car running smoothly.**

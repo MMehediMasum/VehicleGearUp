@@ -1,10 +1,14 @@
 ---
-title: "Best Scan Tool for Electronic Parking Brake: Top Picks for Accurate Diagnostics"
-description: "Finding the best scan tool for electronic parking brakes helps you diagnose and fix brake issues quickly. These tools read error codes and reset brake systems w"
+title: 'Best Scan Tool for Electronic Parking Brake: Top Picks for Accurate Diagnostics'
+description: Finding the best scan tool for electronic parking brakes helps you diagnose
+  and fix brake issues quickly. These tools read error codes and reset brake systems
+  w
 pubDate: 2026-07-14
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-scan-tool-for-electronic-parking-brake&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Scan Tools and Code Readers
+heroImage: https://tse1.mm.bing.net/th?q=best-scan-tool-for-electronic-parking-brake&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Finding the best scan tool for electronic parking brakes helps you diagnose and fix brake issues quickly. These tools read error codes and reset brake systems with ease.**

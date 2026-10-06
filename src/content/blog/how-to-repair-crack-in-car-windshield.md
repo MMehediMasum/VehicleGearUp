@@ -1,10 +1,14 @@
 ---
-title: "How to Repair Crack in Car Windshield: Easy Steps for Quick Fix"
-description: "Have you noticed a crack on your car windshield and wondered if it’s something you can fix yourself? That small crack might seem harmless now, but if left untre"
+title: 'How to Repair Crack in Car Windshield: Easy Steps for Quick Fix'
+description: Have you noticed a crack on your car windshield and wondered if it’s
+  something you can fix yourself? That small crack might seem harmless now, but if
+  left untre
 pubDate: 2026-05-30
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-repair-crack-in-car-windshield&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Windshield and Mirror Repair
+heroImage: https://tse1.mm.bing.net/th?q=how-to-repair-crack-in-car-windshield&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you noticed a crack on your car windshield and wondered if it’s something you can fix yourself? That small crack might seem harmless now, but if left untreated, it can spread and become a costly problem.**

@@ -1,10 +1,13 @@
 ---
-title: "How to Test a Car Battery at Home: Easy Steps for Quick Results"
-description: "Is your car struggling to start, leaving you stuck and frustrated? Before rushing to the mechanic, you can quickly check if your car battery is the real culprit"
+title: 'How to Test a Car Battery at Home: Easy Steps for Quick Results'
+description: Is your car struggling to start, leaving you stuck and frustrated? Before
+  rushing to the mechanic, you can quickly check if your car battery is the real culprit
 pubDate: 2026-04-07
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-test-a-car-battery-at-home&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Selling Old Car Batteries
+heroImage: https://tse1.mm.bing.net/th?q=how-to-test-a-car-battery-at-home&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your car struggling to start, leaving you stuck and frustrated? Before rushing to the mechanic, you can quickly check if your car battery is the real culprit—all from the comfort of your home.**

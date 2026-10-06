@@ -1,10 +1,14 @@
 ---
-title: "How Far Can Tesla Model 3 Go on One Charge: Ultimate Range Revealed"
-description: "Have you ever wondered how far your Tesla Model 3 can take you on a single charge? Knowing the exact range can change the way you plan your trips and ease any w"
+title: 'How Far Can Tesla Model 3 Go on One Charge: Ultimate Range Revealed'
+description: Have you ever wondered how far your Tesla Model 3 can take you on a single
+  charge? Knowing the exact range can change the way you plan your trips and ease
+  any w
 pubDate: 2026-02-07
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-far-can-tesla-model-3-go-on-one-charge&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Summon and Dog Mode
+heroImage: https://tse1.mm.bing.net/th?q=how-far-can-tesla-model-3-go-on-one-charge&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Have you ever wondered how far your Tesla Model 3 can take you on a single charge? Knowing the exact range can change the way you plan your trips and ease any worries about running out of power.**

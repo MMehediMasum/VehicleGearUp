@@ -1,10 +1,14 @@
 ---
-title: "Best 2 Post Car Lift for Home Garage: Top Durable Auto Lifts Reviewed"
-description: "A 2 post car lift is essential for any home garage. It helps you lift vehicles safely and saves space. Choosing the best 2 post car lift makes vehicle maintenan"
+title: 'Best 2 Post Car Lift for Home Garage: Top Durable Auto Lifts Reviewed'
+description: A 2 post car lift is essential for any home garage. It helps you lift
+  vehicles safely and saves space. Choosing the best 2 post car lift makes vehicle
+  maintenan
 pubDate: 2026-06-08
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-2-post-car-lift-for-home-garage&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Garage Car Lifts
+heroImage: https://tse1.mm.bing.net/th?q=best-2-post-car-lift-for-home-garage&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **A 2 post car lift is essential for any home garage. It helps you lift vehicles safely and saves space.**

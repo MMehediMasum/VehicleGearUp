@@ -1,10 +1,14 @@
 ---
-title: "Best Foam Car Wash for Ceramic Coating: Top Picks for Ultimate Shine"
-description: "Choosing the best foam car wash for ceramic coating protects your paint and keeps your car looking new. The right shampoo cleans gently without harming the coat"
+title: 'Best Foam Car Wash for Ceramic Coating: Top Picks for Ultimate Shine'
+description: Choosing the best foam car wash for ceramic coating protects your paint
+  and keeps your car looking new. The right shampoo cleans gently without harming
+  the coat
 pubDate: 2026-07-05
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-foam-car-wash-for-ceramic-coating&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Washing Ceramic Coated Cars
+heroImage: https://tse1.mm.bing.net/th?q=best-foam-car-wash-for-ceramic-coating&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best foam car wash for ceramic coating protects your paint and keeps your car looking new. The right shampoo cleans gently without harming the coating or wax.**

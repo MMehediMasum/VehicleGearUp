@@ -1,10 +1,14 @@
 ---
-title: "How Often Do You Need to Change Car Battery: Ultimate Guide"
-description: "Have you ever turned your key only to hear silence instead of your engine roaring to life? A dead car battery can catch you off guard at the worst possible time"
+title: 'How Often Do You Need to Change Car Battery: Ultimate Guide'
+description: Have you ever turned your key only to hear silence instead of your engine
+  roaring to life? A dead car battery can catch you off guard at the worst possible
+  time
 pubDate: 2025-09-27
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-often-do-you-need-to-change-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Fixing Battery Drain
+heroImage: https://tse1.mm.bing.net/th?q=how-often-do-you-need-to-change-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever turned your key only to hear silence instead of your engine roaring to life? A dead car battery can catch you off guard at the worst possible time.**

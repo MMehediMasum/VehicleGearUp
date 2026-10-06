@@ -1,10 +1,14 @@
 ---
-title: "Can You Use a Bike Pump for Car Tires: Myths vs. Facts Explained"
-description: "Have you ever found yourself with a low car tire and no air pump nearby? You might wonder, can you use a bike pump for car tires? It sounds like a quick fix, bu"
+title: 'Can You Use a Bike Pump for Car Tires: Myths vs. Facts Explained'
+description: Have you ever found yourself with a low car tire and no air pump nearby?
+  You might wonder, can you use a bike pump for car tires? It sounds like a quick
+  fix, bu
 pubDate: 2025-10-10
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-use-a-bike-pump-for-car-tires&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tire Construction and Origin
+heroImage: https://tse1.mm.bing.net/th?q=can-you-use-a-bike-pump-for-car-tires&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Have you ever found yourself with a low car tire and no air pump nearby? You might wonder, can you use a bike pump for car tires?**

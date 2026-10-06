@@ -1,10 +1,14 @@
 ---
-title: "How to Test a Car Amplifier With a Multimeter: Easy Step-by-Step Guide"
-description: "Are you having trouble with your car amplifier and not sure if it’s working right? Testing it yourself can save you time and money before heading to a repair sh"
+title: 'How to Test a Car Amplifier With a Multimeter: Easy Step-by-Step Guide'
+description: Are you having trouble with your car amplifier and not sure if it’s working
+  right? Testing it yourself can save you time and money before heading to a repair
+  sh
 pubDate: 2025-09-24
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-test-a-car-amplifier-with-a-multimeter&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Speakers and Amplifiers
+heroImage: https://tse1.mm.bing.net/th?q=how-to-test-a-car-amplifier-with-a-multimeter&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are you having trouble with your car amplifier and not sure if it’s working right? Testing it yourself can save you time and money before heading to a repair shop.**

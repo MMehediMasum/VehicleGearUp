@@ -1,10 +1,14 @@
 ---
-title: "What Does Cc Mean in Car Engine: Unlocking Engine Power Explained"
-description: "Have you ever wondered what the letters \"cc\" mean when you see them in a car engine description? Understanding this simple term can change the way you think abo"
+title: 'What Does Cc Mean in Car Engine: Unlocking Engine Power Explained'
+description: Have you ever wondered what the letters "cc" mean when you see them in
+  a car engine description? Understanding this simple term can change the way you
+  think abo
 pubDate: 2026-04-30
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-does-cc-mean-in-car-engine&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- How Car Engines Work
+heroImage: https://tse1.mm.bing.net/th?q=what-does-cc-mean-in-car-engine&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you ever wondered what the letters "cc" mean when you see them in a car engine description? Understanding this simple term can change the way you think about your car’s power and performance.**

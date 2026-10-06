@@ -1,10 +1,14 @@
 ---
-title: "How to Disable Door Ajar on Ford F150: Easy Fix Guide"
-description: "Is your Ford F150 constantly alerting you with that annoying “Door Ajar” warning, even when all doors are properly closed? You’re not alone. This persistent mes"
+title: 'How to Disable Door Ajar on Ford F150: Easy Fix Guide'
+description: Is your Ford F150 constantly alerting you with that annoying “Door Ajar”
+  warning, even when all doors are properly closed? You’re not alone. This persistent
+  mes
 pubDate: 2026-01-18
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-disable-door-ajar-on-ford-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Turning Off Safety Features
+heroImage: https://tse1.mm.bing.net/th?q=how-to-disable-door-ajar-on-ford-f150&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your Ford F150 constantly alerting you with that annoying “Door Ajar” warning, even when all doors are properly closed? You’re not alone.**

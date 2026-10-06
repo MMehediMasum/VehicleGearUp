@@ -1,10 +1,14 @@
 ---
-title: "How to Check Size of Car Tire: Easy Steps for Accurate Measurement"
-description: "Are you unsure about the size of your car tires? Knowing the exact tire size is important for your safety, performance, and even fuel efficiency. But checking i"
+title: 'How to Check Size of Car Tire: Easy Steps for Accurate Measurement'
+description: Are you unsure about the size of your car tires? Knowing the exact tire
+  size is important for your safety, performance, and even fuel efficiency. But checking
+  i
 pubDate: 2026-02-23
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-check-size-of-car-tire&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tire Age Pressure and Size
+heroImage: https://tse1.mm.bing.net/th?q=how-to-check-size-of-car-tire&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Are you unsure about the size of your car tires? Knowing the exact tire size is important for your safety, performance, and even fuel efficiency.**

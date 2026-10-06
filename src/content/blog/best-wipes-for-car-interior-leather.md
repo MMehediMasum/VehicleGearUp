@@ -1,10 +1,14 @@
 ---
-title: "Best Wipes for Car Interior Leather to Clean, Protect, and Shine"
-description: "Keeping your car’s leather interior clean and protected helps maintain its look and value. The right wipes remove dirt, condition leather, and prevent cracking "
+title: Best Wipes for Car Interior Leather to Clean, Protect, and Shine
+description: 'Keeping your car’s leather interior clean and protected helps maintain
+  its look and value. The right wipes remove dirt, condition leather, and prevent
+  cracking '
 pubDate: 2026-06-14
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-wipes-for-car-interior-leather&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Leather and Dashboard Care
+heroImage: https://tse1.mm.bing.net/th?q=best-wipes-for-car-interior-leather&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Keeping your car’s leather interior clean and protected helps maintain its look and value. The right wipes remove dirt, condition leather, and prevent cracking or fading.**

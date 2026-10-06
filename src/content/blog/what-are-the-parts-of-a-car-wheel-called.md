@@ -1,10 +1,14 @@
 ---
-title: "What are the Parts of a Car Wheel Called: Essential Guide"
-description: "Have you ever looked closely at your car’s wheels and wondered what each part is called? Understanding the different parts of a car wheel can help you take bett"
+title: 'What are the Parts of a Car Wheel Called: Essential Guide'
+description: Have you ever looked closely at your car’s wheels and wondered what each
+  part is called? Understanding the different parts of a car wheel can help you take
+  bett
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-the-parts-of-a-car-wheel-called&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Steering Wheel Problems and Covers
+heroImage: https://tse1.mm.bing.net/th?q=what-are-the-parts-of-a-car-wheel-called&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever looked closely at your car’s wheels and wondered what each part is called? Understanding the different parts of a car wheel can help you take better care of your vehicle and spot problems before they become serious.**

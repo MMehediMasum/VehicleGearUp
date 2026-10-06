@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Check Emission System Honda Civic: Quick & Easy Guide"
-description: "Is your Honda Civic’s check emission system light on, and you’re not sure what to do next? You’re not alone. This warning can be confusing and even a little str"
+title: 'How to Reset Check Emission System Honda Civic: Quick & Easy Guide'
+description: Is your Honda Civic’s check emission system light on, and you’re not
+  sure what to do next? You’re not alone. This warning can be confusing and even a
+  little str
 pubDate: 2026-01-31
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-check-emission-system-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jeep Grand Cherokee Resets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-check-emission-system-honda-civic&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your Honda Civic’s check emission system light on, and you’re not sure what to do next? You’re not alone.**

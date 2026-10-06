@@ -1,10 +1,13 @@
 ---
-title: "What are the Dimensions of a Motorcycle License Plate: Essential Guide"
-description: "Are you curious about the exact size of a motorcycle license plate? Whether you’re customizing your bike or need to replace a plate, knowing the right dimension"
+title: 'What are the Dimensions of a Motorcycle License Plate: Essential Guide'
+description: Are you curious about the exact size of a motorcycle license plate? Whether
+  you’re customizing your bike or need to replace a plate, knowing the right dimension
 pubDate: 2025-09-11
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-the-dimensions-of-a-motorcycle-license-plate&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Batteries and Brakes
+heroImage: https://tse1.mm.bing.net/th?q=what-are-the-dimensions-of-a-motorcycle-license-plate&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you curious about the exact size of a motorcycle license plate? Whether you’re customizing your bike or need to replace a plate, knowing the right dimensions is key.**

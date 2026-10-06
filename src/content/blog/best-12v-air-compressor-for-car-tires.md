@@ -1,10 +1,14 @@
 ---
-title: "Best 12V Air Compressor for Car Tires: Top Portable Tire Inflators"
-description: "A reliable 12V air compressor keeps your car tires properly inflated and safe on the road. Choosing the right model saves time and effort during tire maintenanc"
+title: 'Best 12V Air Compressor for Car Tires: Top Portable Tire Inflators'
+description: A reliable 12V air compressor keeps your car tires properly inflated
+  and safe on the road. Choosing the right model saves time and effort during tire
+  maintenanc
 pubDate: 2026-01-03
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-12v-air-compressor-for-car-tires&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tire Inflators and Compressors
+heroImage: https://tse1.mm.bing.net/th?q=best-12v-air-compressor-for-car-tires&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **A reliable 12V air compressor keeps your car tires properly inflated and safe on the road. Choosing the right model saves time and effort during tire maintenance.**

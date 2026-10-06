@@ -1,10 +1,14 @@
 ---
-title: "How to Change the Air Filter in a Honda Accord: Easy Step-by-Step Guide"
-description: "Changing the air filter in your Honda Accord is easier than you might think—and it can make a big difference in how your car runs. If you’ve noticed your engine"
+title: 'How to Change the Air Filter in a Honda Accord: Easy Step-by-Step Guide'
+description: Changing the air filter in your Honda Accord is easier than you might
+  think—and it can make a big difference in how your car runs. If you’ve noticed your
+  engine
 pubDate: 2026-01-21
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-the-air-filter-in-a-honda-accord&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Cabin Air Filters
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-the-air-filter-in-a-honda-accord&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Changing the air filter in your Honda Accord is easier than you might think—and it can make a big difference in how your car runs. If you’ve noticed your engine struggling or your fuel efficiency dropping, a dirty air filter could be the culprit.**

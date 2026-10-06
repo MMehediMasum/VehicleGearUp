@@ -1,10 +1,14 @@
 ---
-title: "How to Change a Nissan Altima Headlight: Easy Step-by-Step Guide"
-description: "Are you struggling with a dim or broken headlight on your Nissan Altima? Changing it yourself might seem tricky, but it’s easier than you think. In this guide, "
+title: 'How to Change a Nissan Altima Headlight: Easy Step-by-Step Guide'
+description: 'Are you struggling with a dim or broken headlight on your Nissan Altima?
+  Changing it yourself might seem tricky, but it’s easier than you think. In this
+  guide, '
 pubDate: 2026-05-26
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-a-nissan-altima-headlight&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Headlight Bulbs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-a-nissan-altima-headlight&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are you struggling with a dim or broken headlight on your Nissan Altima? Changing it yourself might seem tricky, but it’s easier than you think.**

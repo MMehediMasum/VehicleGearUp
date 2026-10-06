@@ -1,10 +1,14 @@
 ---
-title: "Best Power Inverter for Work Truck: Top High-Power Reliable Picks"
-description: "Choosing the best power inverter for a work truck helps keep your tools and devices powered on the go. A reliable inverter converts your truck’s 12V battery pow"
+title: 'Best Power Inverter for Work Truck: Top High-Power Reliable Picks'
+description: Choosing the best power inverter for a work truck helps keep your tools
+  and devices powered on the go. A reliable inverter converts your truck’s 12V battery
+  pow
 pubDate: 2026-06-21
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-power-inverter-for-work-truck&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Power Supplies and Inverters
+heroImage: https://tse1.mm.bing.net/th?q=best-power-inverter-for-work-truck&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Choosing the best power inverter for a work truck helps keep your tools and devices powered on the go. A reliable inverter converts your truck’s 12V battery power into 110V or 120V AC electricity.**

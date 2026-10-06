@@ -1,10 +1,14 @@
 ---
-title: "Best Car Wash for Matte Paint: Top Safe & Effective Matte Finish Soaps"
-description: "Choosing the best car wash for matte paint protects your car’s unique finish and keeps it looking fresh. Matte paint needs gentle, special care to avoid damage "
+title: 'Best Car Wash for Matte Paint: Top Safe & Effective Matte Finish Soaps'
+description: 'Choosing the best car wash for matte paint protects your car’s unique
+  finish and keeps it looking fresh. Matte paint needs gentle, special care to avoid
+  damage '
 pubDate: 2026-07-04
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-wash-for-matte-paint&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wash Soap Picks
+heroImage: https://tse1.mm.bing.net/th?q=best-car-wash-for-matte-paint&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best car wash for matte paint protects your car’s unique finish and keeps it looking fresh. Matte paint needs gentle, special care to avoid damage and dullness.**

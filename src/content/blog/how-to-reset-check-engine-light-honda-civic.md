@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Check Engine Light Honda Civic: Easy DIY Guide"
-description: "Is your Honda Civic’s check engine light on, and you’re not sure what to do next? That little warning can feel stressful, but don’t worry—you can take action ri"
+title: 'How to Reset Check Engine Light Honda Civic: Easy DIY Guide'
+description: Is your Honda Civic’s check engine light on, and you’re not sure what
+  to do next? That little warning can feel stressful, but don’t worry—you can take
+  action ri
 pubDate: 2026-04-30
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-check-engine-light-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Resetting Check Engine Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-check-engine-light-honda-civic&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Is your Honda Civic’s check engine light on, and you’re not sure what to do next? That little warning can feel stressful, but don’t worry—you can take action right now.**

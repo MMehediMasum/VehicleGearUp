@@ -1,10 +1,14 @@
 ---
-title: "How to Let Air Out of a Car Tire: Easy Steps for Safety"
-description: "Have you ever noticed your car tire feels too firm or the ride is unusually bumpy? Sometimes, letting a little air out can make a big difference in comfort and "
+title: 'How to Let Air Out of a Car Tire: Easy Steps for Safety'
+description: 'Have you ever noticed your car tire feels too firm or the ride is unusually
+  bumpy? Sometimes, letting a little air out can make a big difference in comfort
+  and '
 pubDate: 2026-03-05
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-let-air-out-of-a-car-tire&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tire Age Pressure and Size
+heroImage: https://tse1.mm.bing.net/th?q=how-to-let-air-out-of-a-car-tire&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Have you ever noticed your car tire feels too firm or the ride is unusually bumpy? Sometimes, letting a little air out can make a big difference in comfort and control.**

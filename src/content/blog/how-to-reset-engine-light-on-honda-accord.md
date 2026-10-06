@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Engine Light on Honda Accord: Easy DIY Guide"
-description: "Is your Honda Accord’s engine light glowing and you’re not sure what to do next? That little warning can cause a lot of stress, but the good news is—you don’t a"
+title: 'How to Reset Engine Light on Honda Accord: Easy DIY Guide'
+description: Is your Honda Accord’s engine light glowing and you’re not sure what
+  to do next? That little warning can cause a lot of stress, but the good news is—you
+  don’t a
 pubDate: 2026-05-12
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-engine-light-on-honda-accord&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Resetting Check Engine Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-engine-light-on-honda-accord&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Is your Honda Accord’s engine light glowing and you’re not sure what to do next? That little warning can cause a lot of stress, but the good news is—you don’t always need to rush to a mechanic.**

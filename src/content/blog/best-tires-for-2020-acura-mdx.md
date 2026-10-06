@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Acura MDX: Top All-Season and Performance Picks"
-description: "Choosing the best tires for your 2020 Acura MDX improves safety and driving comfort. The right tires match your vehicle’s size, style, and road needs. The 2020 "
+title: 'Best Tires for Acura MDX: Top All-Season and Performance Picks'
+description: 'Choosing the best tires for your 2020 Acura MDX improves safety and
+  driving comfort. The right tires match your vehicle’s size, style, and road needs.
+  The 2020 '
 pubDate: 2025-12-28
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-2020-acura-mdx&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-2020-acura-mdx&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your 2020 Acura MDX improves safety and driving comfort. The right tires match your vehicle’s size, style, and road needs.**

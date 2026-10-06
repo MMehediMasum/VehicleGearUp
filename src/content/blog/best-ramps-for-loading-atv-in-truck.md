@@ -1,10 +1,14 @@
 ---
-title: "Best Ramps for Loading ATV in Truck: Top Durable Picks Reviewed"
-description: "Loading an ATV into a truck requires strong, reliable ramps. Choosing the right ramp makes loading safer and easier. Many ramps work well for trucks, trailers, "
+title: 'Best Ramps for Loading ATV in Truck: Top Durable Picks Reviewed'
+description: 'Loading an ATV into a truck requires strong, reliable ramps. Choosing
+  the right ramp makes loading safer and easier. Many ramps work well for trucks,
+  trailers, '
 pubDate: 2025-11-06
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-ramps-for-loading-atv-in-truck&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Powersports Batteries
+heroImage: https://tse1.mm.bing.net/th?q=best-ramps-for-loading-atv-in-truck&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Loading an ATV into a truck requires strong, reliable ramps. Choosing the right ramp makes loading safer and easier.**

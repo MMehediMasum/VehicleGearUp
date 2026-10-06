@@ -1,10 +1,14 @@
 ---
-title: "How to Get a Rat Out of Your Car Dashboard: Effective Removal Tips"
-description: "Imagine hearing tiny scratches or seeing unexpected droppings inside your car dashboard. It’s unsettling, right? If a rat has found its way into your car, you p"
+title: 'How to Get a Rat Out of Your Car Dashboard: Effective Removal Tips'
+description: Imagine hearing tiny scratches or seeing unexpected droppings inside
+  your car dashboard. It’s unsettling, right? If a rat has found its way into your
+  car, you p
 pubDate: 2026-01-21
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-get-a-rat-out-of-your-car-dashboard&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Leather and Dashboard Care
+heroImage: https://tse1.mm.bing.net/th?q=how-to-get-a-rat-out-of-your-car-dashboard&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Imagine hearing tiny scratches or seeing unexpected droppings inside your car dashboard. It’s unsettling, right?**

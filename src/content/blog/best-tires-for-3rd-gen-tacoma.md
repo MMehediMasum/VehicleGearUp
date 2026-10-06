@@ -1,10 +1,13 @@
 ---
-title: "Best Tires for 3Rd Gen Tacoma: Top Picks to Boost Offroad Performance"
-description: "Choosing the best tires for your 3rd Gen Tacoma improves safety, performance, and off-road capability. The right tires match your driving style and terrain need"
+title: 'Best Tires for 3Rd Gen Tacoma: Top Picks to Boost Offroad Performance'
+description: Choosing the best tires for your 3rd Gen Tacoma improves safety, performance,
+  and off-road capability. The right tires match your driving style and terrain need
 pubDate: 2025-12-27
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-3rd-gen-tacoma&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Trim Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-3rd-gen-tacoma&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your 3rd Gen Tacoma improves safety, performance, and off-road capability. The right tires match your driving style and terrain needs.**

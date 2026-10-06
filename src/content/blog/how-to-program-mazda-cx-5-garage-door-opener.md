@@ -1,10 +1,14 @@
 ---
-title: "How to Program Mazda Cx 5 Garage Door Opener: Easy Step-by-Step Guide"
-description: "If you own a Mazda CX-5, you probably want the convenience of opening your garage door right from your car. Programming your Mazda CX-5 garage door opener may s"
+title: 'How to Program Mazda Cx 5 Garage Door Opener: Easy Step-by-Step Guide'
+description: If you own a Mazda CX-5, you probably want the convenience of opening
+  your garage door right from your car. Programming your Mazda CX-5 garage door opener
+  may s
 pubDate: 2026-02-24
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-program-mazda-cx-5-garage-door-opener&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Garage Door Opener Programming
+heroImage: https://tse1.mm.bing.net/th?q=how-to-program-mazda-cx-5-garage-door-opener&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If you own a Mazda CX-5, you probably want the convenience of opening your garage door right from your car. Programming your Mazda CX-5 garage door opener may seem tricky, but it’s easier than you think.**

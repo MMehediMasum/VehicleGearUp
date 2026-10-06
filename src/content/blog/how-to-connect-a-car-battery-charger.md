@@ -1,10 +1,14 @@
 ---
-title: "How to Connect a Car Battery Charger: Easy Steps for Safe Charging"
-description: "Is your car battery dead, leaving you stuck and frustrated? Knowing how to connect a car battery charger can save you time, money, and stress. Imagine quickly b"
+title: 'How to Connect a Car Battery Charger: Easy Steps for Safe Charging'
+description: Is your car battery dead, leaving you stuck and frustrated? Knowing how
+  to connect a car battery charger can save you time, money, and stress. Imagine quickly
+  b
 pubDate: 2026-04-15
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-connect-a-car-battery-charger&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Using Battery Chargers
+heroImage: https://tse1.mm.bing.net/th?q=how-to-connect-a-car-battery-charger&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your car battery dead, leaving you stuck and frustrated? Knowing how to connect a car battery charger can save you time, money, and stress.**

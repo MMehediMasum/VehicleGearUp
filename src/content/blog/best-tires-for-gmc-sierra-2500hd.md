@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for GMC Sierra 2500HD: Top Picks for Durability and Performance"
-description: "Choosing the best tires for your GMC Sierra 2500HD improves safety and performance. Good tires handle heavy loads and tough roads with ease. The GMC Sierra 2500"
+title: 'Best Tires for GMC Sierra 2500HD: Top Picks for Durability and Performance'
+description: Choosing the best tires for your GMC Sierra 2500HD improves safety and
+  performance. Good tires handle heavy loads and tough roads with ease. The GMC Sierra
+  2500
 pubDate: 2025-12-25
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-gmc-sierra-2500hd&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Chevy and GMC Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-gmc-sierra-2500hd&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your GMC Sierra 2500HD improves safety and performance. Good tires handle heavy loads and tough roads with ease.**

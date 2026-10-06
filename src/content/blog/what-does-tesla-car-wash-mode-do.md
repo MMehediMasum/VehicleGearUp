@@ -1,10 +1,14 @@
 ---
-title: "What Does Tesla Car Wash Mode Do: Ultimate Guide to Safe Cleaning"
-description: "If you own a Tesla or are thinking about getting one, you might be curious about the Car Wash Mode. What exactly does it do, and why is it important for your ca"
+title: 'What Does Tesla Car Wash Mode Do: Ultimate Guide to Safe Cleaning'
+description: If you own a Tesla or are thinking about getting one, you might be curious
+  about the Car Wash Mode. What exactly does it do, and why is it important for your
+  ca
 pubDate: 2025-09-14
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-does-tesla-car-wash-mode-do&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Washing Electric Cars
+heroImage: https://tse1.mm.bing.net/th?q=what-does-tesla-car-wash-mode-do&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **If you own a Tesla or are thinking about getting one, you might be curious about the Car Wash Mode. What exactly does it do, and why is it important for your car?**

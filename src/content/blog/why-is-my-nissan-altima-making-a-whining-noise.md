@@ -1,10 +1,14 @@
 ---
-title: "Why is My Nissan Altima Making a Whining Noise: Causes & Fixes"
-description: "Is your Nissan Altima making a strange whining noise that you just can’t ignore? That constant sound can be frustrating and even worrying. You might wonder if i"
+title: 'Why is My Nissan Altima Making a Whining Noise: Causes & Fixes'
+description: Is your Nissan Altima making a strange whining noise that you just can’t
+  ignore? That constant sound can be frustrating and even worrying. You might wonder
+  if i
 pubDate: 2026-01-22
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-is-my-nissan-altima-making-a-whining-noise&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Dashboard Lights and Noises
+heroImage: https://tse1.mm.bing.net/th?q=why-is-my-nissan-altima-making-a-whining-noise&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your Nissan Altima making a strange whining noise that you just can’t ignore? That constant sound can be frustrating and even worrying.**

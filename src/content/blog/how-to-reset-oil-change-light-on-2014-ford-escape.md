@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Change Light on 2014 Ford Escape: Quick Guide"
-description: "Your 2014 Ford Escape just had an oil change, but that pesky oil change light is still on. It’s frustrating, right? You want to make sure your car is running sm"
+title: 'How to Reset Oil Change Light on 2014 Ford Escape: Quick Guide'
+description: Your 2014 Ford Escape just had an oil change, but that pesky oil change
+  light is still on. It’s frustrating, right? You want to make sure your car is running
+  sm
 pubDate: 2026-05-04
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-change-light-on-2014-ford-escape&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Oil Change Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-change-light-on-2014-ford-escape&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Your 2014 Ford Escape just had an oil change, but that pesky oil change light is still on. It’s frustrating, right?**

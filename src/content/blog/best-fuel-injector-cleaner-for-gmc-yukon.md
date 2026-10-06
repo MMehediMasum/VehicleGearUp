@@ -1,10 +1,14 @@
 ---
-title: "Best Fuel Injector Cleaner for GMC Yukon to Boost Engine Performance"
-description: "Keeping your GMC Yukon’s engine running smoothly requires clean fuel injectors. Choosing the best fuel injector cleaner helps maintain performance and fuel effi"
+title: Best Fuel Injector Cleaner for GMC Yukon to Boost Engine Performance
+description: Keeping your GMC Yukon’s engine running smoothly requires clean fuel
+  injectors. Choosing the best fuel injector cleaner helps maintain performance and
+  fuel effi
 pubDate: 2025-11-14
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-fuel-injector-cleaner-for-gmc-yukon&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Fuel Injector Cleaner Picks
+heroImage: https://tse1.mm.bing.net/th?q=best-fuel-injector-cleaner-for-gmc-yukon&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Keeping your GMC Yukon’s engine running smoothly requires clean fuel injectors. Choosing the best fuel injector cleaner helps maintain performance and fuel efficiency.**

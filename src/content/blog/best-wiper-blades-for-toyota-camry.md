@@ -1,10 +1,13 @@
 ---
-title: "Best Wiper Blades for Toyota Camry: Top Durable and Water-Repellent Picks"
-description: "Choosing the best wiper blades for your Toyota Camry ensures clear vision and safe driving in all weather. Quality blades wipe away rain, snow, and dirt effecti"
+title: 'Best Wiper Blades for Toyota Camry: Top Durable and Water-Repellent Picks'
+description: Choosing the best wiper blades for your Toyota Camry ensures clear vision
+  and safe driving in all weather. Quality blades wipe away rain, snow, and dirt effecti
 pubDate: 2026-06-11
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-wiper-blades-for-toyota-camry&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Best Wiper Blades
+heroImage: https://tse1.mm.bing.net/th?q=best-wiper-blades-for-toyota-camry&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Choosing the best wiper blades for your Toyota Camry ensures clear vision and safe driving in all weather. Quality blades wipe away rain, snow, and dirt effectively without streaks or noise.**

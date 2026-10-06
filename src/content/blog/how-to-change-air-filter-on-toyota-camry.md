@@ -1,10 +1,14 @@
 ---
-title: "How to Change Air Filter on Toyota Camry: Easy Step-by-Step Guide"
-description: "Your Toyota Camry runs smoothly when every part works well — and the air filter is a small but powerful piece of that puzzle. If you’ve noticed your engine stru"
+title: 'How to Change Air Filter on Toyota Camry: Easy Step-by-Step Guide'
+description: Your Toyota Camry runs smoothly when every part works well — and the
+  air filter is a small but powerful piece of that puzzle. If you’ve noticed your
+  engine stru
 pubDate: 2025-12-14
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-air-filter-on-toyota-camry&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Cabin Air Filters
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-air-filter-on-toyota-camry&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Your Toyota Camry runs smoothly when every part works well — and the air filter is a small but powerful piece of that puzzle. If you’ve noticed your engine struggling or your fuel efficiency dropping, your air filter might be the culprit.**

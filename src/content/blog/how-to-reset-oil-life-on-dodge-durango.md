@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Life on Dodge Durango: Quick & Easy Steps"
-description: "If you own a Dodge Durango, you know how important it is to keep your engine running smoothly. One key part of that is resetting the oil life indicator after an"
+title: 'How to Reset Oil Life on Dodge Durango: Quick & Easy Steps'
+description: If you own a Dodge Durango, you know how important it is to keep your
+  engine running smoothly. One key part of that is resetting the oil life indicator
+  after an
 pubDate: 2025-10-27
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-life-on-dodge-durango&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ram and Dodge Oil Life
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-life-on-dodge-durango&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a Dodge Durango, you know how important it is to keep your engine running smoothly. One key part of that is resetting the oil life indicator after an oil change.**

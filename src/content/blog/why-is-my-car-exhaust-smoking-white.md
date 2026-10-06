@@ -1,10 +1,14 @@
 ---
-title: "Why is My Car Exhaust Smoking White: Causes & Fixes Explained"
-description: "Have you noticed white smoke coming from your car’s exhaust and wondered what it means? White smoke can be a sign that something isn’t quite right under the hoo"
+title: 'Why is My Car Exhaust Smoking White: Causes & Fixes Explained'
+description: Have you noticed white smoke coming from your car’s exhaust and wondered
+  what it means? White smoke can be a sign that something isn’t quite right under
+  the hoo
 pubDate: 2025-12-18
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-is-my-car-exhaust-smoking-white&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Exhaust Systems
+heroImage: https://tse1.mm.bing.net/th?q=why-is-my-car-exhaust-smoking-white&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you noticed white smoke coming from your car’s exhaust and wondered what it means? White smoke can be a sign that something isn’t quite right under the hood.**

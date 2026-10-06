@@ -1,10 +1,14 @@
 ---
-title: "How Do I Know If My Car Alternator is Bad: Top Signs Revealed"
-description: "Have you noticed your car’s battery warning light flickering or your headlights dimming while you drive? These could be signs that your alternator is failing. B"
+title: 'How Do I Know If My Car Alternator is Bad: Top Signs Revealed'
+description: Have you noticed your car’s battery warning light flickering or your
+  headlights dimming while you drive? These could be signs that your alternator is
+  failing. B
 pubDate: 2026-04-18
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-i-know-if-my-car-alternator-is-bad&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Charging While Idling
+heroImage: https://tse1.mm.bing.net/th?q=how-do-i-know-if-my-car-alternator-is-bad&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you noticed your car’s battery warning light flickering or your headlights dimming while you drive? These could be signs that your alternator is failing.**

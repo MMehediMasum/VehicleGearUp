@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Harley Davidson Security System: Quick & Easy Guide"
-description: "If you own a Harley Davidson, you know how important the security system is to protect your bike. But what happens when your security system locks you out or st"
+title: 'How to Reset Harley Davidson Security System: Quick & Easy Guide'
+description: If you own a Harley Davidson, you know how important the security system
+  is to protect your bike. But what happens when your security system locks you out
+  or st
 pubDate: 2026-02-09
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-harley-davidson-security-system&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Ownership Questions
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-harley-davidson-security-system&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **If you own a Harley Davidson, you know how important the security system is to protect your bike. But what happens when your security system locks you out or stops working?**

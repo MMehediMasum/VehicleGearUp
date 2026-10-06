@@ -1,10 +1,14 @@
 ---
-title: "Why is My Fan So Loud on My 2013 F150: Causes & Fixes Explained"
-description: "Is your 2013 F150’s fan suddenly sounding louder than usual? You might be wondering why your truck’s fan noise has jumped up and what it means for your vehicle."
+title: 'Why is My Fan So Loud on My 2013 F150: Causes & Fixes Explained'
+description: Is your 2013 F150’s fan suddenly sounding louder than usual? You might
+  be wondering why your truck’s fan noise has jumped up and what it means for your
+  vehicle.
 pubDate: 2026-03-16
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-is-my-fan-so-loud-on-my-2013-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Model Questions
+heroImage: https://tse1.mm.bing.net/th?q=why-is-my-fan-so-loud-on-my-2013-f150&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Is your 2013 F150’s fan suddenly sounding louder than usual? You might be wondering why your truck’s fan noise has jumped up and what it means for your vehicle.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for 6.6 Duramax L5P to Boost Power & Efficiency"
-description: "Choosing the best cold air intake for the 6.6 Duramax L5P improves engine airflow and performance. This guide covers top options for Chevy and GMC trucks from 2"
+title: Best Cold Air Intake for 6.6 Duramax L5P to Boost Power & Efficiency
+description: Choosing the best cold air intake for the 6.6 Duramax L5P improves engine
+  airflow and performance. This guide covers top options for Chevy and GMC trucks
+  from 2
 pubDate: 2026-06-06
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-66-duramax-l5p&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- GM Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-66-duramax-l5p&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best cold air intake for the 6.6 Duramax L5P improves engine airflow and performance. This guide covers top options for Chevy and GMC trucks from 2013 to 2019.**

@@ -1,10 +1,14 @@
 ---
-title: "Can You Dish Soap for Car Wash: Shocking Truth Revealed!"
-description: "Are you wondering if you can use dish soap for your car wash? It’s a question many car owners ask because dish soap is easy to find and seems perfect for cleani"
+title: 'Can You Dish Soap for Car Wash: Shocking Truth Revealed!'
+description: Are you wondering if you can use dish soap for your car wash? It’s a
+  question many car owners ask because dish soap is easy to find and seems perfect
+  for cleani
 pubDate: 2025-10-14
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-dish-soap-for-car-wash&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wash Costs and Etiquette
+heroImage: https://tse1.mm.bing.net/th?q=can-you-dish-soap-for-car-wash&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Are you wondering if you can use dish soap for your car wash? It’s a question many car owners ask because dish soap is easy to find and seems perfect for cleaning.**

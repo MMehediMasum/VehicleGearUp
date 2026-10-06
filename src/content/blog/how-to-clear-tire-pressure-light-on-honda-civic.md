@@ -1,10 +1,14 @@
 ---
-title: "How to Clear Tire Pressure Light on Honda Civic: Quick Fix Guide"
-description: "Is your Honda Civic’s tire pressure light glowing on the dashboard? That little warning can be distracting and even stressful, especially if you’re not sure wha"
+title: 'How to Clear Tire Pressure Light on Honda Civic: Quick Fix Guide'
+description: Is your Honda Civic’s tire pressure light glowing on the dashboard? That
+  little warning can be distracting and even stressful, especially if you’re not sure
+  wha
 pubDate: 2025-09-26
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clear-tire-pressure-light-on-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Tire Pressure Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clear-tire-pressure-light-on-honda-civic&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Is your Honda Civic’s tire pressure light glowing on the dashboard? That little warning can be distracting and even stressful, especially if you’re not sure what it means or how to fix it.**

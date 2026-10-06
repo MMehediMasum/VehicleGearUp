@@ -1,10 +1,14 @@
 ---
-title: "Best Hard Wired GPS Tracker for Car: Ultimate Power and Precision Guide"
-description: "Choosing the best hard wired GPS tracker for your car improves safety and tracking reliability. These devices offer continuous power without needing frequent re"
+title: 'Best Hard Wired GPS Tracker for Car: Ultimate Power and Precision Guide'
+description: Choosing the best hard wired GPS tracker for your car improves safety
+  and tracking reliability. These devices offer continuous power without needing frequent
+  re
 pubDate: 2026-06-10
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-hard-wired-gps-tracker-for-car&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- GPS Trackers for Cars
+heroImage: https://tse1.mm.bing.net/th?q=best-hard-wired-gps-tracker-for-car&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **Choosing the best hard wired GPS tracker for your car improves safety and tracking reliability. These devices offer continuous power without needing frequent recharges.**

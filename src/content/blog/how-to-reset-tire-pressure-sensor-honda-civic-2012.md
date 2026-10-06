@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Tire Pressure Sensor Honda Civic 2012: Quick Guide"
-description: "If you’re driving your 2012 Honda Civic and notice the tire pressure warning light staying on, it can be frustrating and confusing. You might wonder what’s wron"
+title: 'How to Reset Tire Pressure Sensor Honda Civic 2012: Quick Guide'
+description: If you’re driving your 2012 Honda Civic and notice the tire pressure
+  warning light staying on, it can be frustrating and confusing. You might wonder
+  what’s wron
 pubDate: 2025-10-18
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-tire-pressure-sensor-honda-civic-2012&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Checking Tire Pressure
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-tire-pressure-sensor-honda-civic-2012&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **If you’re driving your 2012 Honda Civic and notice the tire pressure warning light staying on, it can be frustrating and confusing. You might wonder what’s wrong and how to fix it quickly.**

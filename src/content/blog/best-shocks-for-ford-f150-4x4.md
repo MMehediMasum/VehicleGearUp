@@ -1,10 +1,14 @@
 ---
-title: "Best Shocks for Ford F150 4X4: Top Picks for Ultimate Suspension Performance"
-description: "Choosing the best shocks for your Ford F150 4X4 improves ride quality and off-road performance. Quality shocks reduce bumps and keep your truck stable on rough "
+title: 'Best Shocks for Ford F150 4X4: Top Picks for Ultimate Suspension Performance'
+description: 'Choosing the best shocks for your Ford F150 4X4 improves ride quality
+  and off-road performance. Quality shocks reduce bumps and keep your truck stable
+  on rough '
 pubDate: 2026-06-22
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-shocks-for-ford-f150-4x4&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Silverado and Sierra Shocks
+heroImage: https://tse1.mm.bing.net/th?q=best-shocks-for-ford-f150-4x4&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Choosing the best shocks for your Ford F150 4X4 improves ride quality and off-road performance. Quality shocks reduce bumps and keep your truck stable on rough roads.**

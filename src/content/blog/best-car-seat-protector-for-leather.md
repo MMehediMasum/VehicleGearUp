@@ -1,10 +1,14 @@
 ---
-title: "Best Car Seat Protector for Leather: Ultimate Padding and Waterproof Protection"
-description: "Protecting leather car seats from scratches, spills, and wear is essential for every vehicle owner. A good car seat protector keeps your leather seats clean and"
+title: 'Best Car Seat Protector for Leather: Ultimate Padding and Waterproof Protection'
+description: Protecting leather car seats from scratches, spills, and wear is essential
+  for every vehicle owner. A good car seat protector keeps your leather seats clean
+  and
 pubDate: 2026-07-18
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-seat-protector-for-leather&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Seat Protectors and Cushions
+heroImage: https://tse1.mm.bing.net/th?q=best-car-seat-protector-for-leather&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Protecting leather car seats from scratches, spills, and wear is essential for every vehicle owner. A good car seat protector keeps your leather seats clean and damage-free.**

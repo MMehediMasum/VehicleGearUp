@@ -1,10 +1,14 @@
 ---
-title: "How to Change Windshield Wipers on a Nissan Altima: Quick Guide"
-description: "If your Nissan Altima’s windshield wipers are streaking or skipping, it’s time for a change. But don’t worry—replacing them is easier than you might think. In t"
+title: 'How to Change Windshield Wipers on a Nissan Altima: Quick Guide'
+description: If your Nissan Altima’s windshield wipers are streaking or skipping,
+  it’s time for a change. But don’t worry—replacing them is easier than you might
+  think. In t
 pubDate: 2026-03-21
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-windshield-wipers-on-a-nissan-altima&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Windshield Wipers
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-windshield-wipers-on-a-nissan-altima&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If your Nissan Altima’s windshield wipers are streaking or skipping, it’s time for a change. But don’t worry—replacing them is easier than you might think.**

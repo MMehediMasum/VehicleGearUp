@@ -1,10 +1,14 @@
 ---
-title: "How to Replace Battery for Mazda Cx 5 Key 2025: Quick & Easy Guide"
-description: "Is your Mazda CX-5 key not working like it used to? A weak or dead battery could be the reason you’re struggling to unlock or start your vehicle. Replacing the "
+title: 'How to Replace Battery for Mazda Cx 5 Key 2025: Quick & Easy Guide'
+description: 'Is your Mazda CX-5 key not working like it used to? A weak or dead battery
+  could be the reason you’re struggling to unlock or start your vehicle. Replacing
+  the '
 pubDate: 2026-05-01
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-replace-battery-for-mazda-cx-5-key-2022&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Key Fob Battery Replacement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-replace-battery-for-mazda-cx-5-key-2022&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **Is your Mazda CX-5 key not working like it used to? A weak or dead battery could be the reason you’re struggling to unlock or start your vehicle.**

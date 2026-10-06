@@ -1,10 +1,14 @@
 ---
-title: "Best 15 Inch Subwoofer for Car: Top Powerful Picks for Deep Bass"
-description: "Choosing the best 15 inch subwoofer for your car can greatly improve your music experience. A powerful subwoofer delivers deep, rich bass that fills your vehicl"
+title: 'Best 15 Inch Subwoofer for Car: Top Powerful Picks for Deep Bass'
+description: Choosing the best 15 inch subwoofer for your car can greatly improve
+  your music experience. A powerful subwoofer delivers deep, rich bass that fills
+  your vehicl
 pubDate: 2026-06-19
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-15-inch-subwoofer-for-car&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Entertainment Systems
+heroImage: https://tse1.mm.bing.net/th?q=best-15-inch-subwoofer-for-car&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Choosing the best 15 inch subwoofer for your car can greatly improve your music experience. A powerful subwoofer delivers deep, rich bass that fills your vehicle.**

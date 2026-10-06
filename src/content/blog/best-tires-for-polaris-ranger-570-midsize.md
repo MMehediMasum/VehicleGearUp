@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Polaris Ranger 570 Midsize: Top All-Terrain Picks"
-description: "Choosing the best tires for your Polaris Ranger 570 Midsize improves ride quality and safety. The right tires handle different terrains and last longer. Polaris"
+title: 'Best Tires for Polaris Ranger 570 Midsize: Top All-Terrain Picks'
+description: Choosing the best tires for your Polaris Ranger 570 Midsize improves
+  ride quality and safety. The right tires handle different terrains and last longer.
+  Polaris
 pubDate: 2026-01-08
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-polaris-ranger-570-midsize&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- ATV Tires and Speed
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-polaris-ranger-570-midsize&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best tires for your Polaris Ranger 570 Midsize improves ride quality and safety. The right tires handle different terrains and last longer.**

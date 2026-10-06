@@ -1,10 +1,14 @@
 ---
-title: "Best Cleaner for Car Interior Carpet: Top Picks for Deep Cleaning & Odor Removal"
-description: "Keeping your car interior carpet clean improves your driving experience and maintains your vehicle’s value. Choosing the best cleaner helps remove stains, dirt,"
+title: 'Best Cleaner for Car Interior Carpet: Top Picks for Deep Cleaning & Odor Removal'
+description: Keeping your car interior carpet clean improves your driving experience
+  and maintains your vehicle’s value. Choosing the best cleaner helps remove stains,
+  dirt,
 pubDate: 2026-07-03
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cleaner-for-car-interior-carpet&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Interior and Glass Cleaners
+heroImage: https://tse1.mm.bing.net/th?q=best-cleaner-for-car-interior-carpet&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Keeping your car interior carpet clean improves your driving experience and maintains your vehicle’s value. Choosing the best cleaner helps remove stains, dirt, and odors quickly and easily.**

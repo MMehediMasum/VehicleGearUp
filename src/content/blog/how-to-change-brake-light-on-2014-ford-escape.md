@@ -1,10 +1,14 @@
 ---
-title: "How to Change Brake Light on 2014 Ford Escape: Quick & Easy Guide"
-description: "Is your 2014 Ford Escape’s brake light not working? Changing it yourself is easier than you might think. You don’t need to spend money at the shop or wait for a"
+title: 'How to Change Brake Light on 2014 Ford Escape: Quick & Easy Guide'
+description: Is your 2014 Ford Escape’s brake light not working? Changing it yourself
+  is easier than you might think. You don’t need to spend money at the shop or wait
+  for a
 pubDate: 2026-05-10
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-brake-light-on-2014-ford-escape&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Interior Light Settings
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-brake-light-on-2014-ford-escape&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your 2014 Ford Escape’s brake light not working? Changing it yourself is easier than you might think.**

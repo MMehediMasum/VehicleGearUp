@@ -1,10 +1,14 @@
 ---
-title: "How to Change Rear Turn Signal Bulb F150: Easy Step-by-Step Guide"
-description: "Is your Ford F150’s rear turn signal not working? Changing that bulb might seem tricky, but it’s easier than you think. If you want to fix it yourself and save "
+title: 'How to Change Rear Turn Signal Bulb F150: Easy Step-by-Step Guide'
+description: 'Is your Ford F150’s rear turn signal not working? Changing that bulb
+  might seem tricky, but it’s easier than you think. If you want to fix it yourself
+  and save '
 pubDate: 2025-12-13
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-rear-turn-signal-bulb-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Interior Light Settings
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-rear-turn-signal-bulb-f150&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your Ford F150’s rear turn signal not working? Changing that bulb might seem tricky, but it’s easier than you think.**

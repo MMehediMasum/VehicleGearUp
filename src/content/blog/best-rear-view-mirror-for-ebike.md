@@ -1,10 +1,14 @@
 ---
-title: "Best Rear View Mirror for Ebike: Motoforti Phone Mount Holder Review"
-description: "Choosing the best rear view mirror for your ebike improves safety and comfort during rides. A good mirror lets you see traffic behind without turning your head."
+title: 'Best Rear View Mirror for Ebike: Motoforti Phone Mount Holder Review'
+description: Choosing the best rear view mirror for your ebike improves safety and
+  comfort during rides. A good mirror lets you see traffic behind without turning
+  your head.
 pubDate: 2025-10-09
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rear-view-mirror-for-ebike&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Electric and Mountain Bikes
+heroImage: https://tse1.mm.bing.net/th?q=best-rear-view-mirror-for-ebike&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best rear view mirror for your ebike improves safety and comfort during rides. A good mirror lets you see traffic behind without turning your head.**

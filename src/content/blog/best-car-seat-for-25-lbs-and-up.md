@@ -1,10 +1,14 @@
 ---
-title: "Best Car Seat for 25 Lbs And Up: Top Convertible & Booster Picks"
-description: "Choosing the best car seat for kids 25 lbs and up ensures safety and comfort during every ride. This guide covers top options trusted by many parents. Car seats"
+title: 'Best Car Seat for 25 Lbs And Up: Top Convertible & Booster Picks'
+description: Choosing the best car seat for kids 25 lbs and up ensures safety and
+  comfort during every ride. This guide covers top options trusted by many parents.
+  Car seats
 pubDate: 2025-10-26
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-seat-for-25-lbs-and-up&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Choosing Child Car Seats
+heroImage: https://tse1.mm.bing.net/th?q=best-car-seat-for-25-lbs-and-up&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best car seat for kids 25 lbs and up ensures safety and comfort during every ride. This guide covers top options trusted by many parents.**

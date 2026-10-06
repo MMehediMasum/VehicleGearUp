@@ -1,10 +1,14 @@
 ---
-title: "Can I Wash My Car Engine at the Carwash: Expert Tips Revealed"
-description: "Have you ever wondered if you can safely wash your car engine at the carwash? It’s a question many car owners ask but don’t always get a clear answer to. Your e"
+title: 'Can I Wash My Car Engine at the Carwash: Expert Tips Revealed'
+description: Have you ever wondered if you can safely wash your car engine at the
+  carwash? It’s a question many car owners ask but don’t always get a clear answer
+  to. Your e
 pubDate: 2026-04-26
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-i-wash-my-car-engine-at-the-carwash&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- How Car Engines Work
+heroImage: https://tse1.mm.bing.net/th?q=can-i-wash-my-car-engine-at-the-carwash&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you ever wondered if you can safely wash your car engine at the carwash? It’s a question many car owners ask but don’t always get a clear answer to.**

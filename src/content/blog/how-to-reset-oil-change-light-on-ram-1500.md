@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Change Light on Ram 1500: Quick & Easy Guide"
-description: "Your Ram 1500’s oil change light just came on, and you’re wondering how to reset it. It’s a small light, but it can be distracting and may keep you from knowing"
+title: 'How to Reset Oil Change Light on Ram 1500: Quick & Easy Guide'
+description: Your Ram 1500’s oil change light just came on, and you’re wondering how
+  to reset it. It’s a small light, but it can be distracting and may keep you from
+  knowing
 pubDate: 2026-04-25
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-change-light-on-ram-1500&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Oil Change Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-change-light-on-ram-1500&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Your Ram 1500’s oil change light just came on, and you’re wondering how to reset it. It’s a small light, but it can be distracting and may keep you from knowing when your next oil change is due.**

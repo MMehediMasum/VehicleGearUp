@@ -1,10 +1,14 @@
 ---
-title: "Is the Honda Civic All Wheel Drive: Ultimate Traction Explained"
-description: "Are you wondering if the Honda Civic comes with all-wheel drive? If you live in a place with changing weather or rough roads, knowing this can make a big differ"
+title: 'Is the Honda Civic All Wheel Drive: Ultimate Traction Explained'
+description: Are you wondering if the Honda Civic comes with all-wheel drive? If you
+  live in a place with changing weather or rough roads, knowing this can make a big
+  differ
 pubDate: 2025-10-18
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-the-honda-civic-all-wheel-drive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- All Wheel Drive Questions
+heroImage: https://tse1.mm.bing.net/th?q=is-the-honda-civic-all-wheel-drive&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you wondering if the Honda Civic comes with all-wheel drive? If you live in a place with changing weather or rough roads, knowing this can make a big difference in your driving experience.**

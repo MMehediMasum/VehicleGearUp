@@ -1,10 +1,14 @@
 ---
-title: "Best Sander for Auto Body Work: Top Picks for Smooth Finishes"
-description: "Choosing the best sander for auto body work makes a big difference in your project’s finish. The right sander helps smooth surfaces quickly and cleanly. Auto bo"
+title: 'Best Sander for Auto Body Work: Top Picks for Smooth Finishes'
+description: Choosing the best sander for auto body work makes a big difference in
+  your project’s finish. The right sander helps smooth surfaces quickly and cleanly.
+  Auto bo
 pubDate: 2026-06-19
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-sander-for-auto-body-work&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Vinyl Wraps and Body Work
+heroImage: https://tse1.mm.bing.net/th?q=best-sander-for-auto-body-work&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best sander for auto body work makes a big difference in your project’s finish. The right sander helps smooth surfaces quickly and cleanly.**

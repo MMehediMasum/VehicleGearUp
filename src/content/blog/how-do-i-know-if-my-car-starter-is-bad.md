@@ -1,10 +1,14 @@
 ---
-title: "How Do I Know If My Car Starter is Bad: Top Signs to Watch For"
-description: "Have you ever turned your key or pushed the start button, only to hear nothing or a strange clicking sound? That moment of silence or odd noise can be frustrati"
+title: 'How Do I Know If My Car Starter is Bad: Top Signs to Watch For'
+description: Have you ever turned your key or pushed the start button, only to hear
+  nothing or a strange clicking sound? That moment of silence or odd noise can be
+  frustrati
 pubDate: 2025-12-13
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-i-know-if-my-car-starter-is-bad&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Starter Problems
+heroImage: https://tse1.mm.bing.net/th?q=how-do-i-know-if-my-car-starter-is-bad&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you ever turned your key or pushed the start button, only to hear nothing or a strange clicking sound? That moment of silence or odd noise can be frustrating and confusing.**

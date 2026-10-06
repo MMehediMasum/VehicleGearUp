@@ -1,10 +1,14 @@
 ---
-title: "Why Isn'T My Car Heater Blowing Hot Air: Top Causes & Fixes"
-description: "Is your car heater refusing to blow hot air just when you need it most? It’s frustrating to sit in a cold car during chilly days, wondering why the warmth isn’t"
+title: 'Why Isn''T My Car Heater Blowing Hot Air: Top Causes & Fixes'
+description: Is your car heater refusing to blow hot air just when you need it most?
+  It’s frustrating to sit in a cold car during chilly days, wondering why the warmth
+  isn’t
 pubDate: 2026-01-18
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-isnt-my-car-heater-blowing-hot-air&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Heater Not Working
+heroImage: https://tse1.mm.bing.net/th?q=why-isnt-my-car-heater-blowing-hot-air&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your car heater refusing to blow hot air just when you need it most? It’s frustrating to sit in a cold car during chilly days, wondering why the warmth isn’t coming through.**

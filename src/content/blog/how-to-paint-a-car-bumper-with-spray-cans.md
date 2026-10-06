@@ -1,10 +1,14 @@
 ---
-title: "How to Paint a Car Bumper With Spray Cans: Easy Step-by-Step Guide"
-description: "Is your car bumper looking dull or scratched? You don’t need to spend a fortune at the body shop to fix it. Painting your car bumper with spray cans is easier t"
+title: 'How to Paint a Car Bumper With Spray Cans: Easy Step-by-Step Guide'
+description: Is your car bumper looking dull or scratched? You don’t need to spend
+  a fortune at the body shop to fix it. Painting your car bumper with spray cans is
+  easier t
 pubDate: 2025-10-16
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-a-car-bumper-with-spray-cans&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Bumper Paint and Sticker Removal
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-a-car-bumper-with-spray-cans&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Is your car bumper looking dull or scratched? You don’t need to spend a fortune at the body shop to fix it.**

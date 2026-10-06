@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Ford F150 Door Code Without Factory Code: Easy Guide"
-description: "Have you ever found yourself locked out of your Ford F150 because you forgot the door code? It’s frustrating, especially when you don’t have the factory code ha"
+title: 'How to Reset Ford F150 Door Code Without Factory Code: Easy Guide'
+description: Have you ever found yourself locked out of your Ford F150 because you
+  forgot the door code? It’s frustrating, especially when you don’t have the factory
+  code ha
 pubDate: 2026-02-10
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-ford-f150-door-code-without-factory-code&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Door Codes and Lock Lube
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-ford-f150-door-code-without-factory-code&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **Have you ever found yourself locked out of your Ford F150 because you forgot the door code? It’s frustrating, especially when you don’t have the factory code handy.**

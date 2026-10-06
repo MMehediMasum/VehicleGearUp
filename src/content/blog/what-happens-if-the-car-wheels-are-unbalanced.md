@@ -1,10 +1,14 @@
 ---
-title: "What Happens If the Car Wheels are Unbalanced: Risks & Solutions"
-description: "Have you ever felt your steering wheel shake while driving or noticed uneven tire wear on your car? These could be signs that your car wheels are unbalanced. Bu"
+title: 'What Happens If the Car Wheels are Unbalanced: Risks & Solutions'
+description: Have you ever felt your steering wheel shake while driving or noticed
+  uneven tire wear on your car? These could be signs that your car wheels are unbalanced.
+  Bu
 pubDate: 2025-11-02
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-happens-if-the-car-wheels-are-unbalanced&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jeep Wheels and Rims
+heroImage: https://tse1.mm.bing.net/th?q=what-happens-if-the-car-wheels-are-unbalanced&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Have you ever felt your steering wheel shake while driving or noticed uneven tire wear on your car? These could be signs that your car wheels are unbalanced.**

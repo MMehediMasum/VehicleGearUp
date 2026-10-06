@@ -1,10 +1,13 @@
 ---
-title: "Best Tires for Toyota Tundra: Top Picks for Ultimate Performance"
-description: "Choosing the best tires for your 2021 Toyota Tundra ensures safety, performance, and comfort on every drive. Tires impact handling, fuel efficiency, and ride qu"
+title: 'Best Tires for Toyota Tundra: Top Picks for Ultimate Performance'
+description: Choosing the best tires for your 2021 Toyota Tundra ensures safety, performance,
+  and comfort on every drive. Tires impact handling, fuel efficiency, and ride qu
 pubDate: 2025-12-22
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-2021-toyota-tundra&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-2021-toyota-tundra&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your 2021 Toyota Tundra ensures safety, performance, and comfort on every drive. Tires impact handling, fuel efficiency, and ride quality significantly.**

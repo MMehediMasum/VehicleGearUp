@@ -1,10 +1,14 @@
 ---
-title: "How Do I Recondition a Car Battery: Easy Steps to Save Money"
-description: "Is your car battery leaving you stranded or struggling to start your engine? Before rushing to buy a new one, what if you could bring your old battery back to l"
+title: 'How Do I Recondition a Car Battery: Easy Steps to Save Money'
+description: Is your car battery leaving you stranded or struggling to start your
+  engine? Before rushing to buy a new one, what if you could bring your old battery
+  back to l
 pubDate: 2026-04-12
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-i-recondition-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Fixing Battery Drain
+heroImage: https://tse1.mm.bing.net/th?q=how-do-i-recondition-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your car battery leaving you stranded or struggling to start your engine? Before rushing to buy a new one, what if you could bring your old battery back to life?**

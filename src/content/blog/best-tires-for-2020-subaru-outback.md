@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Subaru Outback: Top Picks for Ultimate Performance and Safety"
-description: "Choosing the best tires for a 2020 Subaru Outback is key to safe and smooth driving. The right tires improve handling, comfort, and fuel efficiency. The 2020 Su"
+title: 'Best Tires for Subaru Outback: Top Picks for Ultimate Performance and Safety'
+description: Choosing the best tires for a 2020 Subaru Outback is key to safe and
+  smooth driving. The right tires improve handling, comfort, and fuel efficiency.
+  The 2020 Su
 pubDate: 2026-01-03
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-2020-subaru-outback&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Subaru and Mazda Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-2020-subaru-outback&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for a 2020 Subaru Outback is key to safe and smooth driving. The right tires improve handling, comfort, and fuel efficiency.**

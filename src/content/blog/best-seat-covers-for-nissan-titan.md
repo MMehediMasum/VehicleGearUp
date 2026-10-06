@@ -1,10 +1,14 @@
 ---
-title: "Best Seat Covers for Nissan Titan: Durable, Waterproof, and Custom Fit Options"
-description: "Protecting your Nissan Titan’s seats enhances comfort and keeps your truck looking new. The right seat covers offer durability, style, and easy maintenance. Cho"
+title: 'Best Seat Covers for Nissan Titan: Durable, Waterproof, and Custom Fit Options'
+description: Protecting your Nissan Titan’s seats enhances comfort and keeps your
+  truck looking new. The right seat covers offer durability, style, and easy maintenance.
+  Cho
 pubDate: 2026-07-19
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-seat-covers-for-nissan-titan&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Nissan and Fabric Seat Covers
+heroImage: https://tse1.mm.bing.net/th?q=best-seat-covers-for-nissan-titan&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Protecting your Nissan Titan’s seats enhances comfort and keeps your truck looking new. The right seat covers offer durability, style, and easy maintenance.**

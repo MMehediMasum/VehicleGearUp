@@ -1,10 +1,14 @@
 ---
-title: "Does Ford Escape Have Problem With Cv Joint? Truth Revealed!"
-description: "Are you worried that your Ford Escape might have a problem with its CV joint? You’re not alone. Many Ford Escape owners have asked this question because the CV "
+title: Does Ford Escape Have Problem With Cv Joint? Truth Revealed!
+description: 'Are you worried that your Ford Escape might have a problem with its
+  CV joint? You’re not alone. Many Ford Escape owners have asked this question because
+  the CV '
 pubDate: 2026-02-11
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-ford-escape-have-problem-with-cv-joint&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Model Questions
+heroImage: https://tse1.mm.bing.net/th?q=does-ford-escape-have-problem-with-cv-joint&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you worried that your Ford Escape might have a problem with its CV joint? You’re not alone.**

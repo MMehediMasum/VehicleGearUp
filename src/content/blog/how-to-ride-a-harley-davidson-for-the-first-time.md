@@ -1,10 +1,14 @@
 ---
-title: "How to Ride a Harley Davidson for the First Time: Ultimate Guide"
-description: "So, you’re ready to ride a Harley Davidson for the first time. That’s exciting! But maybe you’re feeling a bit nervous too. You want to enjoy the power and free"
+title: 'How to Ride a Harley Davidson for the First Time: Ultimate Guide'
+description: So, you’re ready to ride a Harley Davidson for the first time. That’s
+  exciting! But maybe you’re feeling a bit nervous too. You want to enjoy the power
+  and free
 pubDate: 2025-12-06
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-ride-a-harley-davidson-for-the-first-time&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Ownership Questions
+heroImage: https://tse1.mm.bing.net/th?q=how-to-ride-a-harley-davidson-for-the-first-time&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **So, you’re ready to ride a Harley Davidson for the first time. That’s exciting!**

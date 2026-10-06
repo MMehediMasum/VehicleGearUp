@@ -1,10 +1,14 @@
 ---
-title: "Why Won't My Car Battery Hold a Charge: Expert Troubleshooting Tips"
-description: "Is your car battery leaving you stranded when you least expect it? You turn the key, but the engine won’t start. It’s frustrating, right? You might wonder, “Why"
+title: 'Why Won''t My Car Battery Hold a Charge: Expert Troubleshooting Tips'
+description: Is your car battery leaving you stranded when you least expect it? You
+  turn the key, but the engine won’t start. It’s frustrating, right? You might wonder,
+  “Why
 pubDate: 2025-10-17
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-wont-my-car-battery-hold-a-charge&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Charging a Car Battery
+heroImage: https://tse1.mm.bing.net/th?q=why-wont-my-car-battery-hold-a-charge&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your car battery leaving you stranded when you least expect it? You turn the key, but the engine won’t start.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Put Ford Explorer in Neutral With Dead Battery: Easy Steps"
-description: "Have you ever found yourself stuck with a dead battery in your Ford Explorer and wondered how to move it without power? Knowing how to put your Ford Explorer in"
+title: 'How to Put Ford Explorer in Neutral With Dead Battery: Easy Steps'
+description: Have you ever found yourself stuck with a dead battery in your Ford Explorer
+  and wondered how to move it without power? Knowing how to put your Ford Explorer
+  in
 pubDate: 2026-04-14
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-put-ford-explorer-in-neutral-with-dead-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Neutral With Dead Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-put-ford-explorer-in-neutral-with-dead-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever found yourself stuck with a dead battery in your Ford Explorer and wondered how to move it without power? Knowing how to put your Ford Explorer in neutral when the battery is dead can save you time, effort, and even money.**

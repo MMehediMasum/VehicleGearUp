@@ -1,10 +1,14 @@
 ---
-title: "Does Mazda CX-50 Have Heated Steering Wheel? Ultimate Comfort Guide"
-description: "Are you curious if the Mazda CX-50 comes with a heated steering wheel to keep your hands warm during chilly drives? Imagine driving on a cold morning and feelin"
+title: Does Mazda CX-50 Have Heated Steering Wheel? Ultimate Comfort Guide
+description: Are you curious if the Mazda CX-50 comes with a heated steering wheel
+  to keep your hands warm during chilly drives? Imagine driving on a cold morning
+  and feelin
 pubDate: 2025-10-13
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-mazda-cx-50-have-heated-steering-wheel&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Steering Wheel Problems and Covers
+heroImage: https://tse1.mm.bing.net/th?q=does-mazda-cx-50-have-heated-steering-wheel&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Are you curious if the Mazda CX-50 comes with a heated steering wheel to keep your hands warm during chilly drives? Imagine driving on a cold morning and feeling the comforting warmth right where you need it most.**

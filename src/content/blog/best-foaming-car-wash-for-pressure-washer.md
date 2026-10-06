@@ -1,10 +1,13 @@
 ---
-title: "Best Foaming Car Wash for Pressure Washer: Top Picks for Sparkling Shine"
-description: "Finding the best foaming car wash for your pressure washer can make cleaning easier and more effective. A quality foaming soap lifts dirt and grime while protec"
+title: 'Best Foaming Car Wash for Pressure Washer: Top Picks for Sparkling Shine'
+description: Finding the best foaming car wash for your pressure washer can make cleaning
+  easier and more effective. A quality foaming soap lifts dirt and grime while protec
 pubDate: 2026-07-06
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-foaming-car-wash-for-pressure-washer&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wash Soap Picks
+heroImage: https://tse1.mm.bing.net/th?q=best-foaming-car-wash-for-pressure-washer&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Finding the best foaming car wash for your pressure washer can make cleaning easier and more effective. A quality foaming soap lifts dirt and grime while protecting your vehicle’s paint.**

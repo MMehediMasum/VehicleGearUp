@@ -1,10 +1,13 @@
 ---
-title: "Best Lube for Car Door Locks: Top Graphite & Lithium Lubricants Reviewed"
-description: "Car door locks need proper lubrication to work smoothly and last longer. Choosing the best lube prevents sticking, freezing, and wear. Locks face dust, moisture"
+title: 'Best Lube for Car Door Locks: Top Graphite & Lithium Lubricants Reviewed'
+description: Car door locks need proper lubrication to work smoothly and last longer.
+  Choosing the best lube prevents sticking, freezing, and wear. Locks face dust, moisture
 pubDate: 2026-06-11
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lube-for-car-door-locks&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Door Codes and Lock Lube
+heroImage: https://tse1.mm.bing.net/th?q=best-lube-for-car-door-locks&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **Car door locks need proper lubrication to work smoothly and last longer. Choosing the best lube prevents sticking, freezing, and wear.**

@@ -1,10 +1,15 @@
 ---
-title: "How to Fix Service Electronic Stability Control Jeep Grand Cherokee: Easy Steps"
-description: "Is your Jeep Grand Cherokee showing the \"Service Electronic Stability Control\" warning? This message can be frustrating and worrying, especially when you rely o"
+title: 'How to Fix Service Electronic Stability Control Jeep Grand Cherokee: Easy
+  Steps'
+description: Is your Jeep Grand Cherokee showing the "Service Electronic Stability
+  Control" warning? This message can be frustrating and worrying, especially when
+  you rely o
 pubDate: 2026-05-03
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-service-electronic-stability-control-jeep-grand-cherokee&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Dashboard Lights and Noises
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-service-electronic-stability-control-jeep-grand-cherokee&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your Jeep Grand Cherokee showing the "Service Electronic Stability Control" warning? This message can be frustrating and worrying, especially when you rely on your vehicle every day.**

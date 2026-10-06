@@ -1,10 +1,14 @@
 ---
-title: "Best Semi Truck Engine for Fuel Economy: Top Additives and Oils Reviewed"
-description: "Choosing the best semi truck engine for fuel economy saves money and reduces fuel use. Efficient engines keep trucks running longer and cut costs on long hauls."
+title: 'Best Semi Truck Engine for Fuel Economy: Top Additives and Oils Reviewed'
+description: Choosing the best semi truck engine for fuel economy saves money and
+  reduces fuel use. Efficient engines keep trucks running longer and cut costs on
+  long hauls.
 pubDate: 2025-11-17
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-semi-truck-engine-for-fuel-economy&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Carburetor and Fuel Injection Kits
+heroImage: https://tse1.mm.bing.net/th?q=best-semi-truck-engine-for-fuel-economy&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best semi truck engine for fuel economy saves money and reduces fuel use. Efficient engines keep trucks running longer and cut costs on long hauls.**

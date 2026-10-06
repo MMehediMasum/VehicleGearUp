@@ -1,10 +1,14 @@
 ---
-title: "Why am I Constantly Smelling Car Exhaust Fumes: Shocking Causes Explained"
-description: "Have you ever noticed a strange smell of car exhaust fumes lingering around you, even when you’re nowhere near busy streets? It can be unsettling and confusing."
+title: 'Why am I Constantly Smelling Car Exhaust Fumes: Shocking Causes Explained'
+description: Have you ever noticed a strange smell of car exhaust fumes lingering
+  around you, even when you’re nowhere near busy streets? It can be unsettling and
+  confusing.
 pubDate: 2026-03-06
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-am-i-constantly-smelling-car-exhaust-fumes&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Exhaust Systems
+heroImage: https://tse1.mm.bing.net/th?q=why-am-i-constantly-smelling-car-exhaust-fumes&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you ever noticed a strange smell of car exhaust fumes lingering around you, even when you’re nowhere near busy streets? It can be unsettling and confusing.**

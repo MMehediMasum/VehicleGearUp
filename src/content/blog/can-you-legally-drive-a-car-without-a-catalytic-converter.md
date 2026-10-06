@@ -1,10 +1,14 @@
 ---
-title: "Can You Legally Drive a Car Without a Catalytic Converter? Know Now!"
-description: "Have you ever wondered if you can legally drive your car without a catalytic converter? Maybe your converter is broken, or you’re thinking about removing it to "
+title: Can You Legally Drive a Car Without a Catalytic Converter? Know Now!
+description: 'Have you ever wondered if you can legally drive your car without a catalytic
+  converter? Maybe your converter is broken, or you’re thinking about removing it
+  to '
 pubDate: 2025-12-10
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-legally-drive-a-car-without-a-catalytic-converter&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Catalytic Converter Questions
+heroImage: https://tse1.mm.bing.net/th?q=can-you-legally-drive-a-car-without-a-catalytic-converter&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you ever wondered if you can legally drive your car without a catalytic converter? Maybe your converter is broken, or you’re thinking about removing it to save money or boost performance.**

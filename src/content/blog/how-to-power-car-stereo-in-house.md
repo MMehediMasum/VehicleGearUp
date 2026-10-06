@@ -1,10 +1,14 @@
 ---
-title: "How to Power Car Stereo in House: Easy DIY Guide for Music Fans"
-description: "Have you ever wished you could enjoy the powerful sound of your car stereo right inside your home? Imagine filling your room with crisp, clear music without buy"
+title: 'How to Power Car Stereo in House: Easy DIY Guide for Music Fans'
+description: Have you ever wished you could enjoy the powerful sound of your car stereo
+  right inside your home? Imagine filling your room with crisp, clear music without
+  buy
 pubDate: 2025-09-22
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-power-car-stereo-in-house&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Stereo Installation Help
+heroImage: https://tse1.mm.bing.net/th?q=how-to-power-car-stereo-in-house&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Have you ever wished you could enjoy the powerful sound of your car stereo right inside your home? Imagine filling your room with crisp, clear music without buying a new, expensive sound system.**

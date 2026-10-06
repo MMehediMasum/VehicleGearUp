@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Maf Sensor Toyota Corolla: Easy Steps for Peak Performance"
-description: "Is your Toyota Corolla not running as smoothly as it used to? One common culprit could be a dirty MAF sensor. This small but mighty part plays a big role in you"
+title: 'How to Clean Maf Sensor Toyota Corolla: Easy Steps for Peak Performance'
+description: Is your Toyota Corolla not running as smoothly as it used to? One common
+  culprit could be a dirty MAF sensor. This small but mighty part plays a big role
+  in you
 pubDate: 2026-03-21
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-maf-sensor-toyota-corolla&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Windshield and Mirror Repair
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-maf-sensor-toyota-corolla&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Is your Toyota Corolla not running as smoothly as it used to? One common culprit could be a dirty MAF sensor.**

@@ -1,10 +1,14 @@
 ---
-title: "Are Harley Davidson Motorcycles Made in America: Truth Revealed"
-description: "Have you ever wondered if your Harley Davidson motorcycle is truly made in America? When you think of Harley, you probably picture rugged roads, freedom, and cl"
+title: 'Are Harley Davidson Motorcycles Made in America: Truth Revealed'
+description: Have you ever wondered if your Harley Davidson motorcycle is truly made
+  in America? When you think of Harley, you probably picture rugged roads, freedom,
+  and cl
 pubDate: 2025-08-31
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-harley-davidson-motorcycles-made-in-america&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Ownership Questions
+heroImage: https://tse1.mm.bing.net/th?q=are-harley-davidson-motorcycles-made-in-america&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Have you ever wondered if your Harley Davidson motorcycle is truly made in America? When you think of Harley, you probably picture rugged roads, freedom, and classic American spirit.**

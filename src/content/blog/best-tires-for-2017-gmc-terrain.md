@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for GMC Terrain: Top All-Season & All-Terrain Picks"
-description: "Choosing the best tires for your 2017 GMC Terrain improves safety and driving comfort. The right tires fit your vehicle and driving needs perfectly. Your GMC Te"
+title: 'Best Tires for GMC Terrain: Top All-Season & All-Terrain Picks'
+description: Choosing the best tires for your 2017 GMC Terrain improves safety and
+  driving comfort. The right tires fit your vehicle and driving needs perfectly. Your
+  GMC Te
 pubDate: 2025-12-21
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-2017-gmc-terrain&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Chevy and GMC Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-2017-gmc-terrain&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your 2017 GMC Terrain improves safety and driving comfort. The right tires fit your vehicle and driving needs perfectly.**

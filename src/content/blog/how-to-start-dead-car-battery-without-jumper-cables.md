@@ -1,10 +1,14 @@
 ---
-title: "How to Start Dead Car Battery Without Jumper Cables: Quick Hacks"
-description: "Imagine this: You’re ready to head out, but your car won’t start because the battery is dead. You don’t have jumper cables, and calling for help feels like a ha"
+title: 'How to Start Dead Car Battery Without Jumper Cables: Quick Hacks'
+description: 'Imagine this: You’re ready to head out, but your car won’t start because
+  the battery is dead. You don’t have jumper cables, and calling for help feels like
+  a ha'
 pubDate: 2026-05-11
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-start-dead-car-battery-without-jumper-cables&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Starting Without a Key
+heroImage: https://tse1.mm.bing.net/th?q=how-to-start-dead-car-battery-without-jumper-cables&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **Imagine this: You’re ready to head out, but your car won’t start because the battery is dead. You don’t have jumper cables, and calling for help feels like a hassle.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Charge a Car Stereo Capacitor: Quick & Safe Guide"
-description: "If you’re upgrading your car stereo for better sound, you’ve probably heard about using a capacitor to keep the power steady. But how do you safely charge a car"
+title: 'How to Charge a Car Stereo Capacitor: Quick & Safe Guide'
+description: If you’re upgrading your car stereo for better sound, you’ve probably
+  heard about using a capacitor to keep the power steady. But how do you safely charge
+  a car
 pubDate: 2025-10-20
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-charge-a-car-stereo-capacitor&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Choosing Car Stereos
+heroImage: https://tse1.mm.bing.net/th?q=how-to-charge-a-car-stereo-capacitor&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If you’re upgrading your car stereo for better sound, you’ve probably heard about using a capacitor to keep the power steady. But how do you safely charge a car stereo capacitor without risking damage to your equipment or yourself?**

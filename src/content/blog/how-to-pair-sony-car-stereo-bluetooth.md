@@ -1,10 +1,14 @@
 ---
-title: "How to Pair Sony Car Stereo Bluetooth: Quick & Easy Steps"
-description: "You want your music and calls to flow seamlessly through your Sony car stereo, right? Pairing your phone via Bluetooth might seem tricky at first, but it’s simp"
+title: 'How to Pair Sony Car Stereo Bluetooth: Quick & Easy Steps'
+description: You want your music and calls to flow seamlessly through your Sony car
+  stereo, right? Pairing your phone via Bluetooth might seem tricky at first, but
+  it’s simp
 pubDate: 2026-05-22
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-pair-sony-car-stereo-bluetooth&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Bluetooth for Car Stereos
+heroImage: https://tse1.mm.bing.net/th?q=how-to-pair-sony-car-stereo-bluetooth&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **You want your music and calls to flow seamlessly through your Sony car stereo, right? Pairing your phone via Bluetooth might seem tricky at first, but it’s simpler than you think.**

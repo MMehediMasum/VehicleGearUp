@@ -1,10 +1,14 @@
 ---
-title: "How to Install Windshield Wipers Honda Civic: Easy Step-by-Step Guide"
-description: "If your Honda Civic’s windshield wipers aren’t working well, it’s time for a change. Clear visibility is crucial for your safety, especially when rain or snow h"
+title: 'How to Install Windshield Wipers Honda Civic: Easy Step-by-Step Guide'
+description: If your Honda Civic’s windshield wipers aren’t working well, it’s time
+  for a change. Clear visibility is crucial for your safety, especially when rain
+  or snow h
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-install-windshield-wipers-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Windshield Wipers
+heroImage: https://tse1.mm.bing.net/th?q=how-to-install-windshield-wipers-honda-civic&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If your Honda Civic’s windshield wipers aren’t working well, it’s time for a change. Clear visibility is crucial for your safety, especially when rain or snow hits the road.**

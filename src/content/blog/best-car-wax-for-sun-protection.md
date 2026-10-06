@@ -1,10 +1,14 @@
 ---
-title: "Best Car Wax for Sun Protection: Top Durable Waxes for Ultimate Shine"
-description: "Protecting your car’s paint from sun damage is essential for a lasting shine. Choosing the best car wax with sun protection keeps your vehicle looking new longe"
+title: 'Best Car Wax for Sun Protection: Top Durable Waxes for Ultimate Shine'
+description: Protecting your car’s paint from sun damage is essential for a lasting
+  shine. Choosing the best car wax with sun protection keeps your vehicle looking
+  new longe
 pubDate: 2025-09-25
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-wax-for-sun-protection&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wax by Paint Color
+heroImage: https://tse1.mm.bing.net/th?q=best-car-wax-for-sun-protection&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Protecting your car’s paint from sun damage is essential for a lasting shine. Choosing the best car wax with sun protection keeps your vehicle looking new longer.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Heater for a Two Car Garage: Top Safe and Efficient Choices"
 description: "Choosing the best heater for a two-car garage ensures comfort during cold months. The right heater warms the space efficiently and safely. A two-car garage need"
 pubDate: 2026-06-03

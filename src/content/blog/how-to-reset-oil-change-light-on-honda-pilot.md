@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Change Light on Honda Pilot: Quick & Easy Guide"
-description: "Is your Honda Pilot’s oil change light on and you’re not sure how to reset it? You’re in the right place. That little warning can be annoying, but ignoring it w"
+title: 'How to Reset Oil Change Light on Honda Pilot: Quick & Easy Guide'
+description: Is your Honda Pilot’s oil change light on and you’re not sure how to
+  reset it? You’re in the right place. That little warning can be annoying, but ignoring
+  it w
 pubDate: 2026-04-25
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-change-light-on-honda-pilot&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Oil Change Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-change-light-on-honda-pilot&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your Honda Pilot’s oil change light on and you’re not sure how to reset it? You’re in the right place.**

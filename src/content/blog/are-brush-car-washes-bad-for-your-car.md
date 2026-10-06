@@ -1,10 +1,14 @@
 ---
-title: "Are Brush Car Washes Bad for Your Car? Shocking Truth Revealed!"
-description: "Have you ever wondered if those quick brush car washes might be harming your car’s paint? You want your car to look great, but you also want to protect it from "
+title: Are Brush Car Washes Bad for Your Car? Shocking Truth Revealed!
+description: 'Have you ever wondered if those quick brush car washes might be harming
+  your car’s paint? You want your car to look great, but you also want to protect
+  it from '
 pubDate: 2025-09-16
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-brush-car-washes-bad-for-your-car&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Do Car Washes Damage Paint
+heroImage: https://tse1.mm.bing.net/th?q=are-brush-car-washes-bad-for-your-car&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever wondered if those quick brush car washes might be harming your car’s paint? You want your car to look great, but you also want to protect it from scratches and damage.**

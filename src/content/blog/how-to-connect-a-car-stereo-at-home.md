@@ -1,10 +1,14 @@
 ---
-title: "How to Connect a Car Stereo at Home: Easy Step-by-Step Guide"
-description: "Have you ever wanted to enjoy your car stereo’s powerful sound right at home? Connecting your car stereo at home is easier than you might think. Imagine turning"
+title: 'How to Connect a Car Stereo at Home: Easy Step-by-Step Guide'
+description: Have you ever wanted to enjoy your car stereo’s powerful sound right
+  at home? Connecting your car stereo at home is easier than you might think. Imagine
+  turning
 pubDate: 2026-05-27
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-connect-a-car-stereo-at-home&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Stereo Installation Help
+heroImage: https://tse1.mm.bing.net/th?q=how-to-connect-a-car-stereo-at-home&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Have you ever wanted to enjoy your car stereo’s powerful sound right at home? Connecting your car stereo at home is easier than you might think.**

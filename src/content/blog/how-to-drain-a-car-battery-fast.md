@@ -1,10 +1,14 @@
 ---
-title: "How to Drain a Car Battery Fast: Quick and Easy Methods"
-description: "Have you ever needed to drain your car battery fast but didn’t know where to start? Maybe you’re trying to reset your car’s electrical system or prepare your ve"
+title: 'How to Drain a Car Battery Fast: Quick and Easy Methods'
+description: Have you ever needed to drain your car battery fast but didn’t know where
+  to start? Maybe you’re trying to reset your car’s electrical system or prepare your
+  ve
 pubDate: 2026-04-07
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-drain-a-car-battery-fast&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Cold Weather Battery Drain
+heroImage: https://tse1.mm.bing.net/th?q=how-to-drain-a-car-battery-fast&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever needed to drain your car battery fast but didn’t know where to start? Maybe you’re trying to reset your car’s electrical system or prepare your vehicle for storage.**

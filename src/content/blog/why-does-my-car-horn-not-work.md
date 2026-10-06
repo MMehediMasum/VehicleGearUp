@@ -1,10 +1,14 @@
 ---
-title: "Why Does My Car Horn Not Work: Quick Fixes & Expert Tips"
-description: "Have you ever tried to honk your car horn in a tricky situation, only to find it completely silent? It’s frustrating, isn’t it? Your car horn is more than just "
+title: 'Why Does My Car Horn Not Work: Quick Fixes & Expert Tips'
+description: 'Have you ever tried to honk your car horn in a tricky situation, only
+  to find it completely silent? It’s frustrating, isn’t it? Your car horn is more
+  than just '
 pubDate: 2025-12-20
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-does-my-car-horn-not-work&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Horn Problems
+heroImage: https://tse1.mm.bing.net/th?q=why-does-my-car-horn-not-work&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Have you ever tried to honk your car horn in a tricky situation, only to find it completely silent? It’s frustrating, isn’t it?**

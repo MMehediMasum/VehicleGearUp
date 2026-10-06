@@ -1,10 +1,14 @@
 ---
-title: "How to Get in Car Locked Out: Quick and Easy Solutions"
-description: "Getting locked out of your car can happen to anyone, and it always feels frustrating and stressful—especially when you’re in a hurry. If you’re staring at your "
+title: 'How to Get in Car Locked Out: Quick and Easy Solutions'
+description: 'Getting locked out of your car can happen to anyone, and it always feels
+  frustrating and stressful—especially when you’re in a hurry. If you’re staring at
+  your '
 pubDate: 2025-11-17
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-get-in-car-locked-out&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Unlocking With Keys Inside
+heroImage: https://tse1.mm.bing.net/th?q=how-to-get-in-car-locked-out&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **Getting locked out of your car can happen to anyone, and it always feels frustrating and stressful—especially when you’re in a hurry. If you’re staring at your keys through the window, wondering what to do next, you’re not alone.**

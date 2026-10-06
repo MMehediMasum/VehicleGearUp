@@ -1,10 +1,14 @@
 ---
-title: "How to Change Headlight Bulb on 2020 Hyundai Elantra: Easy Step-by-Step Guide"
-description: "Is your 2020 Hyundai Elantra’s headlight bulb flickering or completely out? Driving without a working headlight is not only unsafe but can also get you a ticket"
+title: 'How to Change Headlight Bulb on 2020 Hyundai Elantra: Easy Step-by-Step Guide'
+description: Is your 2020 Hyundai Elantra’s headlight bulb flickering or completely
+  out? Driving without a working headlight is not only unsafe but can also get you
+  a ticket
 pubDate: 2025-09-07
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-headlight-bulb-on-2020-hyundai-elantra&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Headlight Bulbs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-headlight-bulb-on-2020-hyundai-elantra&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your 2020 Hyundai Elantra’s headlight bulb flickering or completely out? Driving without a working headlight is not only unsafe but can also get you a ticket.**

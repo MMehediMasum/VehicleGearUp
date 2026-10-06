@@ -1,10 +1,14 @@
 ---
-title: "How to Fix Electric Parking Brake Problem Honda Civic: Quick Solutions"
-description: "Is your Honda Civic’s electric parking brake acting up and causing you stress? You’re not alone, and fixing this problem might be easier than you think. Imagine"
+title: 'How to Fix Electric Parking Brake Problem Honda Civic: Quick Solutions'
+description: Is your Honda Civic’s electric parking brake acting up and causing you
+  stress? You’re not alone, and fixing this problem might be easier than you think.
+  Imagine
 pubDate: 2026-04-24
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-electric-parking-brake-problem-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Parking Brake Help
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-electric-parking-brake-problem-honda-civic&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your Honda Civic’s electric parking brake acting up and causing you stress? You’re not alone, and fixing this problem might be easier than you think.**

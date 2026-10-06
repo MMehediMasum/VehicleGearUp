@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Up Car Battery Acid: Quick & Safe Cleanup Tips"
-description: "If your car battery has leaked acid, you need to act fast—and carefully. Battery acid is dangerous and can damage your vehicle and even harm you. But don’t worr"
+title: 'How to Clean Up Car Battery Acid: Quick & Safe Cleanup Tips'
+description: If your car battery has leaked acid, you need to act fast—and carefully.
+  Battery acid is dangerous and can damage your vehicle and even harm you. But don’t
+  worr
 pubDate: 2026-04-03
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-up-car-battery-acid&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Selling Old Car Batteries
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-up-car-battery-acid&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **If your car battery has leaked acid, you need to act fast—and carefully. Battery acid is dangerous and can damage your vehicle and even harm you.**

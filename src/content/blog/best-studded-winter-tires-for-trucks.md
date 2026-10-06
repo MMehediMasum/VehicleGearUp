@@ -1,10 +1,14 @@
 ---
-title: "Best Studded Winter Tires for Trucks: Top Durable Picks for Harsh Roads"
-description: "Finding the best studded winter tires for trucks ensures safe driving on icy roads. These tires offer extra grip and control during harsh winter conditions. Win"
+title: 'Best Studded Winter Tires for Trucks: Top Durable Picks for Harsh Roads'
+description: Finding the best studded winter tires for trucks ensures safe driving
+  on icy roads. These tires offer extra grip and control during harsh winter conditions.
+  Win
 pubDate: 2025-12-24
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-studded-winter-tires-for-trucks&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Mud and Highway Truck Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-studded-winter-tires-for-trucks&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Finding the best studded winter tires for trucks ensures safe driving on icy roads. These tires offer extra grip and control during harsh winter conditions.**

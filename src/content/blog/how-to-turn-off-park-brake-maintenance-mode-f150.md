@@ -1,10 +1,14 @@
 ---
-title: "How to Turn off Park Brake Maintenance Mode F150: Quick Fix Guide"
-description: "Is your F150 stuck in Park Brake Maintenance Mode, and you’re not sure how to turn it off? This can be frustrating, especially when you just want to get back on"
+title: 'How to Turn off Park Brake Maintenance Mode F150: Quick Fix Guide'
+description: Is your F150 stuck in Park Brake Maintenance Mode, and you’re not sure
+  how to turn it off? This can be frustrating, especially when you just want to get
+  back on
 pubDate: 2026-05-12
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-park-brake-maintenance-mode-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hill Start and Brake Assist
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-park-brake-maintenance-mode-f150&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your F150 stuck in Park Brake Maintenance Mode, and you’re not sure how to turn it off? This can be frustrating, especially when you just want to get back on the road quickly.**

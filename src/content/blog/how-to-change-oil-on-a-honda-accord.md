@@ -1,10 +1,14 @@
 ---
-title: "How to Change Oil on a Honda Accord: Easy Step-by-Step Guide"
-description: "Changing the oil on your Honda Accord might seem tricky, but it’s easier than you think. Doing it yourself saves you money and helps your car run smoothly for l"
+title: 'How to Change Oil on a Honda Accord: Easy Step-by-Step Guide'
+description: Changing the oil on your Honda Accord might seem tricky, but it’s easier
+  than you think. Doing it yourself saves you money and helps your car run smoothly
+  for l
 pubDate: 2025-10-23
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-oil-on-a-honda-accord&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Checking Oil Levels
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-oil-on-a-honda-accord&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Changing the oil on your Honda Accord might seem tricky, but it’s easier than you think. Doing it yourself saves you money and helps your car run smoothly for longer.**

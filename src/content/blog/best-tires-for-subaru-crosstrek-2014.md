@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Subaru Crosstrek: Top Picks for Ultimate Performance"
-description: "Choosing the best tires for a 2014 Subaru Crosstrek ensures safety and smooth driving. Proper tires improve grip, handling, and comfort on all roads. The 2014 S"
+title: 'Best Tires for Subaru Crosstrek: Top Picks for Ultimate Performance'
+description: Choosing the best tires for a 2014 Subaru Crosstrek ensures safety and
+  smooth driving. Proper tires improve grip, handling, and comfort on all roads. The
+  2014 S
 pubDate: 2025-12-22
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-subaru-crosstrek-2014&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Subaru and Mazda Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-subaru-crosstrek-2014&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for a 2014 Subaru Crosstrek ensures safety and smooth driving. Proper tires improve grip, handling, and comfort on all roads.**

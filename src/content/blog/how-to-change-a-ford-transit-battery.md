@@ -1,10 +1,14 @@
 ---
-title: "How to Change a Ford Transit Battery: Easy Step-by-Step Guide"
-description: "Is your Ford Transit struggling to start or showing signs of a weak battery? Changing the battery yourself might sound tricky, but it’s easier than you think. B"
+title: 'How to Change a Ford Transit Battery: Easy Step-by-Step Guide'
+description: Is your Ford Transit struggling to start or showing signs of a weak battery?
+  Changing the battery yourself might sound tricky, but it’s easier than you think.
+  B
 pubDate: 2026-03-30
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-a-ford-transit-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing a Car Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-a-ford-transit-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your Ford Transit struggling to start or showing signs of a weak battery? Changing the battery yourself might sound tricky, but it’s easier than you think.**

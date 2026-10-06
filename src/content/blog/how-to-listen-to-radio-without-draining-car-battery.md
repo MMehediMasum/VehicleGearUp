@@ -1,10 +1,14 @@
 ---
-title: "How to Listen to Radio Without Draining Car Battery: Easy Hacks"
-description: "Have you ever wanted to enjoy your favorite radio station during a long stop, only to worry about your car battery running low? You’re not alone. Listening to t"
+title: 'How to Listen to Radio Without Draining Car Battery: Easy Hacks'
+description: Have you ever wanted to enjoy your favorite radio station during a long
+  stop, only to worry about your car battery running low? You’re not alone. Listening
+  to t
 pubDate: 2025-10-26
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-listen-to-radio-without-draining-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Fixing Battery Drain
+heroImage: https://tse1.mm.bing.net/th?q=how-to-listen-to-radio-without-draining-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wanted to enjoy your favorite radio station during a long stop, only to worry about your car battery running low? You’re not alone.**

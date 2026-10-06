@@ -1,10 +1,14 @@
 ---
-title: "How to Prevent Corrosion on Car Battery: Essential Tips & Tricks"
-description: "Your car battery is one of the most important parts of your vehicle, but corrosion can quickly damage it and cause serious problems. If you’ve ever noticed a wh"
+title: 'How to Prevent Corrosion on Car Battery: Essential Tips & Tricks'
+description: Your car battery is one of the most important parts of your vehicle,
+  but corrosion can quickly damage it and cause serious problems. If you’ve ever noticed
+  a wh
 pubDate: 2026-04-05
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-prevent-corrosion-on-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Terminal Care
+heroImage: https://tse1.mm.bing.net/th?q=how-to-prevent-corrosion-on-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Your car battery is one of the most important parts of your vehicle, but corrosion can quickly damage it and cause serious problems. If you’ve ever noticed a white, powdery buildup on your battery terminals, you know how frustrating corrosion can be.**

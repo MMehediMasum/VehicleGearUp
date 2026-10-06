@@ -1,10 +1,14 @@
 ---
-title: "How to Turn off Lights in Jeep Grand Cherokee: Easy Step-by-Step Guide"
-description: "Are you struggling to figure out how to turn off the lights in your Jeep Grand Cherokee? It can be confusing when those interior or exterior lights just won’t s"
+title: 'How to Turn off Lights in Jeep Grand Cherokee: Easy Step-by-Step Guide'
+description: Are you struggling to figure out how to turn off the lights in your Jeep
+  Grand Cherokee? It can be confusing when those interior or exterior lights just
+  won’t s
 pubDate: 2026-05-26
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-lights-in-jeep-grand-cherokee&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Turning Off Dash Beeps
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-lights-in-jeep-grand-cherokee&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are you struggling to figure out how to turn off the lights in your Jeep Grand Cherokee? It can be confusing when those interior or exterior lights just won’t switch off, draining your battery or distracting you while driving.**

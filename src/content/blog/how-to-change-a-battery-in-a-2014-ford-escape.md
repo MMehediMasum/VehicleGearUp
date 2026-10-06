@@ -1,10 +1,14 @@
 ---
-title: "How to Change a Battery in a 2014 Ford Escape: Easy Step-by-Step Guide"
-description: "Is your 2014 Ford Escape struggling to start or showing signs of a weak battery? Changing the battery yourself might sound tricky, but it’s easier than you thin"
+title: 'How to Change a Battery in a 2014 Ford Escape: Easy Step-by-Step Guide'
+description: Is your 2014 Ford Escape struggling to start or showing signs of a weak
+  battery? Changing the battery yourself might sound tricky, but it’s easier than
+  you thin
 pubDate: 2026-04-11
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-a-battery-in-a-2014-ford-escape&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing a Car Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-a-battery-in-a-2014-ford-escape&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your 2014 Ford Escape struggling to start or showing signs of a weak battery? Changing the battery yourself might sound tricky, but it’s easier than you think.**

@@ -1,10 +1,13 @@
 ---
-title: "Best Car Wash Products for Black Cars to Shine and Protect Flawlessly"
-description: "Maintaining the deep, glossy look of black cars requires the right car wash products. These specially designed items protect and enhance black paint effectively"
+title: Best Car Wash Products for Black Cars to Shine and Protect Flawlessly
+description: Maintaining the deep, glossy look of black cars requires the right car
+  wash products. These specially designed items protect and enhance black paint effectively
 pubDate: 2025-10-26
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-wash-products-for-black-cars&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wash Soap Picks
+heroImage: https://tse1.mm.bing.net/th?q=best-car-wash-products-for-black-cars&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Maintaining the deep, glossy look of black cars requires the right car wash products. These specially designed items protect and enhance black paint effectively.**

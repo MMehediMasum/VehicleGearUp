@@ -1,10 +1,14 @@
 ---
-title: "What Oil Does a Ford Explorer Take: Ultimate Guide for Peak Performance"
-description: "If you own a Ford Explorer, you know how important it is to keep your engine running smoothly. One key part of that is using the right oil. But with so many opt"
+title: 'What Oil Does a Ford Explorer Take: Ultimate Guide for Peak Performance'
+description: If you own a Ford Explorer, you know how important it is to keep your
+  engine running smoothly. One key part of that is using the right oil. But with so
+  many opt
 pubDate: 2026-05-16
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-oil-does-a-ford-explorer-take&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- What Oil to Use
+heroImage: https://tse1.mm.bing.net/th?q=what-oil-does-a-ford-explorer-take&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a Ford Explorer, you know how important it is to keep your engine running smoothly. One key part of that is using the right oil.**

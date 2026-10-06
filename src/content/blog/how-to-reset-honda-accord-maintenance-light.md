@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Honda Accord Maintenance Light: Easy Step-by-Step Guide"
-description: "Your Honda Accord’s maintenance light just came on, and now you’re wondering how to reset it. It’s a simple process that you can do yourself without needing to "
+title: 'How to Reset Honda Accord Maintenance Light: Easy Step-by-Step Guide'
+description: 'Your Honda Accord’s maintenance light just came on, and now you’re wondering
+  how to reset it. It’s a simple process that you can do yourself without needing
+  to '
 pubDate: 2025-10-30
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-honda-accord-maintenance-light&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Maintenance Light Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-honda-accord-maintenance-light&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Your Honda Accord’s maintenance light just came on, and now you’re wondering how to reset it. It’s a simple process that you can do yourself without needing to visit the mechanic.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Recharge Ac in Honda Civic: Easy Steps for Cool Comfort"
-description: "Is your Honda Civic’s air conditioner not blowing cold air like it used to? You’re not alone. Many drivers face this issue, especially during hot days when a co"
+title: 'How to Recharge Ac in Honda Civic: Easy Steps for Cool Comfort'
+description: Is your Honda Civic’s air conditioner not blowing cold air like it used
+  to? You’re not alone. Many drivers face this issue, especially during hot days when
+  a co
 pubDate: 2026-02-06
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-recharge-ac-in-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Features and Fixes
+heroImage: https://tse1.mm.bing.net/th?q=how-to-recharge-ac-in-honda-civic&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your Honda Civic’s air conditioner not blowing cold air like it used to? You’re not alone.**

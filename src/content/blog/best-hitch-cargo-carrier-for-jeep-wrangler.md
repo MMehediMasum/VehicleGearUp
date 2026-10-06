@@ -1,10 +1,14 @@
 ---
-title: "Best Hitch Cargo Carrier for Jeep Wrangler: Durable, Foldable & Heavy-Duty"
-description: "Finding the best hitch cargo carrier for your Jeep Wrangler boosts your vehicle’s storage space easily. These carriers offer strong, reliable hauling for campin"
+title: 'Best Hitch Cargo Carrier for Jeep Wrangler: Durable, Foldable & Heavy-Duty'
+description: Finding the best hitch cargo carrier for your Jeep Wrangler boosts your
+  vehicle’s storage space easily. These carriers offer strong, reliable hauling for
+  campin
 pubDate: 2025-09-09
-author: "herbertlangham"
-categories: ["Towing & Hauling"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-hitch-cargo-carrier-for-jeep-wrangler&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hitch Bike Racks
+heroImage: https://tse1.mm.bing.net/th?q=best-hitch-cargo-carrier-for-jeep-wrangler&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Finding the best hitch cargo carrier for your Jeep Wrangler boosts your vehicle’s storage space easily. These carriers offer strong, reliable hauling for camping, travel, and daily use.**

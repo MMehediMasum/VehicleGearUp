@@ -1,10 +1,14 @@
 ---
-title: "Best Leather Cleaner And Conditioner for Car Seats to Protect and Restore"
-description: "Keeping car leather seats clean and soft extends their life and maintains their look. The right cleaner and conditioner protect against dirt, cracks, and fading"
+title: Best Leather Cleaner And Conditioner for Car Seats to Protect and Restore
+description: Keeping car leather seats clean and soft extends their life and maintains
+  their look. The right cleaner and conditioner protect against dirt, cracks, and
+  fading
 pubDate: 2026-07-05
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-leather-cleaner-and-conditioner-for-car-seats&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Leather and Fabric Seat Care
+heroImage: https://tse1.mm.bing.net/th?q=best-leather-cleaner-and-conditioner-for-car-seats&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Keeping car leather seats clean and soft extends their life and maintains their look. The right cleaner and conditioner protect against dirt, cracks, and fading.**

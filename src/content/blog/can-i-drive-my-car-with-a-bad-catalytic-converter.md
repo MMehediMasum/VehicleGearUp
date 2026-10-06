@@ -1,10 +1,14 @@
 ---
-title: "Can I Drive My Car With a Bad Catalytic Converter? Essential Facts"
-description: "Have you noticed your car acting up or feeling less powerful lately? You might be wondering, \"Can I drive my car with a bad catalytic converter?\" This small but"
+title: Can I Drive My Car With a Bad Catalytic Converter? Essential Facts
+description: Have you noticed your car acting up or feeling less powerful lately?
+  You might be wondering, "Can I drive my car with a bad catalytic converter?" This
+  small but
 pubDate: 2026-02-07
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-i-drive-my-car-with-a-bad-catalytic-converter&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Catalytic Converter Questions
+heroImage: https://tse1.mm.bing.net/th?q=can-i-drive-my-car-with-a-bad-catalytic-converter&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you noticed your car acting up or feeling less powerful lately? You might be wondering, "Can I drive my car with a bad catalytic converter?"**

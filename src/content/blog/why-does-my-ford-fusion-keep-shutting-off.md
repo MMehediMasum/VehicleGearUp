@@ -1,10 +1,14 @@
 ---
-title: "Why Does My Ford Fusion Keep Shutting off: Top Causes & Fixes"
-description: "Have you ever been driving your Ford Fusion when suddenly, the engine just shuts off? It’s frustrating, scary, and can leave you wondering what’s wrong with you"
+title: 'Why Does My Ford Fusion Keep Shutting off: Top Causes & Fixes'
+description: Have you ever been driving your Ford Fusion when suddenly, the engine
+  just shuts off? It’s frustrating, scary, and can leave you wondering what’s wrong
+  with you
 pubDate: 2026-02-15
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-does-my-ford-fusion-keep-shutting-off&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Not Starting Causes
+heroImage: https://tse1.mm.bing.net/th?q=why-does-my-ford-fusion-keep-shutting-off&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Have you ever been driving your Ford Fusion when suddenly, the engine just shuts off? It’s frustrating, scary, and can leave you wondering what’s wrong with your car.**

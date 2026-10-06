@@ -1,10 +1,14 @@
 ---
-title: "Best Power Running Boards for Jeep Wrangler: Top Retractable Electric Steps"
-description: "Power running boards add style and convenience to your Jeep Wrangler. They make entering and exiting easier while protecting your vehicle’s sides. Choosing the "
+title: 'Best Power Running Boards for Jeep Wrangler: Top Retractable Electric Steps'
+description: 'Power running boards add style and convenience to your Jeep Wrangler.
+  They make entering and exiting easier while protecting your vehicle’s sides. Choosing
+  the '
 pubDate: 2026-06-10
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-power-running-boards-for-jeep-wrangler&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Running Boards
+heroImage: https://tse1.mm.bing.net/th?q=best-power-running-boards-for-jeep-wrangler&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Power running boards add style and convenience to your Jeep Wrangler. They make entering and exiting easier while protecting your vehicle’s sides.**

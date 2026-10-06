@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Tire Light on Honda Accord: Quick & Easy Steps"
-description: "Your Honda Accord’s tire light just came on, and now you’re wondering what to do next. Ignoring it isn’t an option—this warning is there to keep you safe. But b"
+title: 'How to Reset Tire Light on Honda Accord: Quick & Easy Steps'
+description: Your Honda Accord’s tire light just came on, and now you’re wondering
+  what to do next. Ignoring it isn’t an option—this warning is there to keep you safe.
+  But b
 pubDate: 2025-09-19
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-tire-light-on-honda-accord&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Tire Pressure Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-tire-light-on-honda-accord&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Your Honda Accord’s tire light just came on, and now you’re wondering what to do next. Ignoring it isn’t an option—this warning is there to keep you safe.**

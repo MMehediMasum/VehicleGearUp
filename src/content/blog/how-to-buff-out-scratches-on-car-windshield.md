@@ -1,10 +1,14 @@
 ---
-title: "How to Buff Out Scratches on Car Windshield: Easy DIY Fixes"
-description: "Scratches on your car windshield can be more than just an eyesore—they can block your view and distract you while driving. If you’ve noticed those annoying mark"
+title: 'How to Buff Out Scratches on Car Windshield: Easy DIY Fixes'
+description: Scratches on your car windshield can be more than just an eyesore—they
+  can block your view and distract you while driving. If you’ve noticed those annoying
+  mark
 pubDate: 2025-11-04
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-buff-out-scratches-on-car-windshield&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Windshield Sap and Scratches
+heroImage: https://tse1.mm.bing.net/th?q=how-to-buff-out-scratches-on-car-windshield&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Scratches on your car windshield can be more than just an eyesore—they can block your view and distract you while driving. If you’ve noticed those annoying marks, you’re probably wondering how to fix them quickly and safely.**

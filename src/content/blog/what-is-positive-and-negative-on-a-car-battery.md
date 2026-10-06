@@ -1,10 +1,14 @@
 ---
-title: "What is Positive And Negative on a Car Battery: Essential Guide"
-description: "Have you ever wondered why car batteries have a plus (+) and minus (–) sign? Understanding what positive and negative mean on your car battery is key to keeping"
+title: 'What is Positive And Negative on a Car Battery: Essential Guide'
+description: Have you ever wondered why car batteries have a plus (+) and minus (–)
+  sign? Understanding what positive and negative mean on your car battery is key to
+  keeping
 pubDate: 2026-03-25
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-positive-and-negative-on-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Polarity and Acid
+heroImage: https://tse1.mm.bing.net/th?q=what-is-positive-and-negative-on-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered why car batteries have a plus (+) and minus (–) sign? Understanding what positive and negative mean on your car battery is key to keeping your vehicle running smoothly and avoiding costly mistakes.**

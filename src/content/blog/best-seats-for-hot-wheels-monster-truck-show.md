@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Seats for Hot Wheels Monster Truck Show: Ultimate Viewing Guide"
 description: "Finding the best seats for the Hot Wheels Monster Truck Show makes your experience exciting and clear. Good seats let you see every jump and crash up close. The"
 pubDate: 2026-07-31

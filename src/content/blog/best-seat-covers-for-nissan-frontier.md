@@ -1,10 +1,14 @@
 ---
-title: "Best Seat Covers for Nissan Frontier: Durable, Stylish, and Waterproof Choices"
-description: "Choosing the best seat covers for your Nissan Frontier protects your seats and adds style. Seat covers keep your truck’s interior clean and comfortable. Nissan "
+title: 'Best Seat Covers for Nissan Frontier: Durable, Stylish, and Waterproof Choices'
+description: 'Choosing the best seat covers for your Nissan Frontier protects your
+  seats and adds style. Seat covers keep your truck’s interior clean and comfortable.
+  Nissan '
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-seat-covers-for-nissan-frontier&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Nissan and Fabric Seat Covers
+heroImage: https://tse1.mm.bing.net/th?q=best-seat-covers-for-nissan-frontier&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best seat covers for your Nissan Frontier protects your seats and adds style. Seat covers keep your truck’s interior clean and comfortable.**

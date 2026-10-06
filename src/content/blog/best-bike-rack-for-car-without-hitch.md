@@ -1,10 +1,14 @@
 ---
-title: "Best Bike Rack for Car Without Hitch: Top Trunk Mount Bike Carriers"
-description: "Finding the best bike rack for a car without a hitch can be tricky. Many bike racks fit only vehicles with hitch receivers. Carrying bikes without a hitch requi"
+title: 'Best Bike Rack for Car Without Hitch: Top Trunk Mount Bike Carriers'
+description: Finding the best bike rack for a car without a hitch can be tricky. Many
+  bike racks fit only vehicles with hitch receivers. Carrying bikes without a hitch
+  requi
 pubDate: 2025-11-18
-author: "herbertlangham"
-categories: ["Towing & Hauling"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-bike-rack-for-car-without-hitch&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hitch Bike Racks
+heroImage: https://tse1.mm.bing.net/th?q=best-bike-rack-for-car-without-hitch&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Finding the best bike rack for a car without a hitch can be tricky. Many bike racks fit only vehicles with hitch receivers.**

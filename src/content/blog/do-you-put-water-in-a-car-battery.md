@@ -1,10 +1,14 @@
 ---
-title: "Do You Put Water in a Car Battery: Essential Tips You Must Know"
-description: "Have you ever wondered if you should put water in your car battery? It’s a common question that many drivers face, especially when trying to keep their battery "
+title: 'Do You Put Water in a Car Battery: Essential Tips You Must Know'
+description: 'Have you ever wondered if you should put water in your car battery?
+  It’s a common question that many drivers face, especially when trying to keep their
+  battery '
 pubDate: 2026-04-19
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-you-put-water-in-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Terminal Care
+heroImage: https://tse1.mm.bing.net/th?q=do-you-put-water-in-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if you should put water in your car battery? It’s a common question that many drivers face, especially when trying to keep their battery in good shape.**

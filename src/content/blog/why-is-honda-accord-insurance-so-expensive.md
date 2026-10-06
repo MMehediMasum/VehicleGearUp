@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Why is Honda Accord Insurance So Expensive: Shocking Reasons Revealed"
 description: "Are you surprised every time you check the insurance price for your Honda Accord? You’re not alone. Many Honda Accord owners wonder why their insurance costs se"
 pubDate: 2025-09-27

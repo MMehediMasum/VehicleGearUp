@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Chevy Cruze: Top All-Season Radial Picks Reviewed"
-description: "Choosing the best tires for a 2018 Chevy Cruze ensures safe and smooth driving. Quality tires improve handling, fuel efficiency, and comfort on all road types. "
+title: 'Best Tires for Chevy Cruze: Top All-Season Radial Picks Reviewed'
+description: 'Choosing the best tires for a 2018 Chevy Cruze ensures safe and smooth
+  driving. Quality tires improve handling, fuel efficiency, and comfort on all road
+  types. '
 pubDate: 2025-12-26
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-2018-chevy-cruze&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Chevy and GMC Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-2018-chevy-cruze&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for a 2018 Chevy Cruze ensures safe and smooth driving. Quality tires improve handling, fuel efficiency, and comfort on all road types.**

@@ -1,10 +1,13 @@
 ---
-title: "Best Cold Air Intake for Dodge Durango RT to Boost Power & Performance"
-description: "Choosing the best cold air intake for your Dodge Durango RT boosts engine power and efficiency. This upgrade improves airflow and helps your SUV perform better "
+title: Best Cold Air Intake for Dodge Durango RT to Boost Power & Performance
+description: 'Choosing the best cold air intake for your Dodge Durango RT boosts engine
+  power and efficiency. This upgrade improves airflow and helps your SUV perform better '
 pubDate: 2026-06-07
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-dodge-durango-rt&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hemi Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-dodge-durango-rt&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best cold air intake for your Dodge Durango RT boosts engine power and efficiency. This upgrade improves airflow and helps your SUV perform better on the road.**

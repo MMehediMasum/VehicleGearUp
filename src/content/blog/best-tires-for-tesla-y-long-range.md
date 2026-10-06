@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Tesla Y Long Range: Top Spare Wheel Kits Reviewed"
-description: "Choosing the best tires for your Tesla Model Y Long Range boosts safety and driving comfort. Quality tires improve handling, range, and overall performance. Tes"
+title: 'Best Tires for Tesla Y Long Range: Top Spare Wheel Kits Reviewed'
+description: Choosing the best tires for your Tesla Model Y Long Range boosts safety
+  and driving comfort. Quality tires improve handling, range, and overall performance.
+  Tes
 pubDate: 2026-01-03
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-tesla-y-long-range&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Tires and Accessories
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-tesla-y-long-range&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best tires for your Tesla Model Y Long Range boosts safety and driving comfort. Quality tires improve handling, range, and overall performance.**

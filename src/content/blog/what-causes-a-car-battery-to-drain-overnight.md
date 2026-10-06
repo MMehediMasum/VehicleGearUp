@@ -1,10 +1,14 @@
 ---
-title: "What Causes a Car Battery to Drain Overnight: Top Reasons Revealed"
-description: "Have you ever woken up to find your car won’t start, even though you left it running fine the night before? A car battery that drains overnight can be frustrati"
+title: 'What Causes a Car Battery to Drain Overnight: Top Reasons Revealed'
+description: Have you ever woken up to find your car won’t start, even though you
+  left it running fine the night before? A car battery that drains overnight can be
+  frustrati
 pubDate: 2026-03-27
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-causes-a-car-battery-to-drain-overnight&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Cold Weather Battery Drain
+heroImage: https://tse1.mm.bing.net/th?q=what-causes-a-car-battery-to-drain-overnight&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever woken up to find your car won’t start, even though you left it running fine the night before? A car battery that drains overnight can be frustrating and confusing.**

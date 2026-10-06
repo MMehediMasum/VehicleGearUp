@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for One Ton Truck: Top Electric Car Jack Kits for Easy Tire Changes"
-description: "Choosing the best tires for a one-ton truck ensures safety and performance on the road. Durable tires handle heavy loads and rough surfaces effectively. A one-t"
+title: 'Best Tires for One Ton Truck: Top Electric Car Jack Kits for Easy Tire Changes'
+description: Choosing the best tires for a one-ton truck ensures safety and performance
+  on the road. Durable tires handle heavy loads and rough surfaces effectively. A
+  one-t
 pubDate: 2025-12-29
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-one-ton-truck&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Mud and Highway Truck Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-one-ton-truck&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for a one-ton truck ensures safety and performance on the road. Durable tires handle heavy loads and rough surfaces effectively.**

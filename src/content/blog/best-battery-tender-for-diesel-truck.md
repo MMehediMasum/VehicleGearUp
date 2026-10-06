@@ -1,10 +1,14 @@
 ---
-title: "Best Battery Tender for Diesel Truck: Top Chargers for Reliable Power"
-description: "Choosing the best battery tender for a diesel truck keeps your battery healthy and ready to start. Diesel engines need strong, reliable chargers to maintain lar"
+title: 'Best Battery Tender for Diesel Truck: Top Chargers for Reliable Power'
+description: Choosing the best battery tender for a diesel truck keeps your battery
+  healthy and ready to start. Diesel engines need strong, reliable chargers to maintain
+  lar
 pubDate: 2026-07-09
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-battery-tender-for-diesel-truck&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Charging While Idling
+heroImage: https://tse1.mm.bing.net/th?q=best-battery-tender-for-diesel-truck&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Choosing the best battery tender for a diesel truck keeps your battery healthy and ready to start. Diesel engines need strong, reliable chargers to maintain large batteries properly.**

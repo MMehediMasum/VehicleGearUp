@@ -1,10 +1,15 @@
 ---
-title: "What Does a Car Sound Like Without a Catalytic Converter: Loud & Raw Noise Explained"
-description: "Have you ever wondered what your car sounds like without a catalytic converter? That little part under your car plays a big role in controlling noise and emissi"
+title: 'What Does a Car Sound Like Without a Catalytic Converter: Loud & Raw Noise
+  Explained'
+description: Have you ever wondered what your car sounds like without a catalytic
+  converter? That little part under your car plays a big role in controlling noise
+  and emissi
 pubDate: 2025-12-09
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-does-a-car-sound-like-without-a-catalytic-converter&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Catalytic Converter Questions
+heroImage: https://tse1.mm.bing.net/th?q=what-does-a-car-sound-like-without-a-catalytic-converter&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you ever wondered what your car sounds like without a catalytic converter? That little part under your car plays a big role in controlling noise and emissions.**

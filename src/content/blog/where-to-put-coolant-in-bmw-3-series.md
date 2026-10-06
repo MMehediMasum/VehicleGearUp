@@ -1,10 +1,14 @@
 ---
-title: "Where to Put Coolant in BMW 3 Series: Ultimate Guide for Beginners"
-description: "If you own a BMW 3 Series, knowing where to put coolant is key to keeping your engine running smoothly. Coolant helps prevent your car from overheating and prot"
+title: 'Where to Put Coolant in BMW 3 Series: Ultimate Guide for Beginners'
+description: If you own a BMW 3 Series, knowing where to put coolant is key to keeping
+  your engine running smoothly. Coolant helps prevent your car from overheating and
+  prot
 pubDate: 2026-04-23
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-put-coolant-in-bmw-3-series&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Coolant and AC Recharge
+heroImage: https://tse1.mm.bing.net/th?q=where-to-put-coolant-in-bmw-3-series&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a BMW 3 Series, knowing where to put coolant is key to keeping your engine running smoothly. Coolant helps prevent your car from overheating and protects important parts from damage.**

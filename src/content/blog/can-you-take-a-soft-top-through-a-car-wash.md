@@ -1,10 +1,14 @@
 ---
-title: "Can You Take a Soft Top Through a Car Wash? Essential Tips!"
-description: "Have you ever wondered if you can safely take your soft top through a car wash? If you own a convertible, you probably want to keep your soft top clean without "
+title: Can You Take a Soft Top Through a Car Wash? Essential Tips!
+description: 'Have you ever wondered if you can safely take your soft top through
+  a car wash? If you own a convertible, you probably want to keep your soft top clean
+  without '
 pubDate: 2026-03-17
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-take-a-soft-top-through-a-car-wash&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Going Through Car Washes
+heroImage: https://tse1.mm.bing.net/th?q=can-you-take-a-soft-top-through-a-car-wash&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever wondered if you can safely take your soft top through a car wash? If you own a convertible, you probably want to keep your soft top clean without risking damage.**

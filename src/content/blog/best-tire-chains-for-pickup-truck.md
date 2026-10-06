@@ -1,10 +1,14 @@
 ---
-title: "Best Tire Chains for Pickup Truck: Top Durable Snow Chains Reviewed"
-description: "Pickup trucks need reliable tire chains to drive safely on snow and ice. The best tire chains improve traction and prevent slipping in harsh winter conditions. "
+title: 'Best Tire Chains for Pickup Truck: Top Durable Snow Chains Reviewed'
+description: 'Pickup trucks need reliable tire chains to drive safely on snow and
+  ice. The best tire chains improve traction and prevent slipping in harsh winter
+  conditions. '
 pubDate: 2025-12-26
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tire-chains-for-pickup-truck&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Choosing Tire Brands
+heroImage: https://tse1.mm.bing.net/th?q=best-tire-chains-for-pickup-truck&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Pickup trucks need reliable tire chains to drive safely on snow and ice. The best tire chains improve traction and prevent slipping in harsh winter conditions.**

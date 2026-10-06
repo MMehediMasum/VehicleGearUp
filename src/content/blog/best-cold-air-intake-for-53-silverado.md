@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for 5.3 Silverado: Top Performance Upgrades Reviewed"
-description: "Choosing the best cold air intake for your 5.3 Silverado boosts engine performance and fuel efficiency. This guide covers top options compatible with various Si"
+title: 'Best Cold Air Intake for 5.3 Silverado: Top Performance Upgrades Reviewed'
+description: Choosing the best cold air intake for your 5.3 Silverado boosts engine
+  performance and fuel efficiency. This guide covers top options compatible with various
+  Si
 pubDate: 2025-10-20
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-53-silverado&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- GM Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-53-silverado&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best cold air intake for your 5.3 Silverado boosts engine performance and fuel efficiency. This guide covers top options compatible with various Silverado models from 1999 to 2020.**

@@ -1,10 +1,14 @@
 ---
-title: "Best 275 55R20 Tires for F150: Top All-Season & Off-Road Picks"
-description: "Choosing the best 275/55R20 tires for your F150 improves safety and driving comfort. This guide covers top tire options for various needs and terrains. Tires af"
+title: 'Best 275 55R20 Tires for F150: Top All-Season & Off-Road Picks'
+description: Choosing the best 275/55R20 tires for your F150 improves safety and driving
+  comfort. This guide covers top tire options for various needs and terrains. Tires
+  af
 pubDate: 2025-12-24
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-275-55r20-tires-for-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Car and Truck Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-275-55r20-tires-for-f150&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best 275/55R20 tires for your F150 improves safety and driving comfort. This guide covers top tire options for various needs and terrains.**

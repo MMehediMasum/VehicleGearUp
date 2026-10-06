@@ -1,10 +1,14 @@
 ---
-title: "Does a Mercedes C300 Have a Spare Tire: Essential Guide Revealed"
-description: "Have you ever wondered if your Mercedes C300 comes with a spare tire? When you're on the road, a flat tire can quickly turn a smooth drive into a stressful situ"
+title: 'Does a Mercedes C300 Have a Spare Tire: Essential Guide Revealed'
+description: Have you ever wondered if your Mercedes C300 comes with a spare tire?
+  When you're on the road, a flat tire can quickly turn a smooth drive into a stressful
+  situ
 pubDate: 2025-11-19
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-a-mercedes-c300-have-a-spare-tire&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spare Tires and Tire Changing
+heroImage: https://tse1.mm.bing.net/th?q=does-a-mercedes-c300-have-a-spare-tire&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Have you ever wondered if your Mercedes C300 comes with a spare tire? When you're on the road, a flat tire can quickly turn a smooth drive into a stressful situation.**

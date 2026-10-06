@@ -1,10 +1,14 @@
 ---
-title: "Best Air Filter for 6.7 Cummins: Top Picks for Ultimate Engine Protection"
-description: "Choosing the best air filter for your 6.7 Cummins engine keeps your truck running strong and clean. A good filter improves airflow and protects the engine from "
+title: 'Best Air Filter for 6.7 Cummins: Top Picks for Ultimate Engine Protection'
+description: 'Choosing the best air filter for your 6.7 Cummins engine keeps your
+  truck running strong and clean. A good filter improves airflow and protects the
+  engine from '
 pubDate: 2026-06-22
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-air-filter-for-67-cummins&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Cabin Air Filters
+heroImage: https://tse1.mm.bing.net/th?q=best-air-filter-for-67-cummins&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Choosing the best air filter for your 6.7 Cummins engine keeps your truck running strong and clean. A good filter improves airflow and protects the engine from dirt and debris.**

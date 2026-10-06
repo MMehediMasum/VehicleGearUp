@@ -1,10 +1,14 @@
 ---
-title: "Best 4 Post Car Lift for Home Garage: Top Heavy Duty Lifts Reviewed"
-description: "A 4 post car lift is essential for any home garage. It offers safe, easy vehicle lifting and storage. Choosing the best 4 post car lift improves your garage’s s"
+title: 'Best 4 Post Car Lift for Home Garage: Top Heavy Duty Lifts Reviewed'
+description: A 4 post car lift is essential for any home garage. It offers safe, easy
+  vehicle lifting and storage. Choosing the best 4 post car lift improves your garage’s
+  s
 pubDate: 2026-06-09
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-4-post-car-lift-for-home-garage&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Garage Car Lifts
+heroImage: https://tse1.mm.bing.net/th?q=best-4-post-car-lift-for-home-garage&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **A 4 post car lift is essential for any home garage. It offers safe, easy vehicle lifting and storage.**

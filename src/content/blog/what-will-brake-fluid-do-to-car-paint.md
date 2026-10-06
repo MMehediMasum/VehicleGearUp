@@ -1,10 +1,14 @@
 ---
-title: "What Will Brake Fluid Do to Car Paint: Shocking Damage Revealed"
-description: "Have you ever accidentally spilled brake fluid on your car’s paint and wondered what might happen next? Brake fluid isn’t just any liquid—it can cause serious d"
+title: 'What Will Brake Fluid Do to Car Paint: Shocking Damage Revealed'
+description: Have you ever accidentally spilled brake fluid on your car’s paint and
+  wondered what might happen next? Brake fluid isn’t just any liquid—it can cause
+  serious d
 pubDate: 2026-05-07
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-will-brake-fluid-do-to-car-paint&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Brake and Washer Fluids
+heroImage: https://tse1.mm.bing.net/th?q=what-will-brake-fluid-do-to-car-paint&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever accidentally spilled brake fluid on your car’s paint and wondered what might happen next? Brake fluid isn’t just any liquid—it can cause serious damage to your car’s finish if you’re not careful.**

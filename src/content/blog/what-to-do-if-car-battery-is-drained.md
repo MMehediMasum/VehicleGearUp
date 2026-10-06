@@ -1,10 +1,14 @@
 ---
-title: "What to Do If Car Battery is Drained: Quick Fixes & Expert Tips"
-description: "Imagine this: you’re all set to head out, but your car won’t start. The culprit? A drained battery. It’s frustrating and can leave you feeling stuck and unsure "
+title: 'What to Do If Car Battery is Drained: Quick Fixes & Expert Tips'
+description: 'Imagine this: you’re all set to head out, but your car won’t start.
+  The culprit? A drained battery. It’s frustrating and can leave you feeling stuck
+  and unsure '
 pubDate: 2026-03-25
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-do-if-car-battery-is-drained&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Price and Installation
+heroImage: https://tse1.mm.bing.net/th?q=what-to-do-if-car-battery-is-drained&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Imagine this: you’re all set to head out, but your car won’t start. The culprit?**

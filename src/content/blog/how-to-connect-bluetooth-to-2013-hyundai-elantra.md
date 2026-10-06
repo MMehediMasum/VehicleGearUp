@@ -1,10 +1,14 @@
 ---
-title: "How to Connect Bluetooth to 2013 Hyundai Elantra: Easy Step Guide"
-description: "If you drive a 2013 Hyundai Elantra, you probably want an easy way to play music and make hands-free calls. Connecting Bluetooth to your car can make your drive"
+title: 'How to Connect Bluetooth to 2013 Hyundai Elantra: Easy Step Guide'
+description: If you drive a 2013 Hyundai Elantra, you probably want an easy way to
+  play music and make hands-free calls. Connecting Bluetooth to your car can make
+  your drive
 pubDate: 2025-10-22
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-connect-bluetooth-to-2013-hyundai-elantra&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Bluetooth for Car Stereos
+heroImage: https://tse1.mm.bing.net/th?q=how-to-connect-bluetooth-to-2013-hyundai-elantra&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If you drive a 2013 Hyundai Elantra, you probably want an easy way to play music and make hands-free calls. Connecting Bluetooth to your car can make your drives safer and more enjoyable.**

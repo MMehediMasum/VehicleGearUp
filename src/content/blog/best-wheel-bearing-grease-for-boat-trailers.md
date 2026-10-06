@@ -1,10 +1,14 @@
 ---
-title: "Best Wheel Bearing Grease for Boat Trailers: Top Marine-Grade Picks"
-description: "Choosing the best wheel bearing grease for boat trailers protects your trailer's wheels from water and wear. Proper grease keeps bearings running smoothly and e"
+title: 'Best Wheel Bearing Grease for Boat Trailers: Top Marine-Grade Picks'
+description: Choosing the best wheel bearing grease for boat trailers protects your
+  trailer's wheels from water and wear. Proper grease keeps bearings running smoothly
+  and e
 pubDate: 2026-06-30
-author: "herbertlangham"
-categories: ["Towing & Hauling"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-wheel-bearing-grease-for-boat-trailers&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Best Trucks for Towing
+heroImage: https://tse1.mm.bing.net/th?q=best-wheel-bearing-grease-for-boat-trailers&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Choosing the best wheel bearing grease for boat trailers protects your trailer's wheels from water and wear. Proper grease keeps bearings running smoothly and extends their life.**

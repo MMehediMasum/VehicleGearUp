@@ -1,10 +1,14 @@
 ---
-title: "How to Set Time on Pioneer Car Stereo: Easy Step-by-Step Guide"
-description: "Want to know how to set the time on your Pioneer car stereo quickly and without hassle? You're in the right place. Getting the clock right might seem tricky at "
+title: 'How to Set Time on Pioneer Car Stereo: Easy Step-by-Step Guide'
+description: 'Want to know how to set the time on your Pioneer car stereo quickly
+  and without hassle? You''re in the right place. Getting the clock right might seem
+  tricky at '
 pubDate: 2026-05-23
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-set-time-on-pioneer-car-stereo&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Setting Stereo Clocks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-set-time-on-pioneer-car-stereo&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Want to know how to set the time on your Pioneer car stereo quickly and without hassle? You're in the right place.**

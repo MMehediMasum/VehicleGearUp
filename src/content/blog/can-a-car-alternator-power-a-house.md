@@ -1,10 +1,14 @@
 ---
-title: "Can a Car Alternator Power a House: Shocking Truth Revealed!"
-description: "Have you ever wondered if your car’s alternator could keep your home lights on during a power outage? It sounds like a clever idea, right? Using something alrea"
+title: 'Can a Car Alternator Power a House: Shocking Truth Revealed!'
+description: Have you ever wondered if your car’s alternator could keep your home
+  lights on during a power outage? It sounds like a clever idea, right? Using something
+  alrea
 pubDate: 2025-09-24
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-a-car-alternator-power-a-house&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Charging While Idling
+heroImage: https://tse1.mm.bing.net/th?q=can-a-car-alternator-power-a-house&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if your car’s alternator could keep your home lights on during a power outage? It sounds like a clever idea, right?**

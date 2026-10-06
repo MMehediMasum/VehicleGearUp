@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Toyota Tundra 4X4: Top Picks for Off-Road Performance"
-description: "Choosing the best tires and accessories for your Toyota Tundra 4X4 improves its performance and safety. Proper fit and quality parts make driving smoother on an"
+title: 'Best Tires for Toyota Tundra 4X4: Top Picks for Off-Road Performance'
+description: Choosing the best tires and accessories for your Toyota Tundra 4X4 improves
+  its performance and safety. Proper fit and quality parts make driving smoother on
+  an
 pubDate: 2025-12-25
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-toyota-tundra-4x4&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford 4x4 Truck Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-toyota-tundra-4x4&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires and accessories for your Toyota Tundra 4X4 improves its performance and safety. Proper fit and quality parts make driving smoother on and off-road.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Wrx All Season: Top High Performance Radial Picks"
-description: "Choosing the best tires for your WRX ensures safe driving all year round. All-season tires offer good grip and durability in varied weather. WRX owners need tir"
+title: 'Best Tires for Wrx All Season: Top High Performance Radial Picks'
+description: Choosing the best tires for your WRX ensures safe driving all year round.
+  All-season tires offer good grip and durability in varied weather. WRX owners need
+  tir
 pubDate: 2025-12-26
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-wrx-all-season&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- All Season SUV Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-wrx-all-season&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your WRX ensures safe driving all year round. All-season tires offer good grip and durability in varied weather.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Change a Audi Q5 Key Battery: Easy Step-by-Step Guide"
-description: "Is your Audi Q5 key not working like it used to? You might be dealing with a dead key battery. Changing the battery in your Audi Q5 key is easier than you think"
+title: 'How to Change a Audi Q5 Key Battery: Easy Step-by-Step Guide'
+description: Is your Audi Q5 key not working like it used to? You might be dealing
+  with a dead key battery. Changing the battery in your Audi Q5 key is easier than
+  you think
 pubDate: 2026-03-24
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-a-audi-q5-key-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Key Batteries
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-a-audi-q5-key-battery&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **Is your Audi Q5 key not working like it used to? You might be dealing with a dead key battery.**

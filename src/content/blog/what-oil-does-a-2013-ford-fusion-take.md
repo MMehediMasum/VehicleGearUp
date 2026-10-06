@@ -1,10 +1,14 @@
 ---
-title: "What Oil Does a 2013 Ford Fusion Take: Ultimate Guide for Peak Performance"
-description: "If you own a 2013 Ford Fusion, you know how important it is to keep your car running smoothly. One simple step can save you from costly repairs and keep your en"
+title: 'What Oil Does a 2013 Ford Fusion Take: Ultimate Guide for Peak Performance'
+description: If you own a 2013 Ford Fusion, you know how important it is to keep your
+  car running smoothly. One simple step can save you from costly repairs and keep
+  your en
 pubDate: 2026-05-16
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-oil-does-a-2013-ford-fusion-take&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- What Oil to Use
+heroImage: https://tse1.mm.bing.net/th?q=what-oil-does-a-2013-ford-fusion-take&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a 2013 Ford Fusion, you know how important it is to keep your car running smoothly. One simple step can save you from costly repairs and keep your engine healthy: using the right oil.**

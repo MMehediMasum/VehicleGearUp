@@ -1,10 +1,14 @@
 ---
-title: "Do Ford Explorers Have Third Row Seating? Ultimate Guide 2025"
-description: "Are you wondering if the Ford Explorer can comfortably fit your whole family or group? If you often find yourself needing extra space for passengers or gear, kn"
+title: Do Ford Explorers Have Third Row Seating? Ultimate Guide 2025
+description: Are you wondering if the Ford Explorer can comfortably fit your whole
+  family or group? If you often find yourself needing extra space for passengers or
+  gear, kn
 pubDate: 2026-05-25
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-ford-explorers-have-third-row-seating&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Third Row and Mileage
+heroImage: https://tse1.mm.bing.net/th?q=do-ford-explorers-have-third-row-seating&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you wondering if the Ford Explorer can comfortably fit your whole family or group? If you often find yourself needing extra space for passengers or gear, knowing whether the Explorer has third row seating is essential.**

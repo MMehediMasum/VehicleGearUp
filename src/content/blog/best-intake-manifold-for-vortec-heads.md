@@ -1,10 +1,14 @@
 ---
-title: "Best Intake Manifold for Vortec Heads: Top Aluminum Dual Plane Choices"
-description: "Choosing the best intake manifold for Vortec heads improves engine power and efficiency. It affects airflow, fuel delivery, and overall performance. Vortec head"
+title: 'Best Intake Manifold for Vortec Heads: Top Aluminum Dual Plane Choices'
+description: Choosing the best intake manifold for Vortec heads improves engine power
+  and efficiency. It affects airflow, fuel delivery, and overall performance. Vortec
+  head
 pubDate: 2026-06-25
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-intake-manifold-for-vortec-heads&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Intake Manifolds
+heroImage: https://tse1.mm.bing.net/th?q=best-intake-manifold-for-vortec-heads&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best intake manifold for Vortec heads improves engine power and efficiency. It affects airflow, fuel delivery, and overall performance.**

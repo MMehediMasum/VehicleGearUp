@@ -1,10 +1,14 @@
 ---
-title: "Best Spark Plug Wires for SBC With Headers: Top Durable Heat Shields"
-description: "Choosing the best spark plug wires for SBC with headers improves engine performance and protects wires from heat damage. Proper wires ensure a strong spark and "
+title: 'Best Spark Plug Wires for SBC With Headers: Top Durable Heat Shields'
+description: 'Choosing the best spark plug wires for SBC with headers improves engine
+  performance and protects wires from heat damage. Proper wires ensure a strong spark
+  and '
 pubDate: 2026-06-10
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-spark-plug-wires-for-sbc-with-headers&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Chevy and GMC Spark Plugs
+heroImage: https://tse1.mm.bing.net/th?q=best-spark-plug-wires-for-sbc-with-headers&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best spark plug wires for SBC with headers improves engine performance and protects wires from heat damage. Proper wires ensure a strong spark and fit well under headers.**

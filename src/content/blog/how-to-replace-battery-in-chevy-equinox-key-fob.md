@@ -1,10 +1,14 @@
 ---
-title: "How to Replace Battery in Chevy Equinox Key Fob: Easy Step-by-Step Guide"
-description: "Is your Chevy Equinox key fob acting up or completely dead? It might be time to replace the battery. Don’t worry—changing the battery in your key fob is easier "
+title: 'How to Replace Battery in Chevy Equinox Key Fob: Easy Step-by-Step Guide'
+description: 'Is your Chevy Equinox key fob acting up or completely dead? It might
+  be time to replace the battery. Don’t worry—changing the battery in your key fob
+  is easier '
 pubDate: 2025-10-11
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-replace-battery-in-chevy-equinox-key-fob&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Key Fob Battery Replacement
+heroImage: https://tse1.mm.bing.net/th?q=how-to-replace-battery-in-chevy-equinox-key-fob&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **Is your Chevy Equinox key fob acting up or completely dead? It might be time to replace the battery.**

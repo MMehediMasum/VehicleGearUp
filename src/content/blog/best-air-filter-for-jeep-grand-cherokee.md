@@ -1,10 +1,14 @@
 ---
-title: "Best Air Filter for Jeep Grand Cherokee: Top Picks for Ultimate Performance"
-description: "Choosing the best air filter for your Jeep Grand Cherokee improves engine life and cabin air quality. Quality filters keep dirt out and allow smooth airflow. A "
+title: 'Best Air Filter for Jeep Grand Cherokee: Top Picks for Ultimate Performance'
+description: 'Choosing the best air filter for your Jeep Grand Cherokee improves engine
+  life and cabin air quality. Quality filters keep dirt out and allow smooth airflow.
+  A '
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-air-filter-for-jeep-grand-cherokee&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Cabin Air Filters
+heroImage: https://tse1.mm.bing.net/th?q=best-air-filter-for-jeep-grand-cherokee&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Choosing the best air filter for your Jeep Grand Cherokee improves engine life and cabin air quality. Quality filters keep dirt out and allow smooth airflow.**

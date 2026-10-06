@@ -1,10 +1,14 @@
 ---
-title: "Best Iron Remover for Car Paint to Restore Shine and Protection"
-description: "Iron particles and brake dust damage car paint over time. Using the best iron remover protects your vehicle’s finish and shine. Iron fallout, brake dust, and in"
+title: Best Iron Remover for Car Paint to Restore Shine and Protection
+description: Iron particles and brake dust damage car paint over time. Using the best
+  iron remover protects your vehicle’s finish and shine. Iron fallout, brake dust,
+  and in
 pubDate: 2026-07-02
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-iron-remover-for-car-paint&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Water Spot Removal
+heroImage: https://tse1.mm.bing.net/th?q=best-iron-remover-for-car-paint&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Iron particles and brake dust damage car paint over time. Using the best iron remover protects your vehicle’s finish and shine.**

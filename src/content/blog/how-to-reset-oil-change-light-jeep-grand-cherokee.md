@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Change Light Jeep Grand Cherokee: Quick Guide"
-description: "Is your Jeep Grand Cherokee’s oil change light still on after you’ve changed the oil? That little warning can be annoying and distracting. You want to make sure"
+title: 'How to Reset Oil Change Light Jeep Grand Cherokee: Quick Guide'
+description: Is your Jeep Grand Cherokee’s oil change light still on after you’ve
+  changed the oil? That little warning can be annoying and distracting. You want to
+  make sure
 pubDate: 2026-04-28
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-change-light-jeep-grand-cherokee&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Oil Change Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-change-light-jeep-grand-cherokee&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your Jeep Grand Cherokee’s oil change light still on after you’ve changed the oil? That little warning can be annoying and distracting.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Foot Air Pump for Car Tires: Top Portable Inflators Reviewed"
-description: "Choosing the best foot air pump for car tires helps keep your vehicle safe and ready to drive. A reliable pump fills tires quickly and shows accurate pressure r"
+title: 'Best Foot Air Pump for Car Tires: Top Portable Inflators Reviewed'
+description: Choosing the best foot air pump for car tires helps keep your vehicle
+  safe and ready to drive. A reliable pump fills tires quickly and shows accurate
+  pressure r
 pubDate: 2025-12-31
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-foot-air-pump-for-car-tires&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tire Inflators and Compressors
+heroImage: https://tse1.mm.bing.net/th?q=best-foot-air-pump-for-car-tires&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best foot air pump for car tires helps keep your vehicle safe and ready to drive. A reliable pump fills tires quickly and shows accurate pressure readings.**

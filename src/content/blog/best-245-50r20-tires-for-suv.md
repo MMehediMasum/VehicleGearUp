@@ -1,10 +1,13 @@
 ---
-title: "Best 245 50R20 Tires for SUV: Top All-Season Picks for Performance"
-description: "Choosing the best 245/50R20 tires can improve your SUV’s safety and performance. This size fits many SUVs, requiring reliable all-season tires. SUV tires must h"
+title: 'Best 245 50R20 Tires for SUV: Top All-Season Picks for Performance'
+description: Choosing the best 245/50R20 tires can improve your SUV’s safety and performance.
+  This size fits many SUVs, requiring reliable all-season tires. SUV tires must h
 pubDate: 2025-12-22
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-245-50r20-tires-for-suv&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Mud Street and RV Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-245-50r20-tires-for-suv&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best 245/50R20 tires can improve your SUV’s safety and performance. This size fits many SUVs, requiring reliable all-season tires.**

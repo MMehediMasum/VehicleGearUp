@@ -1,10 +1,14 @@
 ---
-title: "Can You Jump a Moped With a Car Battery? Quick Guide & Tips"
-description: "Have you ever found yourself stuck with a dead moped battery and wondered if your car battery could save the day? It’s a common question, and knowing the answer"
+title: Can You Jump a Moped With a Car Battery? Quick Guide & Tips
+description: Have you ever found yourself stuck with a dead moped battery and wondered
+  if your car battery could save the day? It’s a common question, and knowing the
+  answer
 pubDate: 2025-09-19
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-jump-a-moped-with-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jump Starting Special Cases
+heroImage: https://tse1.mm.bing.net/th?q=can-you-jump-a-moped-with-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever found yourself stuck with a dead moped battery and wondered if your car battery could save the day? It’s a common question, and knowing the answer can save you time, hassle, and maybe even a tow.**

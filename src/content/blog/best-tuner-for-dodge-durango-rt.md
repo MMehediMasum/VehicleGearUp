@@ -1,10 +1,14 @@
 ---
-title: "Best Tuner for Dodge Durango Rt: Top Performance Upgrades Reviewed"
-description: "Choosing the best tuner for your Dodge Durango RT can improve performance and driving experience. A good tuner adjusts engine settings for better power and effi"
+title: 'Best Tuner for Dodge Durango Rt: Top Performance Upgrades Reviewed'
+description: Choosing the best tuner for your Dodge Durango RT can improve performance
+  and driving experience. A good tuner adjusts engine settings for better power and
+  effi
 pubDate: 2026-06-05
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tuner-for-dodge-durango-rt&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Engine Tuners and Throttle Upgrades
+heroImage: https://tse1.mm.bing.net/th?q=best-tuner-for-dodge-durango-rt&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best tuner for your Dodge Durango RT can improve performance and driving experience. A good tuner adjusts engine settings for better power and efficiency.**

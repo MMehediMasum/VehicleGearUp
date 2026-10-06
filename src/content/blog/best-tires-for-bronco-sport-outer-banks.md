@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Bronco Sport Outer Banks: Top Spare Tire Covers Reviewed"
-description: "Choosing the best tires for the Bronco Sport Outer Banks improves safety and driving comfort. Proper tires handle rough roads and protect your vehicle parts. Th"
+title: 'Best Tires for Bronco Sport Outer Banks: Top Spare Tire Covers Reviewed'
+description: Choosing the best tires for the Bronco Sport Outer Banks improves safety
+  and driving comfort. Proper tires handle rough roads and protect your vehicle parts.
+  Th
 pubDate: 2026-01-03
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-bronco-sport-outer-banks&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Sport Model Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-bronco-sport-outer-banks&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for the Bronco Sport Outer Banks improves safety and driving comfort. Proper tires handle rough roads and protect your vehicle parts.**

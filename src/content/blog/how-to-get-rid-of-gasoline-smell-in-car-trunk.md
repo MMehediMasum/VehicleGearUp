@@ -1,10 +1,14 @@
 ---
-title: "How to Get Rid of Gasoline Smell in Car Trunk: Quick & Easy Tips"
-description: "Have you ever opened your car trunk and been hit by that strong, unpleasant gasoline smell? It’s not just annoying—it can be harmful and hard to get rid of. If "
+title: 'How to Get Rid of Gasoline Smell in Car Trunk: Quick & Easy Tips'
+description: 'Have you ever opened your car trunk and been hit by that strong, unpleasant
+  gasoline smell? It’s not just annoying—it can be harmful and hard to get rid of.
+  If '
 pubDate: 2025-12-07
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-get-rid-of-gasoline-smell-in-car-trunk&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Air Fresheners and Odors
+heroImage: https://tse1.mm.bing.net/th?q=how-to-get-rid-of-gasoline-smell-in-car-trunk&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever opened your car trunk and been hit by that strong, unpleasant gasoline smell? It’s not just annoying—it can be harmful and hard to get rid of.**

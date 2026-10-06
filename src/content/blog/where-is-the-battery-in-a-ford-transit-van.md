@@ -1,10 +1,14 @@
 ---
-title: "Where is the Battery in a Ford Transit Van: Quick Location Guide"
-description: "Are you wondering where the battery is located in your Ford Transit van? Knowing exactly where to find it can save you time and frustration, especially if your "
+title: 'Where is the Battery in a Ford Transit Van: Quick Location Guide'
+description: 'Are you wondering where the battery is located in your Ford Transit
+  van? Knowing exactly where to find it can save you time and frustration, especially
+  if your '
 pubDate: 2025-10-21
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-is-the-battery-in-a-ford-transit-van&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Finding the Battery Location
+heroImage: https://tse1.mm.bing.net/th?q=where-is-the-battery-in-a-ford-transit-van&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you wondering where the battery is located in your Ford Transit van? Knowing exactly where to find it can save you time and frustration, especially if your van won’t start or you need to jump-start it quickly.**

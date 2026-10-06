@@ -1,10 +1,14 @@
 ---
-title: "How to Add Freon to Honda Civic: Easy Steps for Cool AC Today"
-description: "Is your Honda Civic’s air conditioning not cooling like it used to? Adding Freon can bring back that refreshing chill on hot days. But how do you do it safely a"
+title: 'How to Add Freon to Honda Civic: Easy Steps for Cool AC Today'
+description: Is your Honda Civic’s air conditioning not cooling like it used to? Adding
+  Freon can bring back that refreshing chill on hot days. But how do you do it safely
+  a
 pubDate: 2025-12-09
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-add-freon-to-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Coolant and AC Recharge
+heroImage: https://tse1.mm.bing.net/th?q=how-to-add-freon-to-honda-civic&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your Honda Civic’s air conditioning not cooling like it used to? Adding Freon can bring back that refreshing chill on hot days.**

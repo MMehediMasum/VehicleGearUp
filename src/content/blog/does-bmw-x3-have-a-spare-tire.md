@@ -1,10 +1,14 @@
 ---
-title: "Does BMW X3 Have a Spare Tire: Essential Facts Revealed"
-description: "If you own a BMW X3 or are thinking about getting one, you might be wondering: Does the BMW X3 have a spare tire? This question matters more than you might thin"
+title: 'Does BMW X3 Have a Spare Tire: Essential Facts Revealed'
+description: 'If you own a BMW X3 or are thinking about getting one, you might be
+  wondering: Does the BMW X3 have a spare tire? This question matters more than you
+  might thin'
 pubDate: 2025-08-31
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-bmw-x3-have-a-spare-tire&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spare Tires and Tire Changing
+heroImage: https://tse1.mm.bing.net/th?q=does-bmw-x3-have-a-spare-tire&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **If you own a BMW X3 or are thinking about getting one, you might be wondering: Does the BMW X3 have a spare tire? This question matters more than you might think.**

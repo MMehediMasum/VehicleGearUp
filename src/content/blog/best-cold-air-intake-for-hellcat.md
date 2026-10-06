@@ -1,10 +1,13 @@
 ---
-title: "Best Cold Air Intake for Hellcat to Boost Power and Performance"
-description: "Choosing the best cold air intake for your Hellcat can boost engine power and improve airflow. A quality intake system helps your car breathe better and perform"
+title: Best Cold Air Intake for Hellcat to Boost Power and Performance
+description: Choosing the best cold air intake for your Hellcat can boost engine power
+  and improve airflow. A quality intake system helps your car breathe better and perform
 pubDate: 2026-06-27
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-hellcat&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hemi Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-hellcat&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best cold air intake for your Hellcat can boost engine power and improve airflow. A quality intake system helps your car breathe better and perform stronger.**

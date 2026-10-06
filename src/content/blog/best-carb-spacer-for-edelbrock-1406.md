@@ -1,10 +1,14 @@
 ---
-title: "Best Carb Spacer for Edelbrock 1406: Top Picks for Performance Boost"
-description: "Choosing the best carb spacer for your Edelbrock 1406 improves engine performance and throttle response. Carb spacers help with airflow, fuel atomization, and h"
+title: 'Best Carb Spacer for Edelbrock 1406: Top Picks for Performance Boost'
+description: Choosing the best carb spacer for your Edelbrock 1406 improves engine
+  performance and throttle response. Carb spacers help with airflow, fuel atomization,
+  and h
 pubDate: 2026-05-31
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-carb-spacer-for-edelbrock-1406&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Carburetor and Fuel Injection Kits
+heroImage: https://tse1.mm.bing.net/th?q=best-carb-spacer-for-edelbrock-1406&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best carb spacer for your Edelbrock 1406 improves engine performance and throttle response. Carb spacers help with airflow, fuel atomization, and heat management.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Dodge Charger Rt: Top Picks for Ultimate Performance"
-description: "Choosing the best tires for your Dodge Charger RT boosts performance and safety on the road. Quality tires improve grip, handling, and ride comfort in all condi"
+title: 'Best Tires for Dodge Charger Rt: Top Picks for Ultimate Performance'
+description: Choosing the best tires for your Dodge Charger RT boosts performance
+  and safety on the road. Quality tires improve grip, handling, and ride comfort in
+  all condi
 pubDate: 2026-07-09
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-dodge-charger-rt&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ram and Dodge Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-dodge-charger-rt&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your Dodge Charger RT boosts performance and safety on the road. Quality tires improve grip, handling, and ride comfort in all conditions.**

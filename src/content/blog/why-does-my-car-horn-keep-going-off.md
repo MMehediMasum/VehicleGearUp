@@ -1,10 +1,14 @@
 ---
-title: "Why Does My Car Horn Keep Going off: Causes & Easy Fixes"
-description: "Have you ever been startled by your car horn blaring out of nowhere? It’s frustrating, confusing, and can even be embarrassing. If your car horn keeps going off"
+title: 'Why Does My Car Horn Keep Going off: Causes & Easy Fixes'
+description: Have you ever been startled by your car horn blaring out of nowhere?
+  It’s frustrating, confusing, and can even be embarrassing. If your car horn keeps
+  going off
 pubDate: 2026-01-31
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-does-my-car-horn-keep-going-off&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Horn Problems
+heroImage: https://tse1.mm.bing.net/th?q=why-does-my-car-horn-keep-going-off&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Have you ever been startled by your car horn blaring out of nowhere? It’s frustrating, confusing, and can even be embarrassing.**

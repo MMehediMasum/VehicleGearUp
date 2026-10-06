@@ -1,10 +1,14 @@
 ---
-title: "Best Dash Cam for Car Front And Rear: Ultimate Dual Camera Guide"
-description: "Choosing the best dash cam for car front and rear can improve your driving safety and security. Dual dash cams capture clear video of both road and cabin in one"
+title: 'Best Dash Cam for Car Front And Rear: Ultimate Dual Camera Guide'
+description: Choosing the best dash cam for car front and rear can improve your driving
+  safety and security. Dual dash cams capture clear video of both road and cabin in
+  one
 pubDate: 2026-07-28
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-dash-cam-for-car-front-and-rear&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Dash Cams and Backup Cameras
+heroImage: https://tse1.mm.bing.net/th?q=best-dash-cam-for-car-front-and-rear&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Choosing the best dash cam for car front and rear can improve your driving safety and security. Dual dash cams capture clear video of both road and cabin in one device.**

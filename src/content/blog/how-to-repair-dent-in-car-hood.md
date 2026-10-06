@@ -1,10 +1,14 @@
 ---
-title: "How to Repair Dent in Car Hood: Easy Steps for a Flawless Fix"
-description: "Have you noticed a dent on your car hood that just won’t go away? It’s frustrating to see your vehicle’s smooth surface marred by a dent. But here’s the good ne"
+title: 'How to Repair Dent in Car Hood: Easy Steps for a Flawless Fix'
+description: Have you noticed a dent on your car hood that just won’t go away? It’s
+  frustrating to see your vehicle’s smooth surface marred by a dent. But here’s the
+  good ne
 pubDate: 2026-04-22
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-repair-dent-in-car-hood&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hood Dents and Chips
+heroImage: https://tse1.mm.bing.net/th?q=how-to-repair-dent-in-car-hood&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you noticed a dent on your car hood that just won’t go away? It’s frustrating to see your vehicle’s smooth surface marred by a dent.**

@@ -1,10 +1,13 @@
 ---
-title: "Is a Ford Explorer Rear Wheel Drive? Uncover the Truth Today!"
-description: "Are you curious about how your Ford Explorer handles the road? Understanding whether your Explorer is rear wheel drive can make a big difference in how you driv"
+title: Is a Ford Explorer Rear Wheel Drive? Uncover the Truth Today!
+description: Are you curious about how your Ford Explorer handles the road? Understanding
+  whether your Explorer is rear wheel drive can make a big difference in how you driv
 pubDate: 2025-09-24
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-a-ford-explorer-rear-wheel-drive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford 4WD Questions
+heroImage: https://tse1.mm.bing.net/th?q=is-a-ford-explorer-rear-wheel-drive&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you curious about how your Ford Explorer handles the road? Understanding whether your Explorer is rear wheel drive can make a big difference in how you drive and maintain your vehicle.**

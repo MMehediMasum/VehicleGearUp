@@ -1,10 +1,14 @@
 ---
-title: "How Do I Know If My Car Needs Brake Fluid: Key Signs to Watch"
-description: "Have you ever wondered if your car’s brakes are truly ready to keep you safe on the road? One key part that often goes unnoticed is the brake fluid. If your bra"
+title: 'How Do I Know If My Car Needs Brake Fluid: Key Signs to Watch'
+description: Have you ever wondered if your car’s brakes are truly ready to keep you
+  safe on the road? One key part that often goes unnoticed is the brake fluid. If
+  your bra
 pubDate: 2026-05-03
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-i-know-if-my-car-needs-brake-fluid&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Brake and Washer Fluids
+heroImage: https://tse1.mm.bing.net/th?q=how-do-i-know-if-my-car-needs-brake-fluid&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever wondered if your car’s brakes are truly ready to keep you safe on the road? One key part that often goes unnoticed is the brake fluid.**

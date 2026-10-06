@@ -1,10 +1,14 @@
 ---
-title: "Does Mr Car Wash Have Free Vacuums? Discover the Truth Now!"
-description: "Are you tired of paying extra for car cleaning services? You might be wondering, does Mr Car Wash offer free vacuums with their washes? Knowing the answer can s"
+title: Does Mr Car Wash Have Free Vacuums? Discover the Truth Now!
+description: Are you tired of paying extra for car cleaning services? You might be
+  wondering, does Mr Car Wash offer free vacuums with their washes? Knowing the answer
+  can s
 pubDate: 2026-03-23
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-mr-car-wash-have-free-vacuums&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wash Costs and Etiquette
+heroImage: https://tse1.mm.bing.net/th?q=does-mr-car-wash-have-free-vacuums&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Are you tired of paying extra for car cleaning services? You might be wondering, does Mr Car Wash offer free vacuums with their washes?**

@@ -1,10 +1,14 @@
 ---
-title: "How to Tell Age of Car Battery: Easy Tips to Check Battery Life"
-description: "Have you ever wondered how old your car battery really is? Knowing your battery’s age can save you from unexpected breakdowns and costly repairs. But how can yo"
+title: 'How to Tell Age of Car Battery: Easy Tips to Check Battery Life'
+description: Have you ever wondered how old your car battery really is? Knowing your
+  battery’s age can save you from unexpected breakdowns and costly repairs. But how
+  can yo
 pubDate: 2025-10-21
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-tell-age-of-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Types and Specs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-tell-age-of-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered how old your car battery really is? Knowing your battery’s age can save you from unexpected breakdowns and costly repairs.**

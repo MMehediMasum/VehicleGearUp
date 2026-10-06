@@ -1,10 +1,14 @@
 ---
-title: "How to Use a Motorcycle Lift Stand: Easy Steps for Safe Lifting"
-description: "If you own a motorcycle, you know how important it is to keep it in top shape. But lifting your bike safely and easily can be a challenge. That’s where a motorc"
+title: 'How to Use a Motorcycle Lift Stand: Easy Steps for Safe Lifting'
+description: If you own a motorcycle, you know how important it is to keep it in top
+  shape. But lifting your bike safely and easily can be a challenge. That’s where
+  a motorc
 pubDate: 2025-11-15
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-use-a-motorcycle-lift-stand&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Helmets and Boots
+heroImage: https://tse1.mm.bing.net/th?q=how-to-use-a-motorcycle-lift-stand&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **If you own a motorcycle, you know how important it is to keep it in top shape. But lifting your bike safely and easily can be a challenge.**

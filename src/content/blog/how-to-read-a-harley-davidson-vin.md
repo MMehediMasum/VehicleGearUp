@@ -1,10 +1,14 @@
 ---
-title: "How to Read a Harley Davidson Vin: Decode Your Bike’s Identity Fast"
-description: "If you own a Harley Davidson or are thinking about buying one, knowing how to read its VIN can save you time and money. The Vehicle Identification Number holds "
+title: 'How to Read a Harley Davidson Vin: Decode Your Bike’s Identity Fast'
+description: 'If you own a Harley Davidson or are thinking about buying one, knowing
+  how to read its VIN can save you time and money. The Vehicle Identification Number
+  holds '
 pubDate: 2026-03-02
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-read-a-harley-davidson-vin&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Ownership Questions
+heroImage: https://tse1.mm.bing.net/th?q=how-to-read-a-harley-davidson-vin&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **If you own a Harley Davidson or are thinking about buying one, knowing how to read its VIN can save you time and money. The Vehicle Identification Number holds important details about your bike’s history, model, and manufacturing.**

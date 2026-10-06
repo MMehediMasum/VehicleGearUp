@@ -1,10 +1,14 @@
 ---
-title: "What is Double Din in Car Stereo: Ultimate Guide to Features & Benefits"
-description: "Are you thinking about upgrading your car stereo but keep hearing the term \"Double Din\"? You might wonder what it actually means and why it matters for your sou"
+title: 'What is Double Din in Car Stereo: Ultimate Guide to Features & Benefits'
+description: Are you thinking about upgrading your car stereo but keep hearing the
+  term "Double Din"? You might wonder what it actually means and why it matters for
+  your sou
 pubDate: 2025-09-15
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-double-din-in-car-stereo&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Stereo Installation Help
+heroImage: https://tse1.mm.bing.net/th?q=what-is-double-din-in-car-stereo&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are you thinking about upgrading your car stereo but keep hearing the term "Double Din"? You might wonder what it actually means and why it matters for your sound system.**

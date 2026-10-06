@@ -1,10 +1,14 @@
 ---
-title: "What Does Cca Mean on a Car Battery: Essential Guide Explained"
-description: "Have you ever looked at your car battery and wondered what those letters and numbers mean? If you’ve seen \"CCA\" on your battery and felt confused, you’re not al"
+title: 'What Does Cca Mean on a Car Battery: Essential Guide Explained'
+description: Have you ever looked at your car battery and wondered what those letters
+  and numbers mean? If you’ve seen "CCA" on your battery and felt confused, you’re
+  not al
 pubDate: 2026-04-13
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-does-cca-mean-on-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Ratings Explained
+heroImage: https://tse1.mm.bing.net/th?q=what-does-cca-mean-on-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever looked at your car battery and wondered what those letters and numbers mean? If you’ve seen "CCA" on your battery and felt confused, you’re not alone.**

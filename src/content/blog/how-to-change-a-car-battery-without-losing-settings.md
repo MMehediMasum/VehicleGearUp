@@ -1,10 +1,14 @@
 ---
-title: "How to Change a Car Battery Without Losing Settings: Easy Steps"
-description: "Changing your car battery can feel like a hassle, especially when you worry about losing all your settings—radio presets, clock, and even your seat memory. But "
+title: 'How to Change a Car Battery Without Losing Settings: Easy Steps'
+description: 'Changing your car battery can feel like a hassle, especially when you
+  worry about losing all your settings—radio presets, clock, and even your seat memory.
+  But '
 pubDate: 2026-04-02
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-a-car-battery-without-losing-settings&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing a Car Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-a-car-battery-without-losing-settings&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Changing your car battery can feel like a hassle, especially when you worry about losing all your settings—radio presets, clock, and even your seat memory. But what if you could swap out your battery without losing any of that?**

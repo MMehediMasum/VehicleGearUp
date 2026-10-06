@@ -1,10 +1,14 @@
 ---
-title: "Best Gas Pressure Washer for Car Detailing: Top Picks for Powerful Cleaning"
-description: "Choosing the best gas pressure washer for car detailing ensures a thorough and efficient clean every time. Powerful machines cut through dirt and grime fast, sa"
+title: 'Best Gas Pressure Washer for Car Detailing: Top Picks for Powerful Cleaning'
+description: Choosing the best gas pressure washer for car detailing ensures a thorough
+  and efficient clean every time. Powerful machines cut through dirt and grime fast,
+  sa
 pubDate: 2026-07-06
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-gas-pressure-washer-for-car-detailing&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Detailing Equipment
+heroImage: https://tse1.mm.bing.net/th?q=best-gas-pressure-washer-for-car-detailing&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best gas pressure washer for car detailing ensures a thorough and efficient clean every time. Powerful machines cut through dirt and grime fast, saving time and effort.**

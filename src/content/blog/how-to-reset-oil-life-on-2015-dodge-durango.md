@@ -1,10 +1,13 @@
 ---
-title: "How to Reset Oil Life on 2015 Dodge Durango: Quick & Easy Guide"
-description: "If you own a 2015 Dodge Durango, knowing how to reset the oil life indicator is key to keeping your vehicle running smoothly. Ignoring this simple step can lead"
+title: 'How to Reset Oil Life on 2015 Dodge Durango: Quick & Easy Guide'
+description: If you own a 2015 Dodge Durango, knowing how to reset the oil life indicator
+  is key to keeping your vehicle running smoothly. Ignoring this simple step can lead
 pubDate: 2026-04-21
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-life-on-2015-dodge-durango&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ram and Dodge Oil Life
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-life-on-2015-dodge-durango&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a 2015 Dodge Durango, knowing how to reset the oil life indicator is key to keeping your vehicle running smoothly. Ignoring this simple step can lead to confusion about when your next oil change is due—and that can cost you time and money.**

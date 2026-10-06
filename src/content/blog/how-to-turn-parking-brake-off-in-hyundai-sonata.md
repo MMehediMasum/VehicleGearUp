@@ -1,10 +1,13 @@
 ---
-title: "How to Turn Parking Brake off in Hyundai Sonata: Quick & Easy Guide"
-description: "Have you ever sat in your Hyundai Sonata, ready to drive, but the parking brake just won’t turn off? It’s a small issue that can quickly turn into a frustrating"
+title: 'How to Turn Parking Brake off in Hyundai Sonata: Quick & Easy Guide'
+description: Have you ever sat in your Hyundai Sonata, ready to drive, but the parking
+  brake just won’t turn off? It’s a small issue that can quickly turn into a frustrating
 pubDate: 2026-04-30
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-parking-brake-off-in-hyundai-sonata&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Parking Brake Help
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-parking-brake-off-in-hyundai-sonata&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever sat in your Hyundai Sonata, ready to drive, but the parking brake just won’t turn off? It’s a small issue that can quickly turn into a frustrating roadblock.**

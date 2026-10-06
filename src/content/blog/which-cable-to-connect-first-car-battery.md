@@ -1,10 +1,14 @@
 ---
-title: "Which Cable to Connect First Car Battery: Essential Safety Tips"
-description: "If you’ve ever wondered which cable to connect first when jump-starting or replacing your car battery, you’re not alone. Getting it wrong can be confusing and e"
+title: 'Which Cable to Connect First Car Battery: Essential Safety Tips'
+description: If you’ve ever wondered which cable to connect first when jump-starting
+  or replacing your car battery, you’re not alone. Getting it wrong can be confusing
+  and e
 pubDate: 2026-04-27
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=which-cable-to-connect-first-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Disconnect Order
+heroImage: https://tse1.mm.bing.net/th?q=which-cable-to-connect-first-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **If you’ve ever wondered which cable to connect first when jump-starting or replacing your car battery, you’re not alone. Getting it wrong can be confusing and even risky.**

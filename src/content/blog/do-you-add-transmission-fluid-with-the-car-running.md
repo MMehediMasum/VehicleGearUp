@@ -1,10 +1,14 @@
 ---
-title: "Do You Add Transmission Fluid With the Car Running? Expert Tips"
-description: "Are you wondering whether you should add transmission fluid with the car running? It’s a common question that can save you from costly mistakes. The way you han"
+title: Do You Add Transmission Fluid With the Car Running? Expert Tips
+description: Are you wondering whether you should add transmission fluid with the
+  car running? It’s a common question that can save you from costly mistakes. The
+  way you han
 pubDate: 2026-05-17
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-you-add-transmission-fluid-with-the-car-running&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Adding Transmission Fluid
+heroImage: https://tse1.mm.bing.net/th?q=do-you-add-transmission-fluid-with-the-car-running&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Are you wondering whether you should add transmission fluid with the car running? It’s a common question that can save you from costly mistakes.**

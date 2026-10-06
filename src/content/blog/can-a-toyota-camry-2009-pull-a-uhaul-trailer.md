@@ -1,10 +1,14 @@
 ---
-title: "Can a Toyota Camry 2009 Pull a Uhaul Trailer: Essential Tips"
-description: "Are you wondering if your 2009 Toyota Camry can pull a U-Haul trailer? Maybe you’re planning a move or need to haul some extra stuff but aren’t sure if your car"
+title: 'Can a Toyota Camry 2009 Pull a Uhaul Trailer: Essential Tips'
+description: Are you wondering if your 2009 Toyota Camry can pull a U-Haul trailer?
+  Maybe you’re planning a move or need to haul some extra stuff but aren’t sure if
+  your car
 pubDate: 2025-09-15
-author: "herbertlangham"
-categories: ["Towing & Hauling"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-a-toyota-camry-2009-pull-a-uhaul-trailer&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Trailer Gear and Accessories
+heroImage: https://tse1.mm.bing.net/th?q=can-a-toyota-camry-2009-pull-a-uhaul-trailer&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Are you wondering if your 2009 Toyota Camry can pull a U-Haul trailer? Maybe you’re planning a move or need to haul some extra stuff but aren’t sure if your car is up to the task.**

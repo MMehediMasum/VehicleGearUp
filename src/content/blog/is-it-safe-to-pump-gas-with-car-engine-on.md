@@ -1,10 +1,14 @@
 ---
-title: "Is It Safe to Pump Gas With Car Engine On: Essential Safety Tips"
-description: "Have you ever wondered if it’s really safe to pump gas with your car engine running? You might think it’s just a small thing, but it’s one of those questions th"
+title: 'Is It Safe to Pump Gas With Car Engine On: Essential Safety Tips'
+description: Have you ever wondered if it’s really safe to pump gas with your car
+  engine running? You might think it’s just a small thing, but it’s one of those questions
+  th
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-it-safe-to-pump-gas-with-car-engine-on&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- How Car Engines Work
+heroImage: https://tse1.mm.bing.net/th?q=is-it-safe-to-pump-gas-with-car-engine-on&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you ever wondered if it’s really safe to pump gas with your car engine running? You might think it’s just a small thing, but it’s one of those questions that can make you stop and think.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Mountain Bike Seat for Big Guys: Ultimate Comfort and Support Guide"
-description: "Finding the best mountain bike seat for big guys can greatly improve riding comfort. A good seat supports weight evenly and reduces pressure points. Big riders "
+title: 'Best Mountain Bike Seat for Big Guys: Ultimate Comfort and Support Guide'
+description: 'Finding the best mountain bike seat for big guys can greatly improve
+  riding comfort. A good seat supports weight evenly and reduces pressure points.
+  Big riders '
 pubDate: 2026-07-21
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-mountain-bike-seat-for-big-guys&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Bike Seats and Comfort
+heroImage: https://tse1.mm.bing.net/th?q=best-mountain-bike-seat-for-big-guys&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Finding the best mountain bike seat for big guys can greatly improve riding comfort. A good seat supports weight evenly and reduces pressure points.**

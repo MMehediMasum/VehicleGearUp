@@ -1,10 +1,14 @@
 ---
-title: "Best Battery for Can am X3: Top Reliable AGM and Lithium Picks"
-description: "Choosing the best battery for your Can-Am X3 ensures reliable starts and peak performance. A quality battery powers your vehicle through tough rides and extreme"
+title: 'Best Battery for Can am X3: Top Reliable AGM and Lithium Picks'
+description: Choosing the best battery for your Can-Am X3 ensures reliable starts
+  and peak performance. A quality battery powers your vehicle through tough rides
+  and extreme
 pubDate: 2026-07-09
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-battery-for-can-am-x3&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Powersports Batteries
+heroImage: https://tse1.mm.bing.net/th?q=best-battery-for-can-am-x3&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best battery for your Can-Am X3 ensures reliable starts and peak performance. A quality battery powers your vehicle through tough rides and extreme conditions.**

@@ -1,10 +1,14 @@
 ---
-title: "Does Chevy Equinox Have All Wheel Drive: Ultimate Guide 2025"
-description: "Are you considering a Chevy Equinox but wondering if it comes with all-wheel drive? Whether you live in a place with unpredictable weather or just want extra co"
+title: 'Does Chevy Equinox Have All Wheel Drive: Ultimate Guide 2025'
+description: Are you considering a Chevy Equinox but wondering if it comes with all-wheel
+  drive? Whether you live in a place with unpredictable weather or just want extra
+  co
 pubDate: 2025-10-12
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-chevy-equinox-have-all-wheel-drive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- All Wheel Drive Questions
+heroImage: https://tse1.mm.bing.net/th?q=does-chevy-equinox-have-all-wheel-drive&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you considering a Chevy Equinox but wondering if it comes with all-wheel drive? Whether you live in a place with unpredictable weather or just want extra control on the road, knowing about the Equinox’s drivetrain options is key.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Cargo Liner for Rivian R1S: Ultimate Protection and Durability Guide"
-description: "Choosing the best cargo liner for your Rivian R1S protects the vehicle’s interior and keeps it clean. Cargo liners fit perfectly and handle dirt, spills, and we"
+title: 'Best Cargo Liner for Rivian R1S: Ultimate Protection and Durability Guide'
+description: Choosing the best cargo liner for your Rivian R1S protects the vehicle’s
+  interior and keeps it clean. Cargo liners fit perfectly and handle dirt, spills,
+  and we
 pubDate: 2025-11-20
-author: "herbertlangham"
-categories: ["Towing & Hauling"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cargo-liner-for-rivian-r1s&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Model Y Features
+heroImage: https://tse1.mm.bing.net/th?q=best-cargo-liner-for-rivian-r1s&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best cargo liner for your Rivian R1S protects the vehicle’s interior and keeps it clean. Cargo liners fit perfectly and handle dirt, spills, and wear.**

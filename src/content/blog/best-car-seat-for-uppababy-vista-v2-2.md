@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Car Seat for Uppababy Vista V2: Top Picks for Safety & Comfort"
 description: "Finding the best car seat for the UPPAbaby Vista V2 ensures your baby’s safety and comfort. This stroller works well with several top-rated car seats and access"
 pubDate: 2026-07-27

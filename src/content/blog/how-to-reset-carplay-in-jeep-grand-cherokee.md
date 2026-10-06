@@ -1,10 +1,13 @@
 ---
-title: "How to Reset Carplay in Jeep Grand Cherokee: Quick & Easy Guide"
-description: "Is your CarPlay acting up in your Jeep Grand Cherokee? Maybe it’s not connecting properly, or the screen freezes just when you need it most. Don’t worry—you’re "
+title: 'How to Reset Carplay in Jeep Grand Cherokee: Quick & Easy Guide'
+description: 'Is your CarPlay acting up in your Jeep Grand Cherokee? Maybe it’s not
+  connecting properly, or the screen freezes just when you need it most. Don’t worry—you’re '
 pubDate: 2025-10-17
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-carplay-in-jeep-grand-cherokee&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jeep Grand Cherokee Resets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-carplay-in-jeep-grand-cherokee&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your CarPlay acting up in your Jeep Grand Cherokee? Maybe it’s not connecting properly, or the screen freezes just when you need it most.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for 2019 Honda CR V: Top Picks for Performance and Durability"
-description: "Choosing the best tires for a 2019 Honda CR-V improves safety, comfort, and fuel efficiency. Tires must fit the vehicle’s size and driving style precisely. The "
+title: 'Best Tires for 2019 Honda CR V: Top Picks for Performance and Durability'
+description: 'Choosing the best tires for a 2019 Honda CR-V improves safety, comfort,
+  and fuel efficiency. Tires must fit the vehicle’s size and driving style precisely.
+  The '
 pubDate: 2026-01-11
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-2019-honda-cr-v&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-2019-honda-cr-v&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for a 2019 Honda CR-V improves safety, comfort, and fuel efficiency. Tires must fit the vehicle’s size and driving style precisely.**

@@ -1,10 +1,14 @@
 ---
-title: "What Does a Wheel Bearing on a Car Do: Key Function Explained"
-description: "Have you ever wondered what keeps your car’s wheels turning smoothly without making strange noises? The secret lies in a small but powerful part called the whee"
+title: 'What Does a Wheel Bearing on a Car Do: Key Function Explained'
+description: Have you ever wondered what keeps your car’s wheels turning smoothly
+  without making strange noises? The secret lies in a small but powerful part called
+  the whee
 pubDate: 2025-10-23
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-does-a-wheel-bearing-on-a-car-do&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Steering Wheel Problems and Covers
+heroImage: https://tse1.mm.bing.net/th?q=what-does-a-wheel-bearing-on-a-car-do&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever wondered what keeps your car’s wheels turning smoothly without making strange noises? The secret lies in a small but powerful part called the wheel bearing.**

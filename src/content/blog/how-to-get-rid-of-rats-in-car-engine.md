@@ -1,10 +1,14 @@
 ---
-title: "How to Get Rid of Rats in Car Engine: Effective Tips That Work"
-description: "Are you worried about rats making a home in your car engine? You’re not alone. Rats can cause serious damage by chewing wires and leaving droppings, leading to "
+title: 'How to Get Rid of Rats in Car Engine: Effective Tips That Work'
+description: 'Are you worried about rats making a home in your car engine? You’re
+  not alone. Rats can cause serious damage by chewing wires and leaving droppings,
+  leading to '
 pubDate: 2026-05-11
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-get-rid-of-rats-in-car-engine&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Keeping Pests Out of Engines
+heroImage: https://tse1.mm.bing.net/th?q=how-to-get-rid-of-rats-in-car-engine&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Are you worried about rats making a home in your car engine? You’re not alone.**

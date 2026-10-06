@@ -1,10 +1,13 @@
 ---
-title: "Best Subs for a Single Cab Truck: Top Subwoofer Boxes for Powerful Bass"
-description: "Choosing the best subwoofer for a single cab truck can improve your driving experience. The right sub delivers clear, deep bass without taking up too much space"
+title: 'Best Subs for a Single Cab Truck: Top Subwoofer Boxes for Powerful Bass'
+description: Choosing the best subwoofer for a single cab truck can improve your driving
+  experience. The right sub delivers clear, deep bass without taking up too much space
 pubDate: 2025-11-04
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-subs-for-a-single-cab-truck&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Entertainment Systems
+heroImage: https://tse1.mm.bing.net/th?q=best-subs-for-a-single-cab-truck&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Choosing the best subwoofer for a single cab truck can improve your driving experience. The right sub delivers clear, deep bass without taking up too much space.**

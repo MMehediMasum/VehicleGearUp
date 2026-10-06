@@ -1,10 +1,14 @@
 ---
-title: "How to Turn on Forward Collision Warning Jeep Grand Cherokee: Quick Guide"
-description: "If you drive a Jeep Grand Cherokee, staying safe on the road is probably one of your top priorities. One powerful feature that can help protect you and your pas"
+title: 'How to Turn on Forward Collision Warning Jeep Grand Cherokee: Quick Guide'
+description: If you drive a Jeep Grand Cherokee, staying safe on the road is probably
+  one of your top priorities. One powerful feature that can help protect you and your
+  pas
 pubDate: 2026-01-18
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-on-forward-collision-warning-jeep-grand-cherokee&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Turning Off Dash Beeps
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-on-forward-collision-warning-jeep-grand-cherokee&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If you drive a Jeep Grand Cherokee, staying safe on the road is probably one of your top priorities. One powerful feature that can help protect you and your passengers is the Forward Collision Warning system.**

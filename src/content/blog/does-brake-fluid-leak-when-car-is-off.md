@@ -1,10 +1,14 @@
 ---
-title: "Does Brake Fluid Leak When Car is Off? Essential Facts Revealed"
-description: "Have you ever noticed a mysterious wet spot under your parked car and wondered if it could be brake fluid? You might be asking yourself, “Does brake fluid leak "
+title: Does Brake Fluid Leak When Car is Off? Essential Facts Revealed
+description: 'Have you ever noticed a mysterious wet spot under your parked car and
+  wondered if it could be brake fluid? You might be asking yourself, “Does brake fluid
+  leak '
 pubDate: 2026-04-24
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-brake-fluid-leak-when-car-is-off&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Brake and Washer Fluids
+heroImage: https://tse1.mm.bing.net/th?q=does-brake-fluid-leak-when-car-is-off&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever noticed a mysterious wet spot under your parked car and wondered if it could be brake fluid? You might be asking yourself, “Does brake fluid leak when my car is off?” This question is more important than you think.**

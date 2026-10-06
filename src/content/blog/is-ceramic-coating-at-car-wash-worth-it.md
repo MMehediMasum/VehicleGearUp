@@ -1,10 +1,14 @@
 ---
-title: "Is Ceramic Coating at Car Wash Worth It? Expert Insights Revealed"
-description: "Are you wondering if ceramic coating at a car wash is really worth your time and money? You’ve probably heard it can protect your car’s paint and keep it lookin"
+title: Is Ceramic Coating at Car Wash Worth It? Expert Insights Revealed
+description: Are you wondering if ceramic coating at a car wash is really worth your
+  time and money? You’ve probably heard it can protect your car’s paint and keep it
+  lookin
 pubDate: 2026-03-21
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-ceramic-coating-at-car-wash-worth-it&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Washing Ceramic Coated Cars
+heroImage: https://tse1.mm.bing.net/th?q=is-ceramic-coating-at-car-wash-worth-it&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Are you wondering if ceramic coating at a car wash is really worth your time and money? You’ve probably heard it can protect your car’s paint and keep it looking shiny for longer.**

@@ -1,10 +1,14 @@
 ---
-title: "Can You Use a Car Battery for Fractal Burning? Safety Tips Explained"
-description: "Have you ever wondered if a car battery could power your fractal burning project? Using the right power source is crucial for safety and success, and this quest"
+title: Can You Use a Car Battery for Fractal Burning? Safety Tips Explained
+description: Have you ever wondered if a car battery could power your fractal burning
+  project? Using the right power source is crucial for safety and success, and this
+  quest
 pubDate: 2026-04-20
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-use-a-car-battery-for-fractal-burning&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Choosing the Best Battery
+heroImage: https://tse1.mm.bing.net/th?q=can-you-use-a-car-battery-for-fractal-burning&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if a car battery could power your fractal burning project? Using the right power source is crucial for safety and success, and this question is more common than you might think.**

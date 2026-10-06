@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Steering Wheel for Gran Turismo 7: Top Picks for Ultimate Racing Experience"
 description: "Finding the best steering wheel for Gran Turismo 7 can improve your racing experience greatly. A good wheel offers better control, comfort, and realism. Gran Tu"
 pubDate: 2026-01-06

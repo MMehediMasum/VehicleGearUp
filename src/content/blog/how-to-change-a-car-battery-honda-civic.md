@@ -1,10 +1,14 @@
 ---
-title: "How to Change a Car Battery Honda Civic: Easy Step-by-Step Guide"
-description: "Is your Honda Civic struggling to start, or have you noticed dimmer lights and slow electronics? These could be signs that your car battery needs a change. But "
+title: 'How to Change a Car Battery Honda Civic: Easy Step-by-Step Guide'
+description: 'Is your Honda Civic struggling to start, or have you noticed dimmer
+  lights and slow electronics? These could be signs that your car battery needs a
+  change. But '
 pubDate: 2025-09-10
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-a-car-battery-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing a Car Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-a-car-battery-honda-civic&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your Honda Civic struggling to start, or have you noticed dimmer lights and slow electronics? These could be signs that your car battery needs a change.**

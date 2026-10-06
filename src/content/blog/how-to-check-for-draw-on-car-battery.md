@@ -1,10 +1,14 @@
 ---
-title: "How to Check for Draw on Car Battery: Easy Steps to Save Power"
-description: "Is your car battery dying faster than it should? You might be dealing with a hidden power drain that’s quietly eating away your battery life. Knowing how to che"
+title: 'How to Check for Draw on Car Battery: Easy Steps to Save Power'
+description: Is your car battery dying faster than it should? You might be dealing
+  with a hidden power drain that’s quietly eating away your battery life. Knowing
+  how to che
 pubDate: 2026-05-07
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-check-for-draw-on-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Warranty and Storage
+heroImage: https://tse1.mm.bing.net/th?q=how-to-check-for-draw-on-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your car battery dying faster than it should? You might be dealing with a hidden power drain that’s quietly eating away your battery life.**

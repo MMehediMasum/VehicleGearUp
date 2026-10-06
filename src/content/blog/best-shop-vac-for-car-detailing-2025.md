@@ -1,10 +1,14 @@
 ---
-title: "Best Shop Vac for Car Detailing: Top Picks for Powerful Cleaning"
-description: "Car detailing needs a powerful, reliable vacuum to clean every corner of your vehicle. The best shop vacs for car detailing in 2025 combine strong suction with "
+title: 'Best Shop Vac for Car Detailing: Top Picks for Powerful Cleaning'
+description: 'Car detailing needs a powerful, reliable vacuum to clean every corner
+  of your vehicle. The best shop vacs for car detailing in 2025 combine strong suction
+  with '
 pubDate: 2025-09-29
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-shop-vac-for-car-detailing-2025&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Detailing Equipment
+heroImage: https://tse1.mm.bing.net/th?q=best-shop-vac-for-car-detailing-2025&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Car detailing needs a powerful, reliable vacuum to clean every corner of your vehicle. The best shop vacs for car detailing in 2025 combine strong suction with portability.**

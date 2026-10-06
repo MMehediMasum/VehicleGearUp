@@ -1,10 +1,13 @@
 ---
-title: "Best Motorcycle Battery for Cold Weather: Top Reliable Picks for Winter Riding"
-description: "Finding the best motorcycle battery for cold weather can save you from starting troubles. Cold temperatures demand batteries with strong power and reliability. "
+title: 'Best Motorcycle Battery for Cold Weather: Top Reliable Picks for Winter Riding'
+description: 'Finding the best motorcycle battery for cold weather can save you from
+  starting troubles. Cold temperatures demand batteries with strong power and reliability. '
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-motorcycle-battery-for-cold-weather&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Weather Gear
+heroImage: https://tse1.mm.bing.net/th?q=best-motorcycle-battery-for-cold-weather&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Finding the best motorcycle battery for cold weather can save you from starting troubles. Cold temperatures demand batteries with strong power and reliability.**

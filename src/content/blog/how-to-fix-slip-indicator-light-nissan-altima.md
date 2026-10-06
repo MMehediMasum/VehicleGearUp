@@ -1,10 +1,14 @@
 ---
-title: "How to Fix Slip Indicator Light Nissan Altima: Quick & Easy Steps"
-description: "Is your Nissan Altima’s slip indicator light turning on and leaving you worried? You’re not alone. That little warning light can cause a lot of confusion and st"
+title: 'How to Fix Slip Indicator Light Nissan Altima: Quick & Easy Steps'
+description: Is your Nissan Altima’s slip indicator light turning on and leaving you
+  worried? You’re not alone. That little warning light can cause a lot of confusion
+  and st
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-slip-indicator-light-nissan-altima&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Dashboard Lights and Noises
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-slip-indicator-light-nissan-altima&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your Nissan Altima’s slip indicator light turning on and leaving you worried? You’re not alone.**

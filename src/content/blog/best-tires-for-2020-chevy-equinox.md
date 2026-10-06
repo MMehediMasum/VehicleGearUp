@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Chevy Equinox: Top All-Season Picks for Smooth Rides"
-description: "Choosing the best tires for a 2020 Chevy Equinox improves safety and driving comfort. Tires must fit perfectly and handle various road conditions well. The 2020"
+title: 'Best Tires for Chevy Equinox: Top All-Season Picks for Smooth Rides'
+description: Choosing the best tires for a 2020 Chevy Equinox improves safety and
+  driving comfort. Tires must fit perfectly and handle various road conditions well.
+  The 2020
 pubDate: 2025-12-25
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-2020-chevy-equinox&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Chevy and GMC Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-2020-chevy-equinox&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for a 2020 Chevy Equinox improves safety and driving comfort. Tires must fit perfectly and handle various road conditions well.**

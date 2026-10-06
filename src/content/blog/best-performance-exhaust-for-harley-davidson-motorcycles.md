@@ -1,10 +1,14 @@
 ---
-title: "Best Performance Exhaust for Harley-Davidson Motorcycles: Top Slip-On Mufflers"
-description: "Choosing the best performance exhaust for your Harley-Davidson enhances sound, power, and style. Quality exhaust parts improve your bike’s ride and look. Harley"
+title: 'Best Performance Exhaust for Harley-Davidson Motorcycles: Top Slip-On Mufflers'
+description: Choosing the best performance exhaust for your Harley-Davidson enhances
+  sound, power, and style. Quality exhaust parts improve your bike’s ride and look.
+  Harley
 pubDate: 2025-11-03
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-performance-exhaust-for-harley-davidson-motorcycles&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Fuel and Exhaust
+heroImage: https://tse1.mm.bing.net/th?q=best-performance-exhaust-for-harley-davidson-motorcycles&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best performance exhaust for your Harley-Davidson enhances sound, power, and style. Quality exhaust parts improve your bike’s ride and look.**

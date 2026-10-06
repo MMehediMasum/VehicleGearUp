@@ -1,10 +1,14 @@
 ---
-title: "Best Motorcycle Ear Plugs for Wind Noise: Top Picks for Ultimate Protection"
-description: "Riding a motorcycle exposes your ears to loud wind noise that can cause discomfort and hearing damage. Using the best motorcycle ear plugs helps protect your he"
+title: 'Best Motorcycle Ear Plugs for Wind Noise: Top Picks for Ultimate Protection'
+description: Riding a motorcycle exposes your ears to loud wind noise that can cause
+  discomfort and hearing damage. Using the best motorcycle ear plugs helps protect
+  your he
 pubDate: 2025-11-11
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-motorcycle-ear-plugs-for-wind-noise&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Helmets and Boots
+heroImage: https://tse1.mm.bing.net/th?q=best-motorcycle-ear-plugs-for-wind-noise&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Riding a motorcycle exposes your ears to loud wind noise that can cause discomfort and hearing damage. Using the best motorcycle ear plugs helps protect your hearing and improves riding comfort.**

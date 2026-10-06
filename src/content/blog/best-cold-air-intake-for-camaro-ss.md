@@ -1,10 +1,13 @@
 ---
-title: "Best Cold Air Intake for Camaro SS to Boost Power and Performance"
-description: "Choosing the best cold air intake for your Camaro SS boosts engine performance and acceleration. It improves airflow, helping your car run cooler and stronger. "
+title: Best Cold Air Intake for Camaro SS to Boost Power and Performance
+description: 'Choosing the best cold air intake for your Camaro SS boosts engine performance
+  and acceleration. It improves airflow, helping your car run cooler and stronger. '
 pubDate: 2026-06-05
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-camaro-ss&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- GM Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-camaro-ss&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best cold air intake for your Camaro SS boosts engine performance and acceleration. It improves airflow, helping your car run cooler and stronger.**

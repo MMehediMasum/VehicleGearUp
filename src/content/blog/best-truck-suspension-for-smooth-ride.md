@@ -1,10 +1,14 @@
 ---
-title: "Best Truck Suspension for Smooth Ride: Top Air Ride Kits Reviewed"
-description: "A smooth ride depends largely on the right truck suspension system. Choosing the best suspension improves comfort and vehicle control. Trucks often face rough r"
+title: 'Best Truck Suspension for Smooth Ride: Top Air Ride Kits Reviewed'
+description: A smooth ride depends largely on the right truck suspension system. Choosing
+  the best suspension improves comfort and vehicle control. Trucks often face rough
+  r
 pubDate: 2025-12-29
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-truck-suspension-for-smooth-ride&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Truck Suspension Upgrades
+heroImage: https://tse1.mm.bing.net/th?q=best-truck-suspension-for-smooth-ride&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **A smooth ride depends largely on the right truck suspension system. Choosing the best suspension improves comfort and vehicle control.**

@@ -1,10 +1,14 @@
 ---
-title: "Where to Find Date on Car Battery: Quick Tips to Decode Age"
-description: "Have you ever wondered how old your car battery really is? Knowing the date on your car battery can save you from unexpected breakdowns and costly repairs. But "
+title: 'Where to Find Date on Car Battery: Quick Tips to Decode Age'
+description: 'Have you ever wondered how old your car battery really is? Knowing the
+  date on your car battery can save you from unexpected breakdowns and costly repairs.
+  But '
 pubDate: 2026-03-29
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-find-date-on-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Types and Specs
+heroImage: https://tse1.mm.bing.net/th?q=where-to-find-date-on-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered how old your car battery really is? Knowing the date on your car battery can save you from unexpected breakdowns and costly repairs.**

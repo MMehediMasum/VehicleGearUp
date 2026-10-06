@@ -1,10 +1,14 @@
 ---
-title: "How to Restore Black Plastic Car Bumpers: Easy Steps for a Fresh Look"
-description: "Is your car’s black plastic bumper looking faded, dull, or worn out? You’re not alone. Over time, exposure to the sun, dirt, and weather can steal the shine fro"
+title: 'How to Restore Black Plastic Car Bumpers: Easy Steps for a Fresh Look'
+description: Is your car’s black plastic bumper looking faded, dull, or worn out?
+  You’re not alone. Over time, exposure to the sun, dirt, and weather can steal the
+  shine fro
 pubDate: 2025-10-20
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-restore-black-plastic-car-bumpers&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Paint Contaminant Removers
+heroImage: https://tse1.mm.bing.net/th?q=how-to-restore-black-plastic-car-bumpers&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Is your car’s black plastic bumper looking faded, dull, or worn out? You’re not alone.**

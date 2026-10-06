@@ -1,10 +1,14 @@
 ---
-title: "Best Performance Exhaust for Harley Davidson: Top Picks and Upgrades"
-description: "Choosing the best performance exhaust for your Harley Davidson boosts power and enhances sound. The right exhaust parts improve your bike’s look and ride qualit"
+title: 'Best Performance Exhaust for Harley Davidson: Top Picks and Upgrades'
+description: Choosing the best performance exhaust for your Harley Davidson boosts
+  power and enhances sound. The right exhaust parts improve your bike’s look and ride
+  qualit
 pubDate: 2026-01-14
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-performance-exhaust-for-harley-davidson&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Fuel and Exhaust
+heroImage: https://tse1.mm.bing.net/th?q=best-performance-exhaust-for-harley-davidson&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best performance exhaust for your Harley Davidson boosts power and enhances sound. The right exhaust parts improve your bike’s look and ride quality.**

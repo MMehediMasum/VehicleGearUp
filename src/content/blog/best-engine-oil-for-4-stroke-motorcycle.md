@@ -1,10 +1,14 @@
 ---
-title: "Best Engine Oil for 4 Stroke Motorcycle: Top Picks for Ultimate Performance"
-description: "Choosing the best engine oil for a 4-stroke motorcycle keeps the engine running smoothly and lasting longer. Using the right oil protects parts and improves per"
+title: 'Best Engine Oil for 4 Stroke Motorcycle: Top Picks for Ultimate Performance'
+description: Choosing the best engine oil for a 4-stroke motorcycle keeps the engine
+  running smoothly and lasting longer. Using the right oil protects parts and improves
+  per
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-engine-oil-for-4-stroke-motorcycle&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Batteries and Brakes
+heroImage: https://tse1.mm.bing.net/th?q=best-engine-oil-for-4-stroke-motorcycle&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best engine oil for a 4-stroke motorcycle keeps the engine running smoothly and lasting longer. Using the right oil protects parts and improves performance.**

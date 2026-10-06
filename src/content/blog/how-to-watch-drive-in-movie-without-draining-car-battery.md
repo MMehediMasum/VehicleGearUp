@@ -1,10 +1,14 @@
 ---
-title: "How to Watch Drive in Movie Without Draining Car Battery: Easy Tips"
-description: "Planning to watch a drive-in movie but worried about your car battery dying? You’re not alone. Many people face this problem, especially during long movies or c"
+title: 'How to Watch Drive in Movie Without Draining Car Battery: Easy Tips'
+description: Planning to watch a drive-in movie but worried about your car battery
+  dying? You’re not alone. Many people face this problem, especially during long movies
+  or c
 pubDate: 2025-09-23
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-watch-drive-in-movie-without-draining-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Fixing Battery Drain
+heroImage: https://tse1.mm.bing.net/th?q=how-to-watch-drive-in-movie-without-draining-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Planning to watch a drive-in movie but worried about your car battery dying? You’re not alone.**

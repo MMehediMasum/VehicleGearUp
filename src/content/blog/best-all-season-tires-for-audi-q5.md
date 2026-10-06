@@ -1,10 +1,14 @@
 ---
-title: "Best All Season Tires for Audi Q5: Top High-Performance Picks Reviewed"
-description: "Choosing the best all season tires for your Audi Q5 ensures safety and smooth driving year-round. The right tires improve grip, comfort, and fuel efficiency in "
+title: 'Best All Season Tires for Audi Q5: Top High-Performance Picks Reviewed'
+description: 'Choosing the best all season tires for your Audi Q5 ensures safety and
+  smooth driving year-round. The right tires improve grip, comfort, and fuel efficiency
+  in '
 pubDate: 2026-01-11
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-all-season-tires-for-audi-q5&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- All Season SUV Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-all-season-tires-for-audi-q5&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best all season tires for your Audi Q5 ensures safety and smooth driving year-round. The right tires improve grip, comfort, and fuel efficiency in various weather conditions.**

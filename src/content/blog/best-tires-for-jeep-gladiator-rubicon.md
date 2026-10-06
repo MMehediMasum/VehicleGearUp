@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Jeep Gladiator Rubicon: Top Picks for Off-Road Performance"
-description: "Choosing the best tires for your Jeep Gladiator Rubicon ensures safety and performance on any terrain. The right tires improve grip, comfort, and durability. Je"
+title: 'Best Tires for Jeep Gladiator Rubicon: Top Picks for Off-Road Performance'
+description: Choosing the best tires for your Jeep Gladiator Rubicon ensures safety
+  and performance on any terrain. The right tires improve grip, comfort, and durability.
+  Je
 pubDate: 2025-12-24
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-jeep-gladiator-rubicon&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jeep Cherokee and Gladiator Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-jeep-gladiator-rubicon&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your Jeep Gladiator Rubicon ensures safety and performance on any terrain. The right tires improve grip, comfort, and durability.**

@@ -1,10 +1,13 @@
 ---
-title: "Best Homemade Glass Cleaner for Cars: Achieve a Streak-Free Shine Easily"
-description: "Keeping your car windows clean is essential for safe driving and a clear view. Homemade glass cleaners offer a simple, cost-effective way to achieve streak-free"
+title: 'Best Homemade Glass Cleaner for Cars: Achieve a Streak-Free Shine Easily'
+description: Keeping your car windows clean is essential for safe driving and a clear
+  view. Homemade glass cleaners offer a simple, cost-effective way to achieve streak-free
 pubDate: 2026-07-02
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-homemade-glass-cleaner-for-cars&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Interior and Glass Cleaners
+heroImage: https://tse1.mm.bing.net/th?q=best-homemade-glass-cleaner-for-cars&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Keeping your car windows clean is essential for safe driving and a clear view. Homemade glass cleaners offer a simple, cost-effective way to achieve streak-free shine.**

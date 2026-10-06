@@ -1,10 +1,14 @@
 ---
-title: "Can You Charge a Car Battery While Still Connected? Expert Tips"
-description: "Have you ever wondered if you can charge your car battery while it’s still connected? Maybe your car won’t start, and you’re stuck asking yourself if it’s safe "
+title: Can You Charge a Car Battery While Still Connected? Expert Tips
+description: 'Have you ever wondered if you can charge your car battery while it’s
+  still connected? Maybe your car won’t start, and you’re stuck asking yourself if
+  it’s safe '
 pubDate: 2026-04-07
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-charge-a-car-battery-while-still-connected&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Charging While Idling
+heroImage: https://tse1.mm.bing.net/th?q=can-you-charge-a-car-battery-while-still-connected&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if you can charge your car battery while it’s still connected? Maybe your car won’t start, and you’re stuck asking yourself if it’s safe or even possible to give your battery a boost without disconnecting it first.**

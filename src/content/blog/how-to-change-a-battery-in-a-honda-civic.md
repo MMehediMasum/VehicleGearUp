@@ -1,10 +1,13 @@
 ---
-title: "How to Change a Battery in a Honda Civic: Quick & Easy Guide"
-description: "Is your Honda Civic struggling to start, or have you noticed dimmer headlights? It might be time to change your car battery. But don’t worry—you don’t need to b"
+title: 'How to Change a Battery in a Honda Civic: Quick & Easy Guide'
+description: Is your Honda Civic struggling to start, or have you noticed dimmer headlights?
+  It might be time to change your car battery. But don’t worry—you don’t need to b
 pubDate: 2026-03-30
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-a-battery-in-a-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing a Car Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-a-battery-in-a-honda-civic&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your Honda Civic struggling to start, or have you noticed dimmer headlights? It might be time to change your car battery.**

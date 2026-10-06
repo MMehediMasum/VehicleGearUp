@@ -1,10 +1,14 @@
 ---
-title: "How to Check Transmission Fluid 2014 Ford Focus: Easy Step-by-Step Guide"
-description: "If you own a 2014 Ford Focus, keeping your transmission fluid in check is one of the easiest ways to avoid costly repairs. But how do you know when it’s time to"
+title: 'How to Check Transmission Fluid 2014 Ford Focus: Easy Step-by-Step Guide'
+description: If you own a 2014 Ford Focus, keeping your transmission fluid in check
+  is one of the easiest ways to avoid costly repairs. But how do you know when it’s
+  time to
 pubDate: 2025-10-27
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-check-transmission-fluid-2014-ford-focus&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Transmission Fluid Checks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-check-transmission-fluid-2014-ford-focus&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a 2014 Ford Focus, keeping your transmission fluid in check is one of the easiest ways to avoid costly repairs. But how do you know when it’s time to check or change it?**

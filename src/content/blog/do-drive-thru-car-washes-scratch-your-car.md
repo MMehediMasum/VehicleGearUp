@@ -1,10 +1,14 @@
 ---
-title: "Do Drive Thru Car Washes Scratch Your Car? Shocking Truth Revealed!"
-description: "You probably want your car to look clean and shiny without worrying about damage. But have you ever stopped to ask yourself, \"Do drive thru car washes scratch m"
+title: Do Drive Thru Car Washes Scratch Your Car? Shocking Truth Revealed!
+description: You probably want your car to look clean and shiny without worrying about
+  damage. But have you ever stopped to ask yourself, "Do drive thru car washes scratch
+  m
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-drive-thru-car-washes-scratch-your-car&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Do Car Washes Damage Paint
+heroImage: https://tse1.mm.bing.net/th?q=do-drive-thru-car-washes-scratch-your-car&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **You probably want your car to look clean and shiny without worrying about damage. But have you ever stopped to ask yourself, "Do drive thru car washes scratch my car?"**

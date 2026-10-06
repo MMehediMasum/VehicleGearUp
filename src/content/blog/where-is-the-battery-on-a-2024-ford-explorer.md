@@ -1,10 +1,14 @@
 ---
-title: "Where is the Battery on a 2025 Ford Explorer: Quick Location Guide"
-description: "Are you trying to find the battery on your 2024 Ford Explorer but don’t know where to look? Knowing exactly where your battery is can save you time and frustrat"
+title: 'Where is the Battery on a 2025 Ford Explorer: Quick Location Guide'
+description: Are you trying to find the battery on your 2024 Ford Explorer but don’t
+  know where to look? Knowing exactly where your battery is can save you time and
+  frustrat
 pubDate: 2026-04-17
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-is-the-battery-on-a-2024-ford-explorer&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Finding the Battery Location
+heroImage: https://tse1.mm.bing.net/th?q=where-is-the-battery-on-a-2024-ford-explorer&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you trying to find the battery on your 2024 Ford Explorer but don’t know where to look? Knowing exactly where your battery is can save you time and frustration, especially if your vehicle won’t start or needs a jump.**

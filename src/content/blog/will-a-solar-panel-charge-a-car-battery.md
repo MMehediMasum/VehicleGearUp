@@ -1,10 +1,14 @@
 ---
-title: "Will a Solar Panel Charge a Car Battery: Truths You Must Know"
-description: "Are you wondering if a solar panel can charge your car battery? It’s a question many people ask when looking for simple, green ways to keep their vehicles power"
+title: 'Will a Solar Panel Charge a Car Battery: Truths You Must Know'
+description: Are you wondering if a solar panel can charge your car battery? It’s
+  a question many people ask when looking for simple, green ways to keep their vehicles
+  power
 pubDate: 2026-05-10
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=will-a-solar-panel-charge-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Charging a Car Battery
+heroImage: https://tse1.mm.bing.net/th?q=will-a-solar-panel-charge-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you wondering if a solar panel can charge your car battery? It’s a question many people ask when looking for simple, green ways to keep their vehicles powered.**

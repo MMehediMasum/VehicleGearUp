@@ -1,10 +1,14 @@
 ---
-title: "Is Honda Accord Hybrid Touring Worth It? Ultimate Review 2025"
-description: "Are you thinking about upgrading your ride to something more efficient but still packed with features? The Honda Accord Hybrid Touring might have caught your ey"
+title: Is Honda Accord Hybrid Touring Worth It? Ultimate Review 2025
+description: Are you thinking about upgrading your ride to something more efficient
+  but still packed with features? The Honda Accord Hybrid Touring might have caught
+  your ey
 pubDate: 2025-11-21
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-honda-accord-hybrid-touring-worth-it&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- How Hybrids Work
+heroImage: https://tse1.mm.bing.net/th?q=is-honda-accord-hybrid-touring-worth-it&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you thinking about upgrading your ride to something more efficient but still packed with features? The Honda Accord Hybrid Touring might have caught your eye.**

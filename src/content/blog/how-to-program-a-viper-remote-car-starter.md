@@ -1,10 +1,14 @@
 ---
-title: "How to Program a Viper Remote Car Starter: Easy Step-by-Step Guide"
-description: "Imagine stepping into your car on a cold winter morning or a scorching summer afternoon and finding it already warmed up or cooled down just the way you like. S"
+title: 'How to Program a Viper Remote Car Starter: Easy Step-by-Step Guide'
+description: Imagine stepping into your car on a cold winter morning or a scorching
+  summer afternoon and finding it already warmed up or cooled down just the way you
+  like. S
 pubDate: 2026-02-10
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-program-a-viper-remote-car-starter&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Remote Starter Installation
+heroImage: https://tse1.mm.bing.net/th?q=how-to-program-a-viper-remote-car-starter&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **Imagine stepping into your car on a cold winter morning or a scorching summer afternoon and finding it already warmed up or cooled down just the way you like. Sounds perfect, right?**

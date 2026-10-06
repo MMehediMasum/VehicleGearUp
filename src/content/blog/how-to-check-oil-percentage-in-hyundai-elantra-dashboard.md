@@ -1,10 +1,14 @@
 ---
-title: "How to Check Oil Percentage in Hyundai Elantra Dashboard: Quick Guide"
-description: "Are you curious about how to keep your Hyundai Elantra running smoothly? One of the simplest yet most important checks you can do is monitoring your oil percent"
+title: 'How to Check Oil Percentage in Hyundai Elantra Dashboard: Quick Guide'
+description: Are you curious about how to keep your Hyundai Elantra running smoothly?
+  One of the simplest yet most important checks you can do is monitoring your oil
+  percent
 pubDate: 2026-05-16
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-check-oil-percentage-in-hyundai-elantra-dashboard&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Checking Oil Levels
+heroImage: https://tse1.mm.bing.net/th?q=how-to-check-oil-percentage-in-hyundai-elantra-dashboard&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Are you curious about how to keep your Hyundai Elantra running smoothly? One of the simplest yet most important checks you can do is monitoring your oil percentage right from your dashboard.**

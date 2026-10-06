@@ -1,10 +1,14 @@
 ---
-title: "How to Adjust Headlights on Hyundai Santa Fe: Easy Step-by-Step Guide"
-description: "Are your Hyundai Santa Fe headlights not shining as brightly or pointing the right way? Misaligned headlights can make driving at night unsafe and stressful. Bu"
+title: 'How to Adjust Headlights on Hyundai Santa Fe: Easy Step-by-Step Guide'
+description: Are your Hyundai Santa Fe headlights not shining as brightly or pointing
+  the right way? Misaligned headlights can make driving at night unsafe and stressful.
+  Bu
 pubDate: 2025-09-23
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-adjust-headlights-on-hyundai-santa-fe&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Headlight Cleaning and Upgrades
+heroImage: https://tse1.mm.bing.net/th?q=how-to-adjust-headlights-on-hyundai-santa-fe&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are your Hyundai Santa Fe headlights not shining as brightly or pointing the right way? Misaligned headlights can make driving at night unsafe and stressful.**

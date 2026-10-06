@@ -1,10 +1,14 @@
 ---
-title: "Best Winter Tires for 2Wd Truck: Top Durable Picks for Snow Safety"
-description: "Choosing the best winter tires for a 2WD truck ensures safer driving on snow and ice. Proper tires improve grip, control, and overall safety during cold months."
+title: 'Best Winter Tires for 2Wd Truck: Top Durable Picks for Snow Safety'
+description: Choosing the best winter tires for a 2WD truck ensures safer driving
+  on snow and ice. Proper tires improve grip, control, and overall safety during cold
+  months.
 pubDate: 2025-12-28
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-winter-tires-for-2wd-truck&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Mud and Highway Truck Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-winter-tires-for-2wd-truck&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best winter tires for a 2WD truck ensures safer driving on snow and ice. Proper tires improve grip, control, and overall safety during cold months.**

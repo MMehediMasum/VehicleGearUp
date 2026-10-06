@@ -1,10 +1,14 @@
 ---
-title: "Best All Terrain Tires for GMC Sierra 1500: Top Durable Picks Reviewed"
-description: "Choosing the best all terrain tires for your GMC Sierra 1500 improves safety and performance on any road. The right tires handle mud, snow, and rocky trails wit"
+title: 'Best All Terrain Tires for GMC Sierra 1500: Top Durable Picks Reviewed'
+description: Choosing the best all terrain tires for your GMC Sierra 1500 improves
+  safety and performance on any road. The right tires handle mud, snow, and rocky
+  trails wit
 pubDate: 2026-01-12
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-all-terrain-tires-for-gmc-sierra-1500&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- All Terrain Truck Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-all-terrain-tires-for-gmc-sierra-1500&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best all terrain tires for your GMC Sierra 1500 improves safety and performance on any road. The right tires handle mud, snow, and rocky trails with ease.**

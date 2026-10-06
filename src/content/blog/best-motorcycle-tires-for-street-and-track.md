@@ -1,10 +1,14 @@
 ---
-title: "Best Motorcycle Tires for Street and Track: Top Picks for Grip & Durability"
-description: "Choosing the right motorcycle tires improves safety and performance on both street and track. Tires must balance grip, durability, and stability for varied ridi"
+title: 'Best Motorcycle Tires for Street and Track: Top Picks for Grip & Durability'
+description: Choosing the right motorcycle tires improves safety and performance on
+  both street and track. Tires must balance grip, durability, and stability for varied
+  ridi
 pubDate: 2026-01-05
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-motorcycle-tires-for-street-and-track&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-motorcycle-tires-for-street-and-track&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the right motorcycle tires improves safety and performance on both street and track. Tires must balance grip, durability, and stability for varied riding conditions.**

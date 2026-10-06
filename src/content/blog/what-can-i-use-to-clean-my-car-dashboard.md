@@ -1,10 +1,14 @@
 ---
-title: "What Can I Use to Clean My Car Dashboard: Top Safe & Effective Tips"
-description: "Your car dashboard is one of the first things you notice when you get inside your vehicle. Keeping it clean not only makes your car look great but also helps pr"
+title: 'What Can I Use to Clean My Car Dashboard: Top Safe & Effective Tips'
+description: Your car dashboard is one of the first things you notice when you get
+  inside your vehicle. Keeping it clean not only makes your car look great but also
+  helps pr
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-can-i-use-to-clean-my-car-dashboard&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Leather and Dashboard Care
+heroImage: https://tse1.mm.bing.net/th?q=what-can-i-use-to-clean-my-car-dashboard&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Your car dashboard is one of the first things you notice when you get inside your vehicle. Keeping it clean not only makes your car look great but also helps protect it from damage and wear.**

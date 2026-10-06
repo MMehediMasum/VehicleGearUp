@@ -1,10 +1,14 @@
 ---
-title: "Best Side Steps for Jeep Wrangler: Top Durable Running Boards Reviewed"
-description: "Finding the best side steps for your Jeep Wrangler improves access and adds style. The right side steps provide safety and durability for daily use. Jeep Wrangl"
+title: 'Best Side Steps for Jeep Wrangler: Top Durable Running Boards Reviewed'
+description: Finding the best side steps for your Jeep Wrangler improves access and
+  adds style. The right side steps provide safety and durability for daily use. Jeep
+  Wrangl
 pubDate: 2026-06-25
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-side-steps-for-jeep-wrangler&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Roof Racks and Tents
+heroImage: https://tse1.mm.bing.net/th?q=best-side-steps-for-jeep-wrangler&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Finding the best side steps for your Jeep Wrangler improves access and adds style. The right side steps provide safety and durability for daily use.**

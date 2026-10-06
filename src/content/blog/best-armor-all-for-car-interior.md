@@ -1,10 +1,14 @@
 ---
-title: "Best Armor All for Car Interior: Ultimate Cleaning and Protection Solutions"
-description: "Choosing the best Armor All for your car interior keeps your vehicle clean and protected. Armor All products clean, protect, and refresh surfaces inside your ca"
+title: 'Best Armor All for Car Interior: Ultimate Cleaning and Protection Solutions'
+description: Choosing the best Armor All for your car interior keeps your vehicle
+  clean and protected. Armor All products clean, protect, and refresh surfaces inside
+  your ca
 pubDate: 2026-06-13
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-armor-all-for-car-interior&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Interior and Glass Cleaners
+heroImage: https://tse1.mm.bing.net/th?q=best-armor-all-for-car-interior&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best Armor All for your car interior keeps your vehicle clean and protected. Armor All products clean, protect, and refresh surfaces inside your car.**

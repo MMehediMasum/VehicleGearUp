@@ -1,10 +1,14 @@
 ---
-title: "Can You Put Car Battery on Concrete: Myths vs. Facts Revealed"
-description: "Have you ever wondered if placing your car battery directly on concrete could harm it? You might have heard warnings or seen advice that this is a bad idea, but"
+title: 'Can You Put Car Battery on Concrete: Myths vs. Facts Revealed'
+description: Have you ever wondered if placing your car battery directly on concrete
+  could harm it? You might have heard warnings or seen advice that this is a bad idea,
+  but
 pubDate: 2026-04-01
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-put-car-battery-on-concrete&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Warranty and Storage
+heroImage: https://tse1.mm.bing.net/th?q=can-you-put-car-battery-on-concrete&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if placing your car battery directly on concrete could harm it? You might have heard warnings or seen advice that this is a bad idea, but what’s the real story?**

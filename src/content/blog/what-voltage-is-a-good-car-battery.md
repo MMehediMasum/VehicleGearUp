@@ -1,10 +1,14 @@
 ---
-title: "What Voltage is a Good Car Battery: Essential Guide for Optimal Power"
-description: "Are you wondering what voltage a good car battery should have? Knowing this simple fact can save you from unexpected breakdowns and costly repairs. Your car’s b"
+title: 'What Voltage is a Good Car Battery: Essential Guide for Optimal Power'
+description: Are you wondering what voltage a good car battery should have? Knowing
+  this simple fact can save you from unexpected breakdowns and costly repairs. Your
+  car’s b
 pubDate: 2026-04-01
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-voltage-is-a-good-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Normal Battery Voltage
+heroImage: https://tse1.mm.bing.net/th?q=what-voltage-is-a-good-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you wondering what voltage a good car battery should have? Knowing this simple fact can save you from unexpected breakdowns and costly repairs.**

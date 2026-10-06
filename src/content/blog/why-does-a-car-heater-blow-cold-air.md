@@ -1,10 +1,14 @@
 ---
-title: "Why Does a Car Heater Blow Cold Air: Top Causes & Fixes"
-description: "Have you ever turned on your car heater expecting warm air, only to feel a chilly breeze instead? It’s frustrating, especially on cold mornings when you need co"
+title: 'Why Does a Car Heater Blow Cold Air: Top Causes & Fixes'
+description: Have you ever turned on your car heater expecting warm air, only to feel
+  a chilly breeze instead? It’s frustrating, especially on cold mornings when you
+  need co
 pubDate: 2026-02-02
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-does-a-car-heater-blow-cold-air&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Heater Not Working
+heroImage: https://tse1.mm.bing.net/th?q=why-does-a-car-heater-blow-cold-air&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever turned on your car heater expecting warm air, only to feel a chilly breeze instead? It’s frustrating, especially on cold mornings when you need comfort the most.**

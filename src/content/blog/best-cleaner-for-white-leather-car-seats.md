@@ -1,10 +1,14 @@
 ---
-title: "Best Cleaner for White Leather Car Seats: Top Picks for Spotless Interiors"
-description: "Keeping white leather car seats clean can be tough. Dirt, stains, and spills show up quickly and ruin their look. Choosing the best cleaner for white leather ca"
+title: 'Best Cleaner for White Leather Car Seats: Top Picks for Spotless Interiors'
+description: Keeping white leather car seats clean can be tough. Dirt, stains, and
+  spills show up quickly and ruin their look. Choosing the best cleaner for white
+  leather ca
 pubDate: 2026-07-05
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cleaner-for-white-leather-car-seats&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Leather and Fabric Seat Care
+heroImage: https://tse1.mm.bing.net/th?q=best-cleaner-for-white-leather-car-seats&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Keeping white leather car seats clean can be tough. Dirt, stains, and spills show up quickly and ruin their look.**

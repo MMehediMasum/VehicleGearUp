@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for a Mazda CX 5: Top Accessories and Wheel Upgrades"
-description: "Choosing the best tires for a Mazda CX-5 improves safety, comfort, and fuel efficiency. Good tires fit well and suit your driving needs. Tires affect how your M"
+title: 'Best Tires for a Mazda CX 5: Top Accessories and Wheel Upgrades'
+description: Choosing the best tires for a Mazda CX-5 improves safety, comfort, and
+  fuel efficiency. Good tires fit well and suit your driving needs. Tires affect how
+  your M
 pubDate: 2026-01-09
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-a-mazda-cx-5&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Subaru and Mazda Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-a-mazda-cx-5&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for a Mazda CX-5 improves safety, comfort, and fuel efficiency. Good tires fit well and suit your driving needs.**

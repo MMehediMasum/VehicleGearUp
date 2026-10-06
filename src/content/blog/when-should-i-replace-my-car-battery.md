@@ -1,10 +1,14 @@
 ---
-title: "When Should I Replace My Car Battery: Expert Signs to Watch For"
-description: "Have you ever been stranded with a car that just won’t start? Your car battery might be the silent culprit. Knowing exactly when to replace your car battery can"
+title: 'When Should I Replace My Car Battery: Expert Signs to Watch For'
+description: Have you ever been stranded with a car that just won’t start? Your car
+  battery might be the silent culprit. Knowing exactly when to replace your car battery
+  can
 pubDate: 2026-04-24
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=when-should-i-replace-my-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- When to Replace a Battery
+heroImage: https://tse1.mm.bing.net/th?q=when-should-i-replace-my-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever been stranded with a car that just won’t start? Your car battery might be the silent culprit.**

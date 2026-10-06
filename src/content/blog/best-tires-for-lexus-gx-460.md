@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Lexus GX 460: Top Picks for Durability and Performance"
-description: "Choosing the best tires for your Lexus GX 460 ensures a safe and smooth ride. Quality tires improve handling, comfort, and fuel efficiency. The Lexus GX 460 is "
+title: 'Best Tires for Lexus GX 460: Top Picks for Durability and Performance'
+description: 'Choosing the best tires for your Lexus GX 460 ensures a safe and smooth
+  ride. Quality tires improve handling, comfort, and fuel efficiency. The Lexus GX
+  460 is '
 pubDate: 2025-12-22
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-lexus-gx-460&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-lexus-gx-460&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your Lexus GX 460 ensures a safe and smooth ride. Quality tires improve handling, comfort, and fuel efficiency.**

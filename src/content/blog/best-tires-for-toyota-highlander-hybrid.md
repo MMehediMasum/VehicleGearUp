@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Toyota Highlander Hybrid: Top Picks for Ultimate Performance"
-description: "Choosing the best tires for your Toyota Highlander Hybrid improves safety and performance. Proper tires help with fuel efficiency and provide a smooth ride. Tir"
+title: 'Best Tires for Toyota Highlander Hybrid: Top Picks for Ultimate Performance'
+description: Choosing the best tires for your Toyota Highlander Hybrid improves safety
+  and performance. Proper tires help with fuel efficiency and provide a smooth ride.
+  Tir
 pubDate: 2025-11-15
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-toyota-highlander-hybrid&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Hybrid Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-toyota-highlander-hybrid&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best tires for your Toyota Highlander Hybrid improves safety and performance. Proper tires help with fuel efficiency and provide a smooth ride.**

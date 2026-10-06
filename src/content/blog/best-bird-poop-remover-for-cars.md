@@ -1,10 +1,14 @@
 ---
-title: "Best Bird Poop Remover for Cars: Top Powerful, Safe, and Eco-Friendly Sprays"
-description: "Bird poop can damage your car’s paint if not removed quickly. Choosing the right remover keeps your vehicle clean and protected. Bird droppings contain acids th"
+title: 'Best Bird Poop Remover for Cars: Top Powerful, Safe, and Eco-Friendly Sprays'
+description: Bird poop can damage your car’s paint if not removed quickly. Choosing
+  the right remover keeps your vehicle clean and protected. Bird droppings contain
+  acids th
 pubDate: 2026-06-16
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-bird-poop-remover-for-cars&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Paint Contaminant Removers
+heroImage: https://tse1.mm.bing.net/th?q=best-bird-poop-remover-for-cars&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Bird poop can damage your car’s paint if not removed quickly. Choosing the right remover keeps your vehicle clean and protected.**

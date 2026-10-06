@@ -1,10 +1,14 @@
 ---
-title: "Best Hybrid Tires for Diesel Trucks: Top Durable Picks for Performance"
-description: "Choosing the best hybrid tires for diesel trucks improves performance and safety on various roads. Hybrid tires offer a balance of durability, traction, and com"
+title: 'Best Hybrid Tires for Diesel Trucks: Top Durable Picks for Performance'
+description: Choosing the best hybrid tires for diesel trucks improves performance
+  and safety on various roads. Hybrid tires offer a balance of durability, traction,
+  and com
 pubDate: 2026-01-01
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-hybrid-tires-for-diesel-trucks&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- How Hybrids Work
+heroImage: https://tse1.mm.bing.net/th?q=best-hybrid-tires-for-diesel-trucks&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best hybrid tires for diesel trucks improves performance and safety on various roads. Hybrid tires offer a balance of durability, traction, and comfort for heavy-duty vehicles.**

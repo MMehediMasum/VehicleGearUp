@@ -1,10 +1,14 @@
 ---
-title: "Best Oil for a Harley Davidson Motorcycle: Top Picks for Ultimate Engine Care"
-description: "Choosing the best oil for a Harley Davidson motorcycle keeps the engine running smoothly and lasts longer. Using the right oil protects parts and improves perfo"
+title: 'Best Oil for a Harley Davidson Motorcycle: Top Picks for Ultimate Engine Care'
+description: Choosing the best oil for a Harley Davidson motorcycle keeps the engine
+  running smoothly and lasts longer. Using the right oil protects parts and improves
+  perfo
 pubDate: 2025-11-14
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-oil-for-a-harley-davidson-motorcycle&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Maintenance Basics
+heroImage: https://tse1.mm.bing.net/th?q=best-oil-for-a-harley-davidson-motorcycle&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best oil for a Harley Davidson motorcycle keeps the engine running smoothly and lasts longer. Using the right oil protects parts and improves performance on every ride.**

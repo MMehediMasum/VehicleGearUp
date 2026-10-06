@@ -1,10 +1,14 @@
 ---
-title: "How to Power a Car Amplifier at Home: Easy DIY Guide"
-description: "Are you looking to power your car amplifier right at home but don’t know where to start? You’re in the right place. Getting your amplifier up and running withou"
+title: 'How to Power a Car Amplifier at Home: Easy DIY Guide'
+description: Are you looking to power your car amplifier right at home but don’t know
+  where to start? You’re in the right place. Getting your amplifier up and running
+  withou
 pubDate: 2026-02-03
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-power-a-car-amplifier-at-home&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Power Supplies and Inverters
+heroImage: https://tse1.mm.bing.net/th?q=how-to-power-a-car-amplifier-at-home&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you looking to power your car amplifier right at home but don’t know where to start? You’re in the right place.**

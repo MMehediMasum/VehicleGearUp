@@ -1,10 +1,13 @@
 ---
-title: "How to Change Windshield Wiper Blades Honda Accord: Easy Step-by-Step Guide"
-description: "Your Honda Accord’s windshield wiper blades play a crucial role in keeping your view clear and safe during rain or snow. But when was the last time you checked "
+title: 'How to Change Windshield Wiper Blades Honda Accord: Easy Step-by-Step Guide'
+description: 'Your Honda Accord’s windshield wiper blades play a crucial role in keeping
+  your view clear and safe during rain or snow. But when was the last time you checked '
 pubDate: 2025-10-09
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-windshield-wiper-blades-honda-accord&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Best Wiper Blades
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-windshield-wiper-blades-honda-accord&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Your Honda Accord’s windshield wiper blades play a crucial role in keeping your view clear and safe during rain or snow. But when was the last time you checked or changed them?**

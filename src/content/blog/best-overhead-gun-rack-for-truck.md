@@ -1,10 +1,14 @@
 ---
-title: "Best Overhead Gun Rack for Truck: Secure, Sturdy, and Easy to Install"
-description: "Finding the best overhead gun rack for your truck ensures safe and easy storage of rifles. A good rack keeps guns secure and saves space inside your vehicle. Tr"
+title: 'Best Overhead Gun Rack for Truck: Secure, Sturdy, and Easy to Install'
+description: Finding the best overhead gun rack for your truck ensures safe and easy
+  storage of rifles. A good rack keeps guns secure and saves space inside your vehicle.
+  Tr
 pubDate: 2026-06-11
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-overhead-gun-rack-for-truck&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Roof Racks and Tents
+heroImage: https://tse1.mm.bing.net/th?q=best-overhead-gun-rack-for-truck&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Finding the best overhead gun rack for your truck ensures safe and easy storage of rifles. A good rack keeps guns secure and saves space inside your vehicle.**

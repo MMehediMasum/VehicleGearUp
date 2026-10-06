@@ -1,10 +1,14 @@
 ---
-title: "Best 33 Inch Tires for Jeep Wrangler: Top Spare Tire Covers & Carriers"
-description: "Choosing the best 33 inch tires for your Jeep Wrangler improves performance and appearance. The right tires handle rough roads and provide a smooth ride. Jeep W"
+title: 'Best 33 Inch Tires for Jeep Wrangler: Top Spare Tire Covers & Carriers'
+description: Choosing the best 33 inch tires for your Jeep Wrangler improves performance
+  and appearance. The right tires handle rough roads and provide a smooth ride. Jeep
+  W
 pubDate: 2025-09-09
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-33-inch-tires-for-jeep-wrangler&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jeep Off Road Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-33-inch-tires-for-jeep-wrangler&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best 33 inch tires for your Jeep Wrangler improves performance and appearance. The right tires handle rough roads and provide a smooth ride.**

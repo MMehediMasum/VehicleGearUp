@@ -1,10 +1,14 @@
 ---
-title: "Best Roof Rack for Truck Topper: Top Durable Picks for Heavy Loads"
-description: "Finding the best roof rack for your truck topper improves storage and hauling ability. A strong, reliable rack keeps your gear safe and organized on the road. C"
+title: 'Best Roof Rack for Truck Topper: Top Durable Picks for Heavy Loads'
+description: Finding the best roof rack for your truck topper improves storage and
+  hauling ability. A strong, reliable rack keeps your gear safe and organized on the
+  road. C
 pubDate: 2026-06-12
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-roof-rack-for-truck-topper&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Truck Caps and Bed Liners
+heroImage: https://tse1.mm.bing.net/th?q=best-roof-rack-for-truck-topper&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Finding the best roof rack for your truck topper improves storage and hauling ability. A strong, reliable rack keeps your gear safe and organized on the road.**

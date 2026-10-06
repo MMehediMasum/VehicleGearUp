@@ -1,10 +1,14 @@
 ---
-title: "How to Tune Up a C5 Corvette: Ultimate DIY Guide for Peak Performance"
-description: "If you own a C5 Corvette, you know how powerful and thrilling this car can be. But to keep your Corvette running smoothly and at its best, regular tune-ups are "
+title: 'How to Tune Up a C5 Corvette: Ultimate DIY Guide for Peak Performance'
+description: 'If you own a C5 Corvette, you know how powerful and thrilling this car
+  can be. But to keep your Corvette running smoothly and at its best, regular tune-ups
+  are '
 pubDate: 2025-12-11
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-tune-up-a-c5-corvette&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Chevy Engine Tuning
+heroImage: https://tse1.mm.bing.net/th?q=how-to-tune-up-a-c5-corvette&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **If you own a C5 Corvette, you know how powerful and thrilling this car can be. But to keep your Corvette running smoothly and at its best, regular tune-ups are a must.**

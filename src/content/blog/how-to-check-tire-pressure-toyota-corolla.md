@@ -1,10 +1,14 @@
 ---
-title: "How to Check Tire Pressure Toyota Corolla: Easy Step-by-Step Guide"
-description: "Keeping your Toyota Corolla’s tires at the right pressure is easier than you think—and it makes a big difference. When your tires have the correct pressure, you"
+title: 'How to Check Tire Pressure Toyota Corolla: Easy Step-by-Step Guide'
+description: Keeping your Toyota Corolla’s tires at the right pressure is easier than
+  you think—and it makes a big difference. When your tires have the correct pressure,
+  you
 pubDate: 2026-03-12
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-check-tire-pressure-toyota-corolla&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Tire Pressure Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-check-tire-pressure-toyota-corolla&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Keeping your Toyota Corolla’s tires at the right pressure is easier than you think—and it makes a big difference. When your tires have the correct pressure, you get better fuel efficiency, safer handling, and longer tire life.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Toyota Tacoma TRD Sport: Top Picks for Ultimate Performance"
-description: "Choosing the best tires for your Toyota Tacoma TRD Sport boosts performance and safety. The right tires match your driving style and terrain needs perfectly. To"
+title: 'Best Tires for Toyota Tacoma TRD Sport: Top Picks for Ultimate Performance'
+description: Choosing the best tires for your Toyota Tacoma TRD Sport boosts performance
+  and safety. The right tires match your driving style and terrain needs perfectly.
+  To
 pubDate: 2026-01-03
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-toyota-tacoma-trd-sport&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Trim Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-toyota-tacoma-trd-sport&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your Toyota Tacoma TRD Sport boosts performance and safety. The right tires match your driving style and terrain needs perfectly.**

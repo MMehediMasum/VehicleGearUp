@@ -1,10 +1,14 @@
 ---
-title: "How to Program Jeep Grand Cherokee Key Fob: Easy Step-by-Step Guide"
-description: "Losing or replacing your Jeep Grand Cherokee key fob can feel frustrating and expensive. But what if you could program it yourself, saving time and money? In th"
+title: 'How to Program Jeep Grand Cherokee Key Fob: Easy Step-by-Step Guide'
+description: Losing or replacing your Jeep Grand Cherokee key fob can feel frustrating
+  and expensive. But what if you could program it yourself, saving time and money?
+  In th
 pubDate: 2026-03-04
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-program-jeep-grand-cherokee-key-fob&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Programming Key Fobs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-program-jeep-grand-cherokee-key-fob&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **Losing or replacing your Jeep Grand Cherokee key fob can feel frustrating and expensive. But what if you could program it yourself, saving time and money?**

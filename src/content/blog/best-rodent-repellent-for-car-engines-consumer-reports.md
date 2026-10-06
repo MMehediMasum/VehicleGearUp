@@ -1,10 +1,14 @@
 ---
-title: "Best Rodent Repellent for Car Engines Consumer Reports: Top Ultrasonic Picks"
-description: "Rodents cause serious damage to car engines every year. Using the best rodent repellent can protect your vehicle effectively. Rodents like mice and rats often h"
+title: 'Best Rodent Repellent for Car Engines Consumer Reports: Top Ultrasonic Picks'
+description: Rodents cause serious damage to car engines every year. Using the best
+  rodent repellent can protect your vehicle effectively. Rodents like mice and rats
+  often h
 pubDate: 2026-07-13
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rodent-repellent-for-car-engines-consumer-reports&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Keeping Pests Out of Engines
+heroImage: https://tse1.mm.bing.net/th?q=best-rodent-repellent-for-car-engines-consumer-reports&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Rodents cause serious damage to car engines every year. Using the best rodent repellent can protect your vehicle effectively.**

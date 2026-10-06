@@ -1,10 +1,14 @@
 ---
-title: "Best 3 Wheel Electric Bikes for Seniors: Top Comfortable & Safe Picks"
-description: "Finding a safe and easy-to-ride electric bike is important for seniors. Three-wheel electric bikes offer extra balance and comfort. Seniors often prefer bikes t"
+title: 'Best 3 Wheel Electric Bikes for Seniors: Top Comfortable & Safe Picks'
+description: Finding a safe and easy-to-ride electric bike is important for seniors.
+  Three-wheel electric bikes offer extra balance and comfort. Seniors often prefer
+  bikes t
 pubDate: 2026-01-11
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-3-wheel-electric-bikes-for-seniors&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Electric and Mountain Bikes
+heroImage: https://tse1.mm.bing.net/th?q=best-3-wheel-electric-bikes-for-seniors&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Finding a safe and easy-to-ride electric bike is important for seniors. Three-wheel electric bikes offer extra balance and comfort.**

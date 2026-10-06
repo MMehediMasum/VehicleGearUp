@@ -1,10 +1,14 @@
 ---
-title: "Best Tonneau Cover for 2023 Nissan Frontier: Top Durable Picks Reviewed"
-description: "Choosing the best tonneau cover can protect your 2023 Nissan Frontier's truck bed. It keeps cargo safe and improves your truck’s look. Tonneau covers come in di"
+title: 'Best Tonneau Cover for 2023 Nissan Frontier: Top Durable Picks Reviewed'
+description: Choosing the best tonneau cover can protect your 2023 Nissan Frontier's
+  truck bed. It keeps cargo safe and improves your truck’s look. Tonneau covers come
+  in di
 pubDate: 2026-07-28
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tonneau-cover-for-2023-nissan-frontier&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tonneau Covers
+heroImage: https://tse1.mm.bing.net/th?q=best-tonneau-cover-for-2023-nissan-frontier&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Choosing the best tonneau cover can protect your 2023 Nissan Frontier's truck bed. It keeps cargo safe and improves your truck’s look.**

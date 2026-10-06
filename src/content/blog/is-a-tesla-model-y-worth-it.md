@@ -1,10 +1,14 @@
 ---
-title: "Is a Tesla Model Y Worth It: Ultimate Review & Buying Guide"
-description: "Are you thinking about buying a Tesla Model Y but aren’t sure if it’s the right choice for you? You’re not alone. This electric SUV has gained a lot of attentio"
+title: 'Is a Tesla Model Y Worth It: Ultimate Review & Buying Guide'
+description: Are you thinking about buying a Tesla Model Y but aren’t sure if it’s
+  the right choice for you? You’re not alone. This electric SUV has gained a lot of
+  attentio
 pubDate: 2026-01-17
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-a-tesla-model-y-worth-it&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Model Y Features
+heroImage: https://tse1.mm.bing.net/th?q=is-a-tesla-model-y-worth-it&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you thinking about buying a Tesla Model Y but aren’t sure if it’s the right choice for you? You’re not alone.**

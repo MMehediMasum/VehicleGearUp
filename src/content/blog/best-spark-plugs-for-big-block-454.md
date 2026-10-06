@@ -1,10 +1,14 @@
 ---
-title: "Best Spark Plugs for Big Block 454 to Boost Performance and Durability"
-description: "Choosing the right spark plugs and wires is key for a Big Block 454 engine’s performance. The right parts improve power, fuel efficiency, and engine life. Big B"
+title: Best Spark Plugs for Big Block 454 to Boost Performance and Durability
+description: Choosing the right spark plugs and wires is key for a Big Block 454 engine’s
+  performance. The right parts improve power, fuel efficiency, and engine life. Big
+  B
 pubDate: 2025-11-01
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-spark-plugs-for-big-block-454&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Carburetor and Fuel Injection Kits
+heroImage: https://tse1.mm.bing.net/th?q=best-spark-plugs-for-big-block-454&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the right spark plugs and wires is key for a Big Block 454 engine’s performance. The right parts improve power, fuel efficiency, and engine life.**

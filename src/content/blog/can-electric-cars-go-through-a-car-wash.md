@@ -1,10 +1,14 @@
 ---
-title: "Can Electric Cars Go Through a Car Wash: Essential Facts Revealed"
-description: "Are you wondering if your electric car can safely go through a car wash? It’s a question many EV owners ask. You want your car clean without risking damage to i"
+title: 'Can Electric Cars Go Through a Car Wash: Essential Facts Revealed'
+description: Are you wondering if your electric car can safely go through a car wash?
+  It’s a question many EV owners ask. You want your car clean without risking damage
+  to i
 pubDate: 2026-03-20
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-electric-cars-go-through-a-car-wash&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Washing Electric Cars
+heroImage: https://tse1.mm.bing.net/th?q=can-electric-cars-go-through-a-car-wash&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you wondering if your electric car can safely go through a car wash? It’s a question many EV owners ask.**

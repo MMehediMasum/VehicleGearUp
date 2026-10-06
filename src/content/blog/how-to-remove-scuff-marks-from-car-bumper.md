@@ -1,10 +1,14 @@
 ---
-title: "How to Remove Scuff Marks from Car Bumper: Easy & Effective Tips"
-description: "Have you noticed scuff marks ruining the look of your car bumper? Those annoying scratches can make your vehicle look older and less cared for. But don’t worry—"
+title: 'How to Remove Scuff Marks from Car Bumper: Easy & Effective Tips'
+description: Have you noticed scuff marks ruining the look of your car bumper? Those
+  annoying scratches can make your vehicle look older and less cared for. But don’t
+  worry—
 pubDate: 2026-03-18
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-remove-scuff-marks-from-car-bumper&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Mirrors and Trim Adhesives
+heroImage: https://tse1.mm.bing.net/th?q=how-to-remove-scuff-marks-from-car-bumper&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Have you noticed scuff marks ruining the look of your car bumper? Those annoying scratches can make your vehicle look older and less cared for.**

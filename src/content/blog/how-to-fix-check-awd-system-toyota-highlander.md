@@ -1,10 +1,14 @@
 ---
-title: "How to Fix Check Awd System Toyota Highlander: Easy Step-by-Step Guide"
-description: "If you’ve ever seen the “Check AWD System” warning light on your Toyota Highlander, you know it can be confusing and frustrating. This alert means your all-whee"
+title: 'How to Fix Check Awd System Toyota Highlander: Easy Step-by-Step Guide'
+description: If you’ve ever seen the “Check AWD System” warning light on your Toyota
+  Highlander, you know it can be confusing and frustrating. This alert means your
+  all-whee
 pubDate: 2026-05-19
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-check-awd-system-toyota-highlander&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Turning On 4WD
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-check-awd-system-toyota-highlander&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **If you’ve ever seen the “Check AWD System” warning light on your Toyota Highlander, you know it can be confusing and frustrating. This alert means your all-wheel drive system isn’t working as it should, which can affect your car’s performance and safety.**

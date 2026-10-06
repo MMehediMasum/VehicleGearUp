@@ -1,10 +1,14 @@
 ---
-title: "How to Repair Scratches on Car Bumper: Easy DIY Fixes That Work"
-description: "Have you noticed scratches on your car bumper that make your vehicle look less than perfect? Those little marks can be frustrating, but the good news is you don"
+title: 'How to Repair Scratches on Car Bumper: Easy DIY Fixes That Work'
+description: Have you noticed scratches on your car bumper that make your vehicle
+  look less than perfect? Those little marks can be frustrating, but the good news
+  is you don
 pubDate: 2025-11-19
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-repair-scratches-on-car-bumper&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Bumper Dent and Scratch Repair
+heroImage: https://tse1.mm.bing.net/th?q=how-to-repair-scratches-on-car-bumper&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you noticed scratches on your car bumper that make your vehicle look less than perfect? Those little marks can be frustrating, but the good news is you don’t have to live with them or spend a fortune on repairs.**

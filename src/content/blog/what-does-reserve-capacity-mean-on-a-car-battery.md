@@ -1,10 +1,14 @@
 ---
-title: "What Does Reserve Capacity Mean on a Car Battery: Essential Guide"
-description: "Have you ever wondered what those numbers on your car battery really mean? If you’ve seen the term \"reserve capacity\" and felt unsure about its importance, you’"
+title: 'What Does Reserve Capacity Mean on a Car Battery: Essential Guide'
+description: Have you ever wondered what those numbers on your car battery really
+  mean? If you’ve seen the term "reserve capacity" and felt unsure about its importance,
+  you’
 pubDate: 2025-11-12
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-does-reserve-capacity-mean-on-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Ratings Explained
+heroImage: https://tse1.mm.bing.net/th?q=what-does-reserve-capacity-mean-on-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered what those numbers on your car battery really mean? If you’ve seen the term "reserve capacity" and felt unsure about its importance, you’re not alone.**

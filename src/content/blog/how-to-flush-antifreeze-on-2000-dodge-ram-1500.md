@@ -1,10 +1,14 @@
 ---
-title: "How to Flush Antifreeze on 2000 Dodge Ram 1500: Easy Step-by-Step Guide"
-description: "If you own a 2000 Dodge Ram 1500, keeping your engine cool is crucial. Over time, antifreeze can get dirty or lose its effectiveness, which can cause your engin"
+title: 'How to Flush Antifreeze on 2000 Dodge Ram 1500: Easy Step-by-Step Guide'
+description: If you own a 2000 Dodge Ram 1500, keeping your engine cool is crucial.
+  Over time, antifreeze can get dirty or lose its effectiveness, which can cause your
+  engin
 pubDate: 2026-02-12
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-flush-antifreeze-on-2000-dodge-ram-1500&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Coolant and AC Recharge
+heroImage: https://tse1.mm.bing.net/th?q=how-to-flush-antifreeze-on-2000-dodge-ram-1500&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a 2000 Dodge Ram 1500, keeping your engine cool is crucial. Over time, antifreeze can get dirty or lose its effectiveness, which can cause your engine to overheat.**

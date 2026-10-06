@@ -1,10 +1,14 @@
 ---
-title: "How to Put Rivian in Car Wash Mode: Easy Steps for Safe Cleaning"
-description: "If you own a Rivian, you know it’s more than just a car—it’s a high-tech machine built for adventure. But when it’s time for a car wash, you need to make sure y"
+title: 'How to Put Rivian in Car Wash Mode: Easy Steps for Safe Cleaning'
+description: If you own a Rivian, you know it’s more than just a car—it’s a high-tech
+  machine built for adventure. But when it’s time for a car wash, you need to make
+  sure y
 pubDate: 2025-09-13
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-put-rivian-in-car-wash-mode&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Washing Electric Cars
+heroImage: https://tse1.mm.bing.net/th?q=how-to-put-rivian-in-car-wash-mode&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **If you own a Rivian, you know it’s more than just a car—it’s a high-tech machine built for adventure. But when it’s time for a car wash, you need to make sure your vehicle is ready and protected.**

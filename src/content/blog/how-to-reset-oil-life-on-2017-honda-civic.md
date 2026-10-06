@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Life on 2017 Honda Civic: Quick & Easy Steps"
-description: "If you own a 2017 Honda Civic, knowing how to reset the oil life indicator is essential. This simple step helps you keep track of your engine’s health and avoid"
+title: 'How to Reset Oil Life on 2017 Honda Civic: Quick & Easy Steps'
+description: If you own a 2017 Honda Civic, knowing how to reset the oil life indicator
+  is essential. This simple step helps you keep track of your engine’s health and
+  avoid
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-life-on-2017-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Oil Life Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-life-on-2017-honda-civic&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a 2017 Honda Civic, knowing how to reset the oil life indicator is essential. This simple step helps you keep track of your engine’s health and avoid costly repairs.**

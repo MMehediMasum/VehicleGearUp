@@ -1,10 +1,14 @@
 ---
-title: "Best Sway Bars for Class C RV: Top Picks for Ultimate Stability"
-description: "Choosing the best sway bars improves the safety and comfort of your Class C RV trips. Proper sway bars reduce trailer sway and keep your vehicle steady on the r"
+title: 'Best Sway Bars for Class C RV: Top Picks for Ultimate Stability'
+description: Choosing the best sway bars improves the safety and comfort of your Class
+  C RV trips. Proper sway bars reduce trailer sway and keep your vehicle steady on
+  the r
 pubDate: 2026-06-24
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-sway-bars-for-class-c-rv&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Truck Suspension Upgrades
+heroImage: https://tse1.mm.bing.net/th?q=best-sway-bars-for-class-c-rv&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Choosing the best sway bars improves the safety and comfort of your Class C RV trips. Proper sway bars reduce trailer sway and keep your vehicle steady on the road.**

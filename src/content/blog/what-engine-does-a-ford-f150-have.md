@@ -1,10 +1,13 @@
 ---
-title: "What Engine Does a Ford F150 Have: Ultimate Power Guide"
-description: "Are you curious about what engine powers your Ford F150 or the one you’re thinking of buying? Knowing the engine behind this popular truck can help you understa"
+title: 'What Engine Does a Ford F150 Have: Ultimate Power Guide'
+description: Are you curious about what engine powers your Ford F150 or the one you’re
+  thinking of buying? Knowing the engine behind this popular truck can help you understa
 pubDate: 2026-05-14
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-engine-does-a-ford-f150-have&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Third Row and Mileage
+heroImage: https://tse1.mm.bing.net/th?q=what-engine-does-a-ford-f150-have&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you curious about what engine powers your Ford F150 or the one you’re thinking of buying? Knowing the engine behind this popular truck can help you understand its strength, performance, and fuel efficiency.**

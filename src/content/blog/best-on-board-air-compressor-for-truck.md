@@ -1,10 +1,14 @@
 ---
-title: "Best on Board Air Compressor for Truck: Top Portable Tire Inflators Reviewed"
-description: "Finding the best on board air compressor for your truck can save time and keep you safe on the road. These compressors offer quick, reliable tire inflation wher"
+title: 'Best on Board Air Compressor for Truck: Top Portable Tire Inflators Reviewed'
+description: Finding the best on board air compressor for your truck can save time
+  and keep you safe on the road. These compressors offer quick, reliable tire inflation
+  wher
 pubDate: 2025-10-18
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-on-board-air-compressor-for-truck&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tire Inflators and Compressors
+heroImage: https://tse1.mm.bing.net/th?q=best-on-board-air-compressor-for-truck&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Finding the best on board air compressor for your truck can save time and keep you safe on the road. These compressors offer quick, reliable tire inflation wherever you go.**

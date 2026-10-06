@@ -1,10 +1,14 @@
 ---
-title: "What Trim is 2002 Chevrolet Silverado 1500 LS Released: Complete Guide"
-description: "Are you curious about the specific trim of the 2002 Chevrolet Silverado 1500 LS? Knowing the exact trim can help you understand what features come standard, wha"
+title: 'What Trim is 2002 Chevrolet Silverado 1500 LS Released: Complete Guide'
+description: Are you curious about the specific trim of the 2002 Chevrolet Silverado
+  1500 LS? Knowing the exact trim can help you understand what features come standard,
+  wha
 pubDate: 2025-10-03
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-trim-is-2002-chevrolet-silverado-1500-ls-released&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Snow Plows
+heroImage: https://tse1.mm.bing.net/th?q=what-trim-is-2002-chevrolet-silverado-1500-ls-released&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Are you curious about the specific trim of the 2002 Chevrolet Silverado 1500 LS? Knowing the exact trim can help you understand what features come standard, what upgrades you can expect, and how this truck stands out from other models.**

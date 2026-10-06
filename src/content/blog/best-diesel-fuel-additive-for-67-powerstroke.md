@@ -1,10 +1,14 @@
 ---
-title: "Best Diesel Fuel Additive for 6.7 Powerstroke to Maximize Performance"
-description: "Choosing the best diesel fuel additive for your 6.7 Powerstroke helps keep the engine clean and running smoothly. Proper additives improve fuel efficiency and p"
+title: Best Diesel Fuel Additive for 6.7 Powerstroke to Maximize Performance
+description: Choosing the best diesel fuel additive for your 6.7 Powerstroke helps
+  keep the engine clean and running smoothly. Proper additives improve fuel efficiency
+  and p
 pubDate: 2026-06-24
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-diesel-fuel-additive-for-67-powerstroke&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Scan Tools and Code Readers
+heroImage: https://tse1.mm.bing.net/th?q=best-diesel-fuel-additive-for-67-powerstroke&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best diesel fuel additive for your 6.7 Powerstroke helps keep the engine clean and running smoothly. Proper additives improve fuel efficiency and protect vital engine parts.**

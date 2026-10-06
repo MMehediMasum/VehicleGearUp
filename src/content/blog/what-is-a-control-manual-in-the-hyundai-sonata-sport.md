@@ -1,10 +1,14 @@
 ---
-title: "What is a Control Manual in the Hyundai Sonata Sport: Ultimate Guide"
-description: "If you own a Hyundai Sonata Sport or are thinking about getting one, understanding the control manual is essential. This simple guide holds the key to unlocking"
+title: 'What is a Control Manual in the Hyundai Sonata Sport: Ultimate Guide'
+description: If you own a Hyundai Sonata Sport or are thinking about getting one,
+  understanding the control manual is essential. This simple guide holds the key to
+  unlocking
 pubDate: 2026-03-08
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-a-control-manual-in-the-hyundai-sonata-sport&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Everyday Car Questions
+heroImage: https://tse1.mm.bing.net/th?q=what-is-a-control-manual-in-the-hyundai-sonata-sport&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **If you own a Hyundai Sonata Sport or are thinking about getting one, understanding the control manual is essential. This simple guide holds the key to unlocking everything your car can do.**

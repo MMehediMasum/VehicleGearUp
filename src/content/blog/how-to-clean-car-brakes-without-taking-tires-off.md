@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Car Brakes Without Taking Tires off: Easy & Safe Steps"
-description: "Your car’s brakes are one of the most important safety features, but cleaning them can seem like a big hassle. What if you could keep your brakes in top shape w"
+title: 'How to Clean Car Brakes Without Taking Tires off: Easy & Safe Steps'
+description: Your car’s brakes are one of the most important safety features, but
+  cleaning them can seem like a big hassle. What if you could keep your brakes in
+  top shape w
 pubDate: 2026-04-27
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-car-brakes-without-taking-tires-off&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tire Construction and Origin
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-car-brakes-without-taking-tires-off&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Your car’s brakes are one of the most important safety features, but cleaning them can seem like a big hassle. What if you could keep your brakes in top shape without the mess and effort of taking the tires off?**

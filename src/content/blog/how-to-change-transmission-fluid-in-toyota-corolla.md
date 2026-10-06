@@ -1,10 +1,14 @@
 ---
-title: "How to Change Transmission Fluid in Toyota Corolla: Easy Step-by-Step Guide"
-description: "If you want to keep your Toyota Corolla running smoothly, changing the transmission fluid is a task you shouldn’t skip. You might think it’s complicated or best"
+title: 'How to Change Transmission Fluid in Toyota Corolla: Easy Step-by-Step Guide'
+description: If you want to keep your Toyota Corolla running smoothly, changing the
+  transmission fluid is a task you shouldn’t skip. You might think it’s complicated
+  or best
 pubDate: 2025-09-13
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-transmission-fluid-in-toyota-corolla&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Adding Transmission Fluid
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-transmission-fluid-in-toyota-corolla&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you want to keep your Toyota Corolla running smoothly, changing the transmission fluid is a task you shouldn’t skip. You might think it’s complicated or best left to a mechanic, but with the right steps, you can do it yourself and save time and money.**

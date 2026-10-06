@@ -1,10 +1,14 @@
 ---
-title: "Where Can I Fix My Car Bumper: Top Reliable Repair Shops Near You"
-description: "Have you noticed a crack or dent on your car bumper and wonder, “Where can I fix my car bumper?” You’re not alone. A damaged bumper not only affects your car’s "
+title: 'Where Can I Fix My Car Bumper: Top Reliable Repair Shops Near You'
+description: 'Have you noticed a crack or dent on your car bumper and wonder, “Where
+  can I fix my car bumper?” You’re not alone. A damaged bumper not only affects your
+  car’s '
 pubDate: 2026-05-09
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-fix-my-car-bumper&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Bumper Dent and Scratch Repair
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-fix-my-car-bumper&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you noticed a crack or dent on your car bumper and wonder, “Where can I fix my car bumper?” You’re not alone. A damaged bumper not only affects your car’s look but can also impact its safety.**

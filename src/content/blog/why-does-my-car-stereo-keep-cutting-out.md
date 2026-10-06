@@ -1,10 +1,13 @@
 ---
-title: "Why Does My Car Stereo Keep Cutting Out: Quick Fixes Revealed"
-description: "Have you ever been driving, enjoying your favorite tunes, only for your car stereo to suddenly cut out? It’s frustrating, right? When your music stops unexpecte"
+title: 'Why Does My Car Stereo Keep Cutting Out: Quick Fixes Revealed'
+description: Have you ever been driving, enjoying your favorite tunes, only for your
+  car stereo to suddenly cut out? It’s frustrating, right? When your music stops unexpecte
 pubDate: 2026-05-31
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-does-my-car-stereo-keep-cutting-out&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Choosing Car Stereos
+heroImage: https://tse1.mm.bing.net/th?q=why-does-my-car-stereo-keep-cutting-out&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Have you ever been driving, enjoying your favorite tunes, only for your car stereo to suddenly cut out? It’s frustrating, right?**

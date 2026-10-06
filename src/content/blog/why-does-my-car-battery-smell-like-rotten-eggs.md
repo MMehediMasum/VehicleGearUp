@@ -1,10 +1,13 @@
 ---
-title: "Why Does My Car Battery Smell Like Rotten Eggs: Causes & Fixes"
-description: "Have you ever opened your car hood and noticed a strong smell like rotten eggs? That unpleasant odor coming from your car battery can be alarming and confusing."
+title: 'Why Does My Car Battery Smell Like Rotten Eggs: Causes & Fixes'
+description: Have you ever opened your car hood and noticed a strong smell like rotten
+  eggs? That unpleasant odor coming from your car battery can be alarming and confusing.
 pubDate: 2025-10-25
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-does-my-car-battery-smell-like-rotten-eggs&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Why Batteries Keep Dying
+heroImage: https://tse1.mm.bing.net/th?q=why-does-my-car-battery-smell-like-rotten-eggs&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever opened your car hood and noticed a strong smell like rotten eggs? That unpleasant odor coming from your car battery can be alarming and confusing.**

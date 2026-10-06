@@ -1,10 +1,14 @@
 ---
-title: "When Did Car Batteries Get So Expensive: Shocking Price Surge Explained"
-description: "Have you noticed how much car batteries cost these days? It might feel like the price keeps going up every time you need a new one. You’re not imagining it. If "
+title: 'When Did Car Batteries Get So Expensive: Shocking Price Surge Explained'
+description: 'Have you noticed how much car batteries cost these days? It might feel
+  like the price keeps going up every time you need a new one. You’re not imagining
+  it. If '
 pubDate: 2026-03-01
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=when-did-car-batteries-get-so-expensive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Types and Value
+heroImage: https://tse1.mm.bing.net/th?q=when-did-car-batteries-get-so-expensive&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you noticed how much car batteries cost these days? It might feel like the price keeps going up every time you need a new one.**

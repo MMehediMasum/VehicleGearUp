@@ -1,10 +1,14 @@
 ---
-title: "How Often Should You Get Your Car Washed: Ultimate Guide Revealed"
-description: "How often should you get your car washed? It’s a simple question, but the answer can make a big difference for your car’s look and value. You might think washin"
+title: 'How Often Should You Get Your Car Washed: Ultimate Guide Revealed'
+description: How often should you get your car washed? It’s a simple question, but
+  the answer can make a big difference for your car’s look and value. You might think
+  washin
 pubDate: 2026-03-18
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-often-should-you-get-your-car-washed&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Everyday Car Questions
+heroImage: https://tse1.mm.bing.net/th?q=how-often-should-you-get-your-car-washed&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **How often should you get your car washed? It’s a simple question, but the answer can make a big difference for your car’s look and value.**

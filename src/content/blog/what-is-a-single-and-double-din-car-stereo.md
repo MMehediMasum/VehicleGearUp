@@ -1,10 +1,14 @@
 ---
-title: "What is a Single And Double Din Car Stereo: Ultimate Guide Explained"
-description: "Are you thinking about upgrading your car stereo but feel confused by terms like \"Single Din\" and \"Double Din\"? You’re not alone. Understanding the difference b"
+title: 'What is a Single And Double Din Car Stereo: Ultimate Guide Explained'
+description: Are you thinking about upgrading your car stereo but feel confused by
+  terms like "Single Din" and "Double Din"? You’re not alone. Understanding the difference
+  b
 pubDate: 2026-05-23
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-a-single-and-double-din-car-stereo&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Stereo Installation Help
+heroImage: https://tse1.mm.bing.net/th?q=what-is-a-single-and-double-din-car-stereo&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are you thinking about upgrading your car stereo but feel confused by terms like "Single Din" and "Double Din"? You’re not alone.**

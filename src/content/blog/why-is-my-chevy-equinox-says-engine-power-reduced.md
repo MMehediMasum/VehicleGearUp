@@ -1,10 +1,14 @@
 ---
-title: "Why is My Chevy Equinox Says Engine Power Reduced: Causes & Fixes"
-description: "Have you ever noticed the message \"Engine Power Reduced\" flashing on your Chevy Equinox dashboard? It’s a warning that can cause immediate concern, especially w"
+title: 'Why is My Chevy Equinox Says Engine Power Reduced: Causes & Fixes'
+description: Have you ever noticed the message "Engine Power Reduced" flashing on
+  your Chevy Equinox dashboard? It’s a warning that can cause immediate concern, especially
+  w
 pubDate: 2026-05-01
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-is-my-chevy-equinox-says-engine-power-reduced&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Engine Noise and Heat
+heroImage: https://tse1.mm.bing.net/th?q=why-is-my-chevy-equinox-says-engine-power-reduced&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you ever noticed the message "Engine Power Reduced" flashing on your Chevy Equinox dashboard? It’s a warning that can cause immediate concern, especially when you’re driving and don’t know what’s wrong.**

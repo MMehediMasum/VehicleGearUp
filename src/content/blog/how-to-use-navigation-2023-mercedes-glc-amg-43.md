@@ -1,10 +1,14 @@
 ---
-title: "How to Use Navigation 2025 Mercedes GLC AMG 43: Ultimate Guide"
-description: "If you own a 2023 Mercedes GLC AMG 43, mastering its navigation system can make every drive smoother and stress-free. You want to get where you’re going quickly"
+title: 'How to Use Navigation 2025 Mercedes GLC AMG 43: Ultimate Guide'
+description: If you own a 2023 Mercedes GLC AMG 43, mastering its navigation system
+  can make every drive smoother and stress-free. You want to get where you’re going
+  quickly
 pubDate: 2026-02-04
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-use-navigation-2023-mercedes-glc-amg-43&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Warning Light Fixes
+heroImage: https://tse1.mm.bing.net/th?q=how-to-use-navigation-2023-mercedes-glc-amg-43&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If you own a 2023 Mercedes GLC AMG 43, mastering its navigation system can make every drive smoother and stress-free. You want to get where you’re going quickly, without fumbling through menus or missing important turns.**

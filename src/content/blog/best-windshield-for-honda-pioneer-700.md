@@ -1,10 +1,14 @@
 ---
-title: "Best Windshield for Honda Pioneer 700: Top Durable and Scratch-Resistant Picks"
-description: "Choosing the best windshield for your Honda Pioneer 700 improves comfort and protection on every ride. A quality windshield blocks wind, dust, and debris effect"
+title: 'Best Windshield for Honda Pioneer 700: Top Durable and Scratch-Resistant Picks'
+description: Choosing the best windshield for your Honda Pioneer 700 improves comfort
+  and protection on every ride. A quality windshield blocks wind, dust, and debris
+  effect
 pubDate: 2026-07-03
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-windshield-for-honda-pioneer-700&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- ATV Tires and Speed
+heroImage: https://tse1.mm.bing.net/th?q=best-windshield-for-honda-pioneer-700&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best windshield for your Honda Pioneer 700 improves comfort and protection on every ride. A quality windshield blocks wind, dust, and debris effectively.**

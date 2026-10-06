@@ -1,10 +1,14 @@
 ---
-title: "Which Cars are Most Likely to Have Catalytic Converter Stolen: Top Targets Revealed"
-description: "Have you ever wondered if your car could be a target for thieves looking to steal its catalytic converter? You might be surprised to learn that certain vehicles"
+title: 'Which Cars are Most Likely to Have Catalytic Converter Stolen: Top Targets
+  Revealed'
+description: Have you ever wondered if your car could be a target for thieves looking
+  to steal its catalytic converter? You might be surprised to learn that certain vehicles
 pubDate: 2026-01-25
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=which-cars-are-most-likely-to-have-catalytic-converter-stolen&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- GPS Trackers for Cars
+heroImage: https://tse1.mm.bing.net/th?q=which-cars-are-most-likely-to-have-catalytic-converter-stolen&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **Have you ever wondered if your car could be a target for thieves looking to steal its catalytic converter? You might be surprised to learn that certain vehicles are at a much higher risk than others.**

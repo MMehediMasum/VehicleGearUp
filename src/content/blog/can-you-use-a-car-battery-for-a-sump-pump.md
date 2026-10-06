@@ -1,10 +1,14 @@
 ---
-title: "Can You Use a Car Battery for a Sump Pump: Essential Guide"
-description: "Have you ever worried about what happens to your sump pump during a power outage? If you live in an area prone to heavy rain or flooding, keeping your basement "
+title: 'Can You Use a Car Battery for a Sump Pump: Essential Guide'
+description: 'Have you ever worried about what happens to your sump pump during a
+  power outage? If you live in an area prone to heavy rain or flooding, keeping your
+  basement '
 pubDate: 2026-03-29
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-use-a-car-battery-for-a-sump-pump&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Choosing the Best Battery
+heroImage: https://tse1.mm.bing.net/th?q=can-you-use-a-car-battery-for-a-sump-pump&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever worried about what happens to your sump pump during a power outage? If you live in an area prone to heavy rain or flooding, keeping your basement dry is crucial.**

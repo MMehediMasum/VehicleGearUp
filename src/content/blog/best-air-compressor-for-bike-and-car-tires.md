@@ -1,10 +1,14 @@
 ---
-title: "Best Air Compressor for Bike And Car Tires: Top Portable Inflators Reviewed"
-description: "Finding the best air compressor for bike and car tires saves time and keeps you safe on the road. A reliable tire inflator works fast and fits easily in your ca"
+title: 'Best Air Compressor for Bike And Car Tires: Top Portable Inflators Reviewed'
+description: Finding the best air compressor for bike and car tires saves time and
+  keeps you safe on the road. A reliable tire inflator works fast and fits easily
+  in your ca
 pubDate: 2026-01-12
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-air-compressor-for-bike-and-car-tires&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tire Inflators and Compressors
+heroImage: https://tse1.mm.bing.net/th?q=best-air-compressor-for-bike-and-car-tires&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Finding the best air compressor for bike and car tires saves time and keeps you safe on the road. A reliable tire inflator works fast and fits easily in your car or garage.**

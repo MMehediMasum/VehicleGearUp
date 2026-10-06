@@ -1,10 +1,14 @@
 ---
-title: "How to Check Oil on Harley Davidson: Easy Steps for Optimal Care"
-description: "If you own a Harley Davidson, keeping your bike’s engine running smoothly starts with one simple habit: checking the oil. But do you know exactly how to check t"
+title: 'How to Check Oil on Harley Davidson: Easy Steps for Optimal Care'
+description: 'If you own a Harley Davidson, keeping your bike’s engine running smoothly
+  starts with one simple habit: checking the oil. But do you know exactly how to check
+  t'
 pubDate: 2026-05-15
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-check-oil-on-harley-davidson&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Fuel and Exhaust
+heroImage: https://tse1.mm.bing.net/th?q=how-to-check-oil-on-harley-davidson&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **If you own a Harley Davidson, keeping your bike’s engine running smoothly starts with one simple habit: checking the oil. But do you know exactly how to check the oil the right way?**

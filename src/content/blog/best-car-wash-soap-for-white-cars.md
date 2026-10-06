@@ -1,10 +1,14 @@
 ---
-title: "Best Car Wash Soap for White Cars: Top Picks for a Spotless Shine"
-description: "Choosing the best car wash soap for white cars helps keep their paint bright and clean. White cars need gentle formulas that remove dirt without dulling the shi"
+title: 'Best Car Wash Soap for White Cars: Top Picks for a Spotless Shine'
+description: Choosing the best car wash soap for white cars helps keep their paint
+  bright and clean. White cars need gentle formulas that remove dirt without dulling
+  the shi
 pubDate: 2026-07-07
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-wash-soap-for-white-cars&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wash Soap Picks
+heroImage: https://tse1.mm.bing.net/th?q=best-car-wash-soap-for-white-cars&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best car wash soap for white cars helps keep their paint bright and clean. White cars need gentle formulas that remove dirt without dulling the shine.**

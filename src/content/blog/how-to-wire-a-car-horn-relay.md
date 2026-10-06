@@ -1,10 +1,14 @@
 ---
-title: "How to Wire a Car Horn Relay: Easy Steps for Reliable Sound"
-description: "If your car horn isn’t working right, wiring a horn relay might be the fix you need. It’s a simple upgrade that can make your horn louder and more reliable. But"
+title: 'How to Wire a Car Horn Relay: Easy Steps for Reliable Sound'
+description: If your car horn isn’t working right, wiring a horn relay might be the
+  fix you need. It’s a simple upgrade that can make your horn louder and more reliable.
+  But
 pubDate: 2025-12-12
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-wire-a-car-horn-relay&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Horn Problems
+heroImage: https://tse1.mm.bing.net/th?q=how-to-wire-a-car-horn-relay&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If your car horn isn’t working right, wiring a horn relay might be the fix you need. It’s a simple upgrade that can make your horn louder and more reliable.**

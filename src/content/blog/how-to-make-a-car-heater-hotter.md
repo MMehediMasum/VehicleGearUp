@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Car Heater Hotter: Easy Tips for Instant Warmth"
-description: "Are you tired of your car’s heater barely warming up on chilly days? When the cold hits, you want quick, cozy heat—not a weak breeze. Luckily, there are simple "
+title: 'How to Make a Car Heater Hotter: Easy Tips for Instant Warmth'
+description: 'Are you tired of your car’s heater barely warming up on chilly days?
+  When the cold hits, you want quick, cozy heat—not a weak breeze. Luckily, there
+  are simple '
 pubDate: 2026-02-19
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-car-heater-hotter&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Heater Not Working
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-car-heater-hotter&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Are you tired of your car’s heater barely warming up on chilly days? When the cold hits, you want quick, cozy heat—not a weak breeze.**

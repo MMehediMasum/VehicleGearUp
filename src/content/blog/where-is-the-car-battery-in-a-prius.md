@@ -1,10 +1,14 @@
 ---
-title: "Where is the Car Battery in a Prius: Easy Location Guide"
-description: "Are you trying to find the car battery in your Prius but feeling a bit lost? Knowing exactly where your Prius battery is can save you time and frustration, espe"
+title: 'Where is the Car Battery in a Prius: Easy Location Guide'
+description: Are you trying to find the car battery in your Prius but feeling a bit
+  lost? Knowing exactly where your Prius battery is can save you time and frustration,
+  espe
 pubDate: 2026-04-06
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-is-the-car-battery-in-a-prius&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Hybrid Tires
+heroImage: https://tse1.mm.bing.net/th?q=where-is-the-car-battery-in-a-prius&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you trying to find the car battery in your Prius but feeling a bit lost? Knowing exactly where your Prius battery is can save you time and frustration, especially when you need a jump start or a replacement.**

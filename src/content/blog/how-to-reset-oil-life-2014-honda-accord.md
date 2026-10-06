@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Life 2014 Honda Accord: Quick & Easy Guide"
-description: "Are you ready to keep your 2014 Honda Accord running smoothly? Knowing how to reset the oil life indicator is a simple yet crucial step to maintaining your car’"
+title: 'How to Reset Oil Life 2014 Honda Accord: Quick & Easy Guide'
+description: Are you ready to keep your 2014 Honda Accord running smoothly? Knowing
+  how to reset the oil life indicator is a simple yet crucial step to maintaining
+  your car’
 pubDate: 2026-04-23
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-life-2014-honda-accord&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Oil Life Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-life-2014-honda-accord&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Are you ready to keep your 2014 Honda Accord running smoothly? Knowing how to reset the oil life indicator is a simple yet crucial step to maintaining your car’s health.**

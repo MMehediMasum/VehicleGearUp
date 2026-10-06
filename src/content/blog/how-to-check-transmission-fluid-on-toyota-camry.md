@@ -1,10 +1,14 @@
 ---
-title: "How to Check Transmission Fluid on Toyota Camry: Easy Step-by-Step Guide"
-description: "If you want your Toyota Camry to run smoothly and avoid costly repairs, checking your transmission fluid is a must. But how do you do it right? You might feel u"
+title: 'How to Check Transmission Fluid on Toyota Camry: Easy Step-by-Step Guide'
+description: If you want your Toyota Camry to run smoothly and avoid costly repairs,
+  checking your transmission fluid is a must. But how do you do it right? You might
+  feel u
 pubDate: 2026-04-25
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-check-transmission-fluid-on-toyota-camry&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Transmission Fluid Checks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-check-transmission-fluid-on-toyota-camry&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you want your Toyota Camry to run smoothly and avoid costly repairs, checking your transmission fluid is a must. But how do you do it right?**

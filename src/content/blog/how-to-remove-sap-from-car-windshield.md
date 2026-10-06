@@ -1,10 +1,14 @@
 ---
-title: "How to Remove Sap from Car Windshield: Easy & Effective Tips"
-description: "Sap on your car windshield can be a real headache. It blocks your view, makes driving unsafe, and can be tough to clean off. You might have tried scrubbing or w"
+title: 'How to Remove Sap from Car Windshield: Easy & Effective Tips'
+description: Sap on your car windshield can be a real headache. It blocks your view,
+  makes driving unsafe, and can be tough to clean off. You might have tried scrubbing
+  or w
 pubDate: 2026-03-18
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-remove-sap-from-car-windshield&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Windshield Sap and Scratches
+heroImage: https://tse1.mm.bing.net/th?q=how-to-remove-sap-from-car-windshield&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Sap on your car windshield can be a real headache. It blocks your view, makes driving unsafe, and can be tough to clean off.**

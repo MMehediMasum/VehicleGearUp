@@ -1,10 +1,14 @@
 ---
-title: "How to Jump Start a Ford Transit Van: Quick & Easy Steps"
-description: "Is your Ford Transit van refusing to start when you need it most? Don’t worry—you’re not alone, and the solution might be simpler than you think. Knowing how to"
+title: 'How to Jump Start a Ford Transit Van: Quick & Easy Steps'
+description: Is your Ford Transit van refusing to start when you need it most? Don’t
+  worry—you’re not alone, and the solution might be simpler than you think. Knowing
+  how to
 pubDate: 2025-12-12
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-jump-start-a-ford-transit-van&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jump Starting by Model
+heroImage: https://tse1.mm.bing.net/th?q=how-to-jump-start-a-ford-transit-van&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your Ford Transit van refusing to start when you need it most? Don’t worry—you’re not alone, and the solution might be simpler than you think.**

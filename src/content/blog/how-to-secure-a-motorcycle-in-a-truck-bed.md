@@ -1,10 +1,14 @@
 ---
-title: "How to Secure a Motorcycle in a Truck Bed: Easy & Safe Tips"
-description: "You’ve got your motorcycle ready to go, and your truck is the perfect way to transport it. But how do you make sure your bike stays safe and secure during the r"
+title: 'How to Secure a Motorcycle in a Truck Bed: Easy & Safe Tips'
+description: You’ve got your motorcycle ready to go, and your truck is the perfect
+  way to transport it. But how do you make sure your bike stays safe and secure during
+  the r
 pubDate: 2026-01-18
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-secure-a-motorcycle-in-a-truck-bed&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hauling Motorcycles in Trucks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-secure-a-motorcycle-in-a-truck-bed&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **You’ve got your motorcycle ready to go, and your truck is the perfect way to transport it. But how do you make sure your bike stays safe and secure during the ride?**

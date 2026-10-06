@@ -1,10 +1,14 @@
 ---
-title: "How to Use Drive Thru Car Wash: Quick Tips for a Sparkling Clean"
-description: "Are you looking for a quick and easy way to keep your car sparkling clean without the hassle? A drive thru car wash might be exactly what you need. But if you’v"
+title: 'How to Use Drive Thru Car Wash: Quick Tips for a Sparkling Clean'
+description: Are you looking for a quick and easy way to keep your car sparkling clean
+  without the hassle? A drive thru car wash might be exactly what you need. But if
+  you’v
 pubDate: 2025-09-27
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-use-drive-thru-car-wash&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Using Car Wash Vacuums
+heroImage: https://tse1.mm.bing.net/th?q=how-to-use-drive-thru-car-wash&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Are you looking for a quick and easy way to keep your car sparkling clean without the hassle? A drive thru car wash might be exactly what you need.**

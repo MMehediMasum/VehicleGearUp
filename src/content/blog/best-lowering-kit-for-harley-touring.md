@@ -1,10 +1,13 @@
 ---
-title: "Best Lowering Kit for Harley Touring: Top Adjustable Rear Kits Reviewed"
-description: "Finding the best lowering kit for your Harley Touring bike improves comfort and control. It also enhances your bike’s stance and riding experience. Harley Touri"
+title: 'Best Lowering Kit for Harley Touring: Top Adjustable Rear Kits Reviewed'
+description: Finding the best lowering kit for your Harley Touring bike improves comfort
+  and control. It also enhances your bike’s stance and riding experience. Harley Touri
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lowering-kit-for-harley-touring&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Fuel and Exhaust
+heroImage: https://tse1.mm.bing.net/th?q=best-lowering-kit-for-harley-touring&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Finding the best lowering kit for your Harley Touring bike improves comfort and control. It also enhances your bike’s stance and riding experience.**

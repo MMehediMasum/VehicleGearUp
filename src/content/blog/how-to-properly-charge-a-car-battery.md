@@ -1,10 +1,14 @@
 ---
-title: "How to Properly Charge a Car Battery: Expert Tips for Success"
-description: "Is your car battery giving you trouble? Knowing how to properly charge a car battery can save you time, money, and a lot of frustration. Whether your battery di"
+title: 'How to Properly Charge a Car Battery: Expert Tips for Success'
+description: Is your car battery giving you trouble? Knowing how to properly charge
+  a car battery can save you time, money, and a lot of frustration. Whether your battery
+  di
 pubDate: 2026-04-16
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-properly-charge-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Charging a Car Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-properly-charge-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your car battery giving you trouble? Knowing how to properly charge a car battery can save you time, money, and a lot of frustration.**

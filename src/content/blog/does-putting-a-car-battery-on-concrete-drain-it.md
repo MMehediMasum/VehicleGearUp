@@ -1,10 +1,14 @@
 ---
-title: "Does Putting a Car Battery on Concrete Drain It? Myth vs Fact Revealed"
-description: "Have you ever wondered if placing your car battery directly on concrete can drain its power? It’s a question many car owners ask, especially when storing a batt"
+title: Does Putting a Car Battery on Concrete Drain It? Myth vs Fact Revealed
+description: Have you ever wondered if placing your car battery directly on concrete
+  can drain its power? It’s a question many car owners ask, especially when storing
+  a batt
 pubDate: 2025-11-11
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-putting-a-car-battery-on-concrete-drain-it&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Cold Weather Battery Drain
+heroImage: https://tse1.mm.bing.net/th?q=does-putting-a-car-battery-on-concrete-drain-it&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if placing your car battery directly on concrete can drain its power? It’s a question many car owners ask, especially when storing a battery for a long time.**

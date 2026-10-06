@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for GMC Sierra 1500 AT4: Top Picks for Ultimate Performance"
-description: "Choosing the best tires for your GMC Sierra 1500 AT4 boosts performance and safety on all terrains. Proper tires improve handling, traction, and ride comfort fo"
+title: 'Best Tires for GMC Sierra 1500 AT4: Top Picks for Ultimate Performance'
+description: Choosing the best tires for your GMC Sierra 1500 AT4 boosts performance
+  and safety on all terrains. Proper tires improve handling, traction, and ride comfort
+  fo
 pubDate: 2026-01-01
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-gmc-sierra-1500-at4&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Chevy and GMC Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-gmc-sierra-1500-at4&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your GMC Sierra 1500 AT4 boosts performance and safety on all terrains. Proper tires improve handling, traction, and ride comfort for your truck.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Change Headlight Bulb 2017 Honda Accord: Easy Step-by-Step Guide"
-description: "Is your 2017 Honda Accord’s headlight bulb flickering or completely out? Driving without proper lighting is not only unsafe but also illegal in many places. The"
+title: 'How to Change Headlight Bulb 2017 Honda Accord: Easy Step-by-Step Guide'
+description: Is your 2017 Honda Accord’s headlight bulb flickering or completely out?
+  Driving without proper lighting is not only unsafe but also illegal in many places.
+  The
 pubDate: 2026-05-31
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-headlight-bulb-2017-honda-accord&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Headlight Bulbs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-headlight-bulb-2017-honda-accord&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your 2017 Honda Accord’s headlight bulb flickering or completely out? Driving without proper lighting is not only unsafe but also illegal in many places.**

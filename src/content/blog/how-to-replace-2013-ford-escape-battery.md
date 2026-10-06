@@ -1,10 +1,14 @@
 ---
-title: "How to Replace 2013 Ford Escape Battery: Easy Step-by-Step Guide"
-description: "Is your 2013 Ford Escape struggling to start or showing signs of a weak battery? You’re not alone—and the good news is that replacing your car battery is easier"
+title: 'How to Replace 2013 Ford Escape Battery: Easy Step-by-Step Guide'
+description: Is your 2013 Ford Escape struggling to start or showing signs of a weak
+  battery? You’re not alone—and the good news is that replacing your car battery is
+  easier
 pubDate: 2025-09-07
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-replace-2013-ford-escape-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- When to Replace a Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-replace-2013-ford-escape-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your 2013 Ford Escape struggling to start or showing signs of a weak battery? You’re not alone—and the good news is that replacing your car battery is easier than you might think.**

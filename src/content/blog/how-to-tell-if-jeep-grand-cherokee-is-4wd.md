@@ -1,10 +1,14 @@
 ---
-title: "How to Tell If Jeep Grand Cherokee is 4Wd: Easy Expert Tips"
-description: "Are you wondering if your Jeep Grand Cherokee has 4WD? Knowing this can make a big difference, especially when you face tough roads or bad weather. But how can "
+title: 'How to Tell If Jeep Grand Cherokee is 4Wd: Easy Expert Tips'
+description: 'Are you wondering if your Jeep Grand Cherokee has 4WD? Knowing this
+  can make a big difference, especially when you face tough roads or bad weather.
+  But how can '
 pubDate: 2026-03-07
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-tell-if-jeep-grand-cherokee-is-4wd&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Turning On 4WD
+heroImage: https://tse1.mm.bing.net/th?q=how-to-tell-if-jeep-grand-cherokee-is-4wd&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you wondering if your Jeep Grand Cherokee has 4WD? Knowing this can make a big difference, especially when you face tough roads or bad weather.**

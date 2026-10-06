@@ -1,10 +1,14 @@
 ---
-title: "How to Change a Headlight in a Hyundai Elantra: Easy Step-by-Step Guide"
-description: "Is your Hyundai Elantra’s headlight flickering or completely out? Driving with a broken headlight is not only unsafe but can also get you a ticket. The good new"
+title: 'How to Change a Headlight in a Hyundai Elantra: Easy Step-by-Step Guide'
+description: Is your Hyundai Elantra’s headlight flickering or completely out? Driving
+  with a broken headlight is not only unsafe but can also get you a ticket. The good
+  new
 pubDate: 2026-05-28
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-a-headlight-in-a-hyundai-elantra&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Headlight Bulbs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-a-headlight-in-a-hyundai-elantra&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your Hyundai Elantra’s headlight flickering or completely out? Driving with a broken headlight is not only unsafe but can also get you a ticket.**

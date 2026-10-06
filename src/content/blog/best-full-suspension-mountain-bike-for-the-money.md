@@ -1,10 +1,13 @@
 ---
-title: "Best Full Suspension Mountain Bike for the Money: Top Durable Picks"
-description: "Finding the best full suspension mountain bike for the money can be tricky. You want quality, comfort, and durability without spending too much. Full suspension"
+title: 'Best Full Suspension Mountain Bike for the Money: Top Durable Picks'
+description: Finding the best full suspension mountain bike for the money can be tricky.
+  You want quality, comfort, and durability without spending too much. Full suspension
 pubDate: 2026-01-13
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-full-suspension-mountain-bike-for-the-money&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Electric and Mountain Bikes
+heroImage: https://tse1.mm.bing.net/th?q=best-full-suspension-mountain-bike-for-the-money&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Finding the best full suspension mountain bike for the money can be tricky. You want quality, comfort, and durability without spending too much.**

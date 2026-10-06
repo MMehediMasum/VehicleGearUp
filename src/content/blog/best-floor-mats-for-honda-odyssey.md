@@ -1,10 +1,14 @@
 ---
-title: "Best Floor Mats for Honda Odyssey: Ultimate All-Weather Protection Guide"
-description: "Choosing the best floor mats for your Honda Odyssey protects your vehicle’s interior from dirt and spills. Quality mats keep your van clean and add comfort for "
+title: 'Best Floor Mats for Honda Odyssey: Ultimate All-Weather Protection Guide'
+description: 'Choosing the best floor mats for your Honda Odyssey protects your vehicle’s
+  interior from dirt and spills. Quality mats keep your van clean and add comfort
+  for '
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-floor-mats-for-honda-odyssey&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Floor Mats and Cargo Liners
+heroImage: https://tse1.mm.bing.net/th?q=best-floor-mats-for-honda-odyssey&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best floor mats for your Honda Odyssey protects your vehicle’s interior from dirt and spills. Quality mats keep your van clean and add comfort for every ride.**

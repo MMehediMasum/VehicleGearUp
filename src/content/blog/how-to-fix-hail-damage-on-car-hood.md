@@ -1,10 +1,14 @@
 ---
-title: "How to Fix Hail Damage on Car Hood: Quick & Easy Repair Tips"
-description: "Your car hood took a hit from hail, and now those dents are hard to ignore. You might be wondering how to fix the damage without spending a fortune or losing ho"
+title: 'How to Fix Hail Damage on Car Hood: Quick & Easy Repair Tips'
+description: Your car hood took a hit from hail, and now those dents are hard to ignore.
+  You might be wondering how to fix the damage without spending a fortune or losing
+  ho
 pubDate: 2026-05-16
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-hail-damage-on-car-hood&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Warning Light Fixes
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-hail-damage-on-car-hood&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Your car hood took a hit from hail, and now those dents are hard to ignore. You might be wondering how to fix the damage without spending a fortune or losing hours at the repair shop.**

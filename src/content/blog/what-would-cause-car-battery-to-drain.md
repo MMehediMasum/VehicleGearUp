@@ -1,10 +1,14 @@
 ---
-title: "What Would Cause Car Battery to Drain: Top Reasons Explained"
-description: "Have you ever tried to start your car, only to find that the battery is completely dead? It’s frustrating, inconvenient, and can leave you stranded when you lea"
+title: 'What Would Cause Car Battery to Drain: Top Reasons Explained'
+description: Have you ever tried to start your car, only to find that the battery
+  is completely dead? It’s frustrating, inconvenient, and can leave you stranded when
+  you lea
 pubDate: 2026-04-09
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-would-cause-car-battery-to-drain&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Cold Weather Battery Drain
+heroImage: https://tse1.mm.bing.net/th?q=what-would-cause-car-battery-to-drain&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever tried to start your car, only to find that the battery is completely dead? It’s frustrating, inconvenient, and can leave you stranded when you least expect it.**

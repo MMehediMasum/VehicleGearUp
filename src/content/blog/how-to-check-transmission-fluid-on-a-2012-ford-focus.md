@@ -1,10 +1,14 @@
 ---
-title: "How to Check Transmission Fluid on a 2012 Ford Focus: Quick Guide"
-description: "If you drive a 2012 Ford Focus, knowing how to check your transmission fluid is key to keeping your car running smoothly. Transmission fluid keeps your gears sh"
+title: 'How to Check Transmission Fluid on a 2012 Ford Focus: Quick Guide'
+description: If you drive a 2012 Ford Focus, knowing how to check your transmission
+  fluid is key to keeping your car running smoothly. Transmission fluid keeps your
+  gears sh
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-check-transmission-fluid-on-a-2012-ford-focus&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Transmission Fluid Checks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-check-transmission-fluid-on-a-2012-ford-focus&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you drive a 2012 Ford Focus, knowing how to check your transmission fluid is key to keeping your car running smoothly. Transmission fluid keeps your gears shifting quietly and prevents costly damage.**

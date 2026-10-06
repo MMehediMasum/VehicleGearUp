@@ -1,10 +1,14 @@
 ---
-title: "Best Tire for 3 4 Ton Truck: Top Picks for Durability and Performance"
-description: "Choosing the best tire for a 3/4 ton truck is essential for safety and performance. The right tire improves handling, load capacity, and fuel efficiency. A 3/4 "
+title: 'Best Tire for 3 4 Ton Truck: Top Picks for Durability and Performance'
+description: 'Choosing the best tire for a 3/4 ton truck is essential for safety and
+  performance. The right tire improves handling, load capacity, and fuel efficiency.
+  A 3/4 '
 pubDate: 2026-01-12
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tire-for-3-4-ton-truck&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Choosing Tire Brands
+heroImage: https://tse1.mm.bing.net/th?q=best-tire-for-3-4-ton-truck&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tire for a 3/4 ton truck is essential for safety and performance. The right tire improves handling, load capacity, and fuel efficiency.**

@@ -1,10 +1,14 @@
 ---
-title: "Will a Car Wash Remove Tree Sap? Effective Cleaning Tips Revealed"
-description: "Have you ever found sticky tree sap glued all over your car and wondered if a simple car wash can fix it? You’re not alone. Tree sap can be stubborn and tricky "
+title: Will a Car Wash Remove Tree Sap? Effective Cleaning Tips Revealed
+description: 'Have you ever found sticky tree sap glued all over your car and wondered
+  if a simple car wash can fix it? You’re not alone. Tree sap can be stubborn and
+  tricky '
 pubDate: 2025-11-09
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=will-a-car-wash-remove-tree-sap&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wash Costs and Etiquette
+heroImage: https://tse1.mm.bing.net/th?q=will-a-car-wash-remove-tree-sap&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever found sticky tree sap glued all over your car and wondered if a simple car wash can fix it? You’re not alone.**

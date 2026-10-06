@@ -1,10 +1,14 @@
 ---
-title: "Does a Car Phone Charger Drain Car Battery? Myths vs Facts Revealed"
-description: "Have you ever wondered if using a car phone charger could harm your car’s battery? You rely on your phone every day, and keeping it charged while on the road is"
+title: Does a Car Phone Charger Drain Car Battery? Myths vs Facts Revealed
+description: Have you ever wondered if using a car phone charger could harm your car’s
+  battery? You rely on your phone every day, and keeping it charged while on the road
+  is
 pubDate: 2026-03-24
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-a-car-phone-charger-drain-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Using Battery Chargers
+heroImage: https://tse1.mm.bing.net/th?q=does-a-car-phone-charger-drain-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if using a car phone charger could harm your car’s battery? You rely on your phone every day, and keeping it charged while on the road is important.**

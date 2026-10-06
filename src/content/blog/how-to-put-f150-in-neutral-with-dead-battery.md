@@ -1,10 +1,14 @@
 ---
-title: "How to Put F150 in Neutral With Dead Battery: Quick & Easy Steps"
-description: "Have you ever found yourself stuck with your F150’s battery completely dead, and wondered how to put it in neutral? It’s frustrating when your truck won’t start"
+title: 'How to Put F150 in Neutral With Dead Battery: Quick & Easy Steps'
+description: Have you ever found yourself stuck with your F150’s battery completely
+  dead, and wondered how to put it in neutral? It’s frustrating when your truck won’t
+  start
 pubDate: 2026-04-09
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-put-f150-in-neutral-with-dead-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Neutral With Dead Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-put-f150-in-neutral-with-dead-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever found yourself stuck with your F150’s battery completely dead, and wondered how to put it in neutral? It’s frustrating when your truck won’t start, and you need to move it but don’t know where to begin.**

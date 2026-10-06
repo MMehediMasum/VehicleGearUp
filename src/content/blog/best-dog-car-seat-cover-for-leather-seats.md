@@ -1,10 +1,13 @@
 ---
-title: "Best Dog Car Seat Cover for Leather Seats: Waterproof, Scratch-Proof, Durable"
-description: "Protecting leather car seats from pet hair, scratches, and dirt requires the right dog car seat cover. Choosing a cover made with durable, waterproof materials "
+title: 'Best Dog Car Seat Cover for Leather Seats: Waterproof, Scratch-Proof, Durable'
+description: 'Protecting leather car seats from pet hair, scratches, and dirt requires
+  the right dog car seat cover. Choosing a cover made with durable, waterproof materials '
 pubDate: 2026-07-29
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-dog-car-seat-cover-for-leather-seats&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Seat Protectors and Cushions
+heroImage: https://tse1.mm.bing.net/th?q=best-dog-car-seat-cover-for-leather-seats&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Protecting leather car seats from pet hair, scratches, and dirt requires the right dog car seat cover. Choosing a cover made with durable, waterproof materials keeps your seats clean and damage-free.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Repair Scratches on Plastic Car Bumper: Easy DIY Fixes"
-description: "Your car’s bumper is one of the first things people notice, and scratches can make it look old and worn out. But you don’t have to rush to the repair shop or sp"
+title: 'How to Repair Scratches on Plastic Car Bumper: Easy DIY Fixes'
+description: Your car’s bumper is one of the first things people notice, and scratches
+  can make it look old and worn out. But you don’t have to rush to the repair shop
+  or sp
 pubDate: 2025-10-01
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-repair-scratches-on-plastic-car-bumper&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Bumper Dent and Scratch Repair
+heroImage: https://tse1.mm.bing.net/th?q=how-to-repair-scratches-on-plastic-car-bumper&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Your car’s bumper is one of the first things people notice, and scratches can make it look old and worn out. But you don’t have to rush to the repair shop or spend a fortune to fix those marks.**

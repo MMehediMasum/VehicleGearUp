@@ -1,10 +1,14 @@
 ---
-title: "How to Check Oil Level on Audi A4: Quick and Easy Guide"
-description: "Keeping your Audi A4 running smoothly starts with one simple habit: checking your oil level regularly. If you’re not sure how to do this, don’t worry—it’s easie"
+title: 'How to Check Oil Level on Audi A4: Quick and Easy Guide'
+description: 'Keeping your Audi A4 running smoothly starts with one simple habit:
+  checking your oil level regularly. If you’re not sure how to do this, don’t worry—it’s
+  easie'
 pubDate: 2026-05-17
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-check-oil-level-on-audi-a4&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Checking Oil Levels
+heroImage: https://tse1.mm.bing.net/th?q=how-to-check-oil-level-on-audi-a4&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Keeping your Audi A4 running smoothly starts with one simple habit: checking your oil level regularly. If you’re not sure how to do this, don’t worry—it’s easier than you think.**

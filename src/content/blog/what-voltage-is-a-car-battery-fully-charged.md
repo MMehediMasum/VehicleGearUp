@@ -1,10 +1,13 @@
 ---
-title: "What Voltage is a Car Battery Fully Charged: Expert Guide"
-description: "Have you ever wondered what voltage shows your car battery is fully charged? Knowing this simple fact can save you from unexpected breakdowns and costly repairs"
+title: 'What Voltage is a Car Battery Fully Charged: Expert Guide'
+description: Have you ever wondered what voltage shows your car battery is fully charged?
+  Knowing this simple fact can save you from unexpected breakdowns and costly repairs
 pubDate: 2026-04-01
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-voltage-is-a-car-battery-fully-charged&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Normal Battery Voltage
+heroImage: https://tse1.mm.bing.net/th?q=what-voltage-is-a-car-battery-fully-charged&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered what voltage shows your car battery is fully charged? Knowing this simple fact can save you from unexpected breakdowns and costly repairs.**

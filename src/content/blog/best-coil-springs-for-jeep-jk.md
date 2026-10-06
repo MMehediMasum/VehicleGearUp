@@ -1,10 +1,14 @@
 ---
-title: "Best Coil Springs for Jeep JK to Boost Lift and Off-Road Performance"
-description: "Choosing the best coil springs for your Jeep JK improves ride quality and off-road performance. The right springs boost ground clearance and suspension articula"
+title: Best Coil Springs for Jeep JK to Boost Lift and Off-Road Performance
+description: Choosing the best coil springs for your Jeep JK improves ride quality
+  and off-road performance. The right springs boost ground clearance and suspension
+  articula
 pubDate: 2025-11-07
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-coil-springs-for-jeep-jk&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Truck Suspension Upgrades
+heroImage: https://tse1.mm.bing.net/th?q=best-coil-springs-for-jeep-jk&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Choosing the best coil springs for your Jeep JK improves ride quality and off-road performance. The right springs boost ground clearance and suspension articulation.**

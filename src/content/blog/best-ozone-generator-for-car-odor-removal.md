@@ -1,10 +1,13 @@
 ---
-title: "Best Ozone Generator for Car Odor Removal: Top Portable Odor Eliminators"
-description: "Car odors can be stubborn and unpleasant. Choosing the best ozone generator helps remove these smells quickly and effectively. Ozone generators work by breaking"
+title: 'Best Ozone Generator for Car Odor Removal: Top Portable Odor Eliminators'
+description: Car odors can be stubborn and unpleasant. Choosing the best ozone generator
+  helps remove these smells quickly and effectively. Ozone generators work by breaking
 pubDate: 2026-06-07
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-ozone-generator-for-car-odor-removal&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Air Fresheners and Odors
+heroImage: https://tse1.mm.bing.net/th?q=best-ozone-generator-for-car-odor-removal&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Car odors can be stubborn and unpleasant. Choosing the best ozone generator helps remove these smells quickly and effectively.**

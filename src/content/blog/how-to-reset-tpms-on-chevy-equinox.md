@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Tpms on Chevy Equinox: Quick & Easy Guide"
-description: "If your Chevy Equinox’s tire pressure warning light just came on, it can be confusing and a little worrying. But don’t stress—resetting the TPMS (Tire Pressure "
+title: 'How to Reset Tpms on Chevy Equinox: Quick & Easy Guide'
+description: 'If your Chevy Equinox’s tire pressure warning light just came on, it
+  can be confusing and a little worrying. But don’t stress—resetting the TPMS (Tire
+  Pressure '
 pubDate: 2026-02-06
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-tpms-on-chevy-equinox&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Resetting Honda TPMS
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-tpms-on-chevy-equinox&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **If your Chevy Equinox’s tire pressure warning light just came on, it can be confusing and a little worrying. But don’t stress—resetting the TPMS (Tire Pressure Monitoring System) is easier than you think.**

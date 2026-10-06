@@ -1,10 +1,14 @@
 ---
-title: "How Often Should Car Battery Be Changed: Essential Guide for Longevity"
-description: "Have you ever been stuck with a car that just won’t start? One of the most common reasons is a failing battery. But how often should your car battery be changed"
+title: 'How Often Should Car Battery Be Changed: Essential Guide for Longevity'
+description: Have you ever been stuck with a car that just won’t start? One of the
+  most common reasons is a failing battery. But how often should your car battery
+  be changed
 pubDate: 2025-10-31
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-often-should-car-battery-be-changed&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Fixing Battery Drain
+heroImage: https://tse1.mm.bing.net/th?q=how-often-should-car-battery-be-changed&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever been stuck with a car that just won’t start? One of the most common reasons is a failing battery.**

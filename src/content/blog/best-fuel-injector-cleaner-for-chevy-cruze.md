@@ -1,10 +1,14 @@
 ---
-title: "Best Fuel Injector Cleaner for Chevy Cruze: Top Picks for Peak Performance"
-description: "Finding the best fuel injector cleaner for your Chevy Cruze can improve engine performance and fuel efficiency. Keeping injectors clean helps your car run smoot"
+title: 'Best Fuel Injector Cleaner for Chevy Cruze: Top Picks for Peak Performance'
+description: Finding the best fuel injector cleaner for your Chevy Cruze can improve
+  engine performance and fuel efficiency. Keeping injectors clean helps your car run
+  smoot
 pubDate: 2026-07-07
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-fuel-injector-cleaner-for-chevy-cruze&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Fuel Injector Cleaner Picks
+heroImage: https://tse1.mm.bing.net/th?q=best-fuel-injector-cleaner-for-chevy-cruze&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Finding the best fuel injector cleaner for your Chevy Cruze can improve engine performance and fuel efficiency. Keeping injectors clean helps your car run smoother and last longer.**

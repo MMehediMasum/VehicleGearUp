@@ -1,10 +1,14 @@
 ---
-title: "Best Grease for RV Wheel Bearings: Top Durable and Waterproof Picks"
-description: "Choosing the best grease for RV wheel bearings protects your wheels from wear and tear. Proper lubrication keeps bearings running smoothly and extends their lif"
+title: 'Best Grease for RV Wheel Bearings: Top Durable and Waterproof Picks'
+description: Choosing the best grease for RV wheel bearings protects your wheels from
+  wear and tear. Proper lubrication keeps bearings running smoothly and extends their
+  lif
 pubDate: 2025-12-29
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-grease-for-rv-wheel-bearings&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Steering Wheel Problems and Covers
+heroImage: https://tse1.mm.bing.net/th?q=best-grease-for-rv-wheel-bearings&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Choosing the best grease for RV wheel bearings protects your wheels from wear and tear. Proper lubrication keeps bearings running smoothly and extends their life.**

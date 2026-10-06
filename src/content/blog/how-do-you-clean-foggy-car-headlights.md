@@ -1,10 +1,14 @@
 ---
-title: "How Do You Clean Foggy Car Headlights: Easy DIY Fixes That Work"
-description: "Are your car headlights looking foggy and dull? This common problem can make driving at night unsafe and your car less attractive. You might think you need expe"
+title: 'How Do You Clean Foggy Car Headlights: Easy DIY Fixes That Work'
+description: Are your car headlights looking foggy and dull? This common problem can
+  make driving at night unsafe and your car less attractive. You might think you need
+  expe
 pubDate: 2026-03-19
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-clean-foggy-car-headlights&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Headlight Cleaning and Upgrades
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-clean-foggy-car-headlights&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are your car headlights looking foggy and dull? This common problem can make driving at night unsafe and your car less attractive.**

@@ -1,10 +1,14 @@
 ---
-title: "Does a Manual Car Need Transmission Fluid? Essential Facts Revealed"
-description: "Have you ever wondered if your manual car needs transmission fluid? It’s a question many drivers overlook, but understanding this can save you from costly repai"
+title: Does a Manual Car Need Transmission Fluid? Essential Facts Revealed
+description: Have you ever wondered if your manual car needs transmission fluid? It’s
+  a question many drivers overlook, but understanding this can save you from costly
+  repai
 pubDate: 2026-05-07
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-a-manual-car-need-transmission-fluid&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Adding Transmission Fluid
+heroImage: https://tse1.mm.bing.net/th?q=does-a-manual-car-need-transmission-fluid&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever wondered if your manual car needs transmission fluid? It’s a question many drivers overlook, but understanding this can save you from costly repairs and keep your car running smoothly.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Start a Car With Bad Fuel Injectors: Quick Fix Tips"
-description: "Have you ever turned the key in your car’s ignition only to find it won’t start? One common culprit could be bad fuel injectors. When these tiny parts don’t wor"
+title: 'How to Start a Car With Bad Fuel Injectors: Quick Fix Tips'
+description: Have you ever turned the key in your car’s ignition only to find it won’t
+  start? One common culprit could be bad fuel injectors. When these tiny parts don’t
+  wor
 pubDate: 2025-12-12
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-start-a-car-with-bad-fuel-injectors&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Diesel Fuel Filters and Additives
+heroImage: https://tse1.mm.bing.net/th?q=how-to-start-a-car-with-bad-fuel-injectors&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you ever turned the key in your car’s ignition only to find it won’t start? One common culprit could be bad fuel injectors.**

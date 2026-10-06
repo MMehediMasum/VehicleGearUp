@@ -1,10 +1,13 @@
 ---
-title: "Best Cold Air Intake for Infiniti Q50: Top Picks for Maximum Performance"
-description: "Finding the best cold air intake for your Infiniti Q50 can improve engine performance and sound. Choosing the right system boosts airflow and horsepower effecti"
+title: 'Best Cold Air Intake for Infiniti Q50: Top Picks for Maximum Performance'
+description: Finding the best cold air intake for your Infiniti Q50 can improve engine
+  performance and sound. Choosing the right system boosts airflow and horsepower effecti
 pubDate: 2025-11-16
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-infiniti-q50&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Engine Specific Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-infiniti-q50&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Finding the best cold air intake for your Infiniti Q50 can improve engine performance and sound. Choosing the right system boosts airflow and horsepower effectively.**

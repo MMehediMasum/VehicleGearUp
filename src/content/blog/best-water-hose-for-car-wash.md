@@ -1,10 +1,14 @@
 ---
-title: "Best Water Hose for Car Wash: Top Foam Guns and Cleaning Kits Reviewed"
-description: "Choosing the best water hose for car wash makes cleaning easier and protects your vehicle’s paint. A good hose delivers steady water flow and resists kinks for "
+title: 'Best Water Hose for Car Wash: Top Foam Guns and Cleaning Kits Reviewed'
+description: 'Choosing the best water hose for car wash makes cleaning easier and
+  protects your vehicle’s paint. A good hose delivers steady water flow and resists
+  kinks for '
 pubDate: 2026-07-03
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-water-hose-for-car-wash&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wash Costs and Etiquette
+heroImage: https://tse1.mm.bing.net/th?q=best-water-hose-for-car-wash&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best water hose for car wash makes cleaning easier and protects your vehicle’s paint. A good hose delivers steady water flow and resists kinks for smooth washing.**

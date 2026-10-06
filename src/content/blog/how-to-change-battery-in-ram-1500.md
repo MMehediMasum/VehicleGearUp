@@ -1,10 +1,13 @@
 ---
-title: "How to Change Battery in Ram 1500: Easy Step-by-Step Guide"
-description: "Is your Ram 1500’s battery showing signs of weakness? Maybe it struggles to start, or you’ve noticed dimmer lights and slower electronics. Changing the battery "
+title: 'How to Change Battery in Ram 1500: Easy Step-by-Step Guide'
+description: 'Is your Ram 1500’s battery showing signs of weakness? Maybe it struggles
+  to start, or you’ve noticed dimmer lights and slower electronics. Changing the battery '
 pubDate: 2026-04-10
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-battery-in-ram-1500&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing a Car Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-battery-in-ram-1500&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your Ram 1500’s battery showing signs of weakness? Maybe it struggles to start, or you’ve noticed dimmer lights and slower electronics.**

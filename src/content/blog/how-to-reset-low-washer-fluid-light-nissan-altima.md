@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Low Washer Fluid Light Nissan Altima: Quick Fix Guide"
-description: "Is your Nissan Altima’s low washer fluid light staying on even after you’ve refilled the reservoir? It can be frustrating when that warning won’t go away, distr"
+title: 'How to Reset Low Washer Fluid Light Nissan Altima: Quick Fix Guide'
+description: Is your Nissan Altima’s low washer fluid light staying on even after
+  you’ve refilled the reservoir? It can be frustrating when that warning won’t go
+  away, distr
 pubDate: 2026-04-27
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-low-washer-fluid-light-nissan-altima&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Brake and Washer Fluids
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-low-washer-fluid-light-nissan-altima&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your Nissan Altima’s low washer fluid light staying on even after you’ve refilled the reservoir? It can be frustrating when that warning won’t go away, distracting you while you drive.**

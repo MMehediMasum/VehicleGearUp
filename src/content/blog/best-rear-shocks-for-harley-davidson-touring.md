@@ -1,10 +1,14 @@
 ---
-title: "Best Rear Shocks for Harley Davidson Touring: Top Durable Suspension Picks"
-description: "Choosing the best rear shocks for your Harley Davidson Touring bike improves ride comfort and handling. Quality shocks absorb bumps and keep your bike stable on"
+title: 'Best Rear Shocks for Harley Davidson Touring: Top Durable Suspension Picks'
+description: Choosing the best rear shocks for your Harley Davidson Touring bike improves
+  ride comfort and handling. Quality shocks absorb bumps and keep your bike stable
+  on
 pubDate: 2025-11-19
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rear-shocks-for-harley-davidson-touring&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Ownership Questions
+heroImage: https://tse1.mm.bing.net/th?q=best-rear-shocks-for-harley-davidson-touring&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best rear shocks for your Harley Davidson Touring bike improves ride comfort and handling. Quality shocks absorb bumps and keep your bike stable on any road.**

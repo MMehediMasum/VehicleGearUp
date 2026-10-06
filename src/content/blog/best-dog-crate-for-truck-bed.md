@@ -1,10 +1,13 @@
 ---
-title: "Best Dog Crate for Truck Bed: Top Durable and Secure Picks"
-description: "Finding the best dog crate for a truck bed keeps your dog safe and comfortable during travel. Choosing the right crate fits your truck and meets your dog’s need"
+title: 'Best Dog Crate for Truck Bed: Top Durable and Secure Picks'
+description: Finding the best dog crate for a truck bed keeps your dog safe and comfortable
+  during travel. Choosing the right crate fits your truck and meets your dog’s need
 pubDate: 2026-06-21
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-dog-crate-for-truck-bed&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Pets and Babies in Cars
+heroImage: https://tse1.mm.bing.net/th?q=best-dog-crate-for-truck-bed&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Finding the best dog crate for a truck bed keeps your dog safe and comfortable during travel. Choosing the right crate fits your truck and meets your dog’s needs.**

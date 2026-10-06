@@ -1,10 +1,14 @@
 ---
-title: "How Heavy is a Chevy Silverado 1500: Ultimate Weight Guide"
-description: "Are you curious about how much a Chevy Silverado 1500 weighs? Whether you’re planning to tow a trailer, load up for a big job, or just want to know what your tr"
+title: 'How Heavy is a Chevy Silverado 1500: Ultimate Weight Guide'
+description: Are you curious about how much a Chevy Silverado 1500 weighs? Whether
+  you’re planning to tow a trailer, load up for a big job, or just want to know what
+  your tr
 pubDate: 2026-01-16
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-heavy-is-a-chevy-silverado-1500&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Truck Size and Weight
+heroImage: https://tse1.mm.bing.net/th?q=how-heavy-is-a-chevy-silverado-1500&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you curious about how much a Chevy Silverado 1500 weighs? Whether you’re planning to tow a trailer, load up for a big job, or just want to know what your truck can handle, knowing its weight is key.**

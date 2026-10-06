@@ -1,10 +1,14 @@
 ---
-title: "Do I Put Transmission Fluid in While Car is Running: Essential Guide"
-description: "Are you wondering whether you should add transmission fluid while your car is running? It’s a common question that can save you from costly mistakes or even dam"
+title: 'Do I Put Transmission Fluid in While Car is Running: Essential Guide'
+description: Are you wondering whether you should add transmission fluid while your
+  car is running? It’s a common question that can save you from costly mistakes or
+  even dam
 pubDate: 2026-04-28
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-i-put-transmission-fluid-in-while-car-is-running&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Adding Transmission Fluid
+heroImage: https://tse1.mm.bing.net/th?q=do-i-put-transmission-fluid-in-while-car-is-running&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Are you wondering whether you should add transmission fluid while your car is running? It’s a common question that can save you from costly mistakes or even damage to your vehicle.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Change Headlight Bulb 2018 Ram 1500: Easy Step-by-Step Guide"
-description: "If your 2018 Ram 1500’s headlight bulb has burned out, you don’t have to wait for a mechanic or spend extra money. Changing it yourself is easier than you might"
+title: 'How to Change Headlight Bulb 2018 Ram 1500: Easy Step-by-Step Guide'
+description: If your 2018 Ram 1500’s headlight bulb has burned out, you don’t have
+  to wait for a mechanic or spend extra money. Changing it yourself is easier than
+  you might
 pubDate: 2025-09-27
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-headlight-bulb-2018-ram-1500&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Headlight Bulbs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-headlight-bulb-2018-ram-1500&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If your 2018 Ram 1500’s headlight bulb has burned out, you don’t have to wait for a mechanic or spend extra money. Changing it yourself is easier than you might think.**

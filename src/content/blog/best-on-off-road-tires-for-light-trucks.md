@@ -1,10 +1,14 @@
 ---
-title: "Best On Off Road Tires for Light Trucks: Top Durable Picks Reviewed"
-description: "Choosing the best on and off-road tires for light trucks ensures safety and performance on any terrain. Tires must handle rough roads and smooth highways withou"
+title: 'Best On Off Road Tires for Light Trucks: Top Durable Picks Reviewed'
+description: Choosing the best on and off-road tires for light trucks ensures safety
+  and performance on any terrain. Tires must handle rough roads and smooth highways
+  withou
 pubDate: 2025-11-10
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-on-off-road-tires-for-light-trucks&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jeep Off Road Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-on-off-road-tires-for-light-trucks&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best on and off-road tires for light trucks ensures safety and performance on any terrain. Tires must handle rough roads and smooth highways without trouble.**

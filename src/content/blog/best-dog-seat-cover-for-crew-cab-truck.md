@@ -1,10 +1,14 @@
 ---
-title: "Best Dog Seat Cover for Crew Cab Truck: Durable Waterproof Protection"
-description: "Finding the best dog seat cover for a crew cab truck helps keep your vehicle clean and your pet safe. A good cover protects seats from dirt, scratches, and spil"
+title: 'Best Dog Seat Cover for Crew Cab Truck: Durable Waterproof Protection'
+description: Finding the best dog seat cover for a crew cab truck helps keep your
+  vehicle clean and your pet safe. A good cover protects seats from dirt, scratches,
+  and spil
 pubDate: 2025-10-07
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-dog-seat-cover-for-crew-cab-truck&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Seat Protectors and Cushions
+heroImage: https://tse1.mm.bing.net/th?q=best-dog-seat-cover-for-crew-cab-truck&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Finding the best dog seat cover for a crew cab truck helps keep your vehicle clean and your pet safe. A good cover protects seats from dirt, scratches, and spills.**

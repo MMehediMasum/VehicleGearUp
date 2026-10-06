@@ -1,10 +1,14 @@
 ---
-title: "How to Turn off Alarm on Harley Davidson: Quick & Easy Guide"
-description: "Your Harley Davidson alarm is sounding off, and you need to turn it off quickly. It can be frustrating and confusing if you don’t know the exact steps. But don’"
+title: 'How to Turn off Alarm on Harley Davidson: Quick & Easy Guide'
+description: Your Harley Davidson alarm is sounding off, and you need to turn it off
+  quickly. It can be frustrating and confusing if you don’t know the exact steps.
+  But don’
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-alarm-on-harley-davidson&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Maintenance Basics
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-alarm-on-harley-davidson&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Your Harley Davidson alarm is sounding off, and you need to turn it off quickly. It can be frustrating and confusing if you don’t know the exact steps.**

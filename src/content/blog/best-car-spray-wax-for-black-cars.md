@@ -1,10 +1,14 @@
 ---
-title: "Best Car Spray Wax for Black Cars: Ultimate Shine and Scratch Repair"
-description: "Finding the best car spray wax for black cars can be tricky. Black paint shows scratches and dust easily, so proper care is key. Black cars need special spray w"
+title: 'Best Car Spray Wax for Black Cars: Ultimate Shine and Scratch Repair'
+description: Finding the best car spray wax for black cars can be tricky. Black paint
+  shows scratches and dust easily, so proper care is key. Black cars need special
+  spray w
 pubDate: 2025-11-15
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-spray-wax-for-black-cars&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wax by Paint Color
+heroImage: https://tse1.mm.bing.net/th?q=best-car-spray-wax-for-black-cars&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Finding the best car spray wax for black cars can be tricky. Black paint shows scratches and dust easily, so proper care is key.**

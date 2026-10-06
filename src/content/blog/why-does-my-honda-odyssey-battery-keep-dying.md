@@ -1,10 +1,14 @@
 ---
-title: "Why Does My Honda Odyssey Battery Keep Dying: Top Causes Explained"
-description: "Is your Honda Odyssey’s battery always dying at the worst times? You’re not alone, and it’s more frustrating than you might think. A dead battery can leave you "
+title: 'Why Does My Honda Odyssey Battery Keep Dying: Top Causes Explained'
+description: 'Is your Honda Odyssey’s battery always dying at the worst times? You’re
+  not alone, and it’s more frustrating than you might think. A dead battery can leave
+  you '
 pubDate: 2026-04-02
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-does-my-honda-odyssey-battery-keep-dying&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Why Batteries Keep Dying
+heroImage: https://tse1.mm.bing.net/th?q=why-does-my-honda-odyssey-battery-keep-dying&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your Honda Odyssey’s battery always dying at the worst times? You’re not alone, and it’s more frustrating than you might think.**

@@ -1,10 +1,14 @@
 ---
-title: "Can a Car Battery Be Too Dead to Jump Start? Shocking Truths!"
-description: "Have you ever been stuck with a car that just won’t start, even after trying to jump it? It’s frustrating, and you might wonder if your car battery is too dead "
+title: Can a Car Battery Be Too Dead to Jump Start? Shocking Truths!
+description: 'Have you ever been stuck with a car that just won’t start, even after
+  trying to jump it? It’s frustrating, and you might wonder if your car battery is
+  too dead '
 pubDate: 2026-03-31
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-a-car-battery-be-too-dead-to-jump-start&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jump Starting by Model
+heroImage: https://tse1.mm.bing.net/th?q=can-a-car-battery-be-too-dead-to-jump-start&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever been stuck with a car that just won’t start, even after trying to jump it? It’s frustrating, and you might wonder if your car battery is too dead to jump start.**

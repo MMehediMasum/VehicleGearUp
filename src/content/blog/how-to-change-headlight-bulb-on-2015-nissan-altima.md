@@ -1,10 +1,14 @@
 ---
-title: "How to Change Headlight Bulb on 2015 Nissan Altima: Easy Guide"
-description: "If your 2015 Nissan Altima’s headlight bulb has gone out, you don’t have to wait for a mechanic or spend extra money. Changing it yourself is easier than you mi"
+title: 'How to Change Headlight Bulb on 2015 Nissan Altima: Easy Guide'
+description: If your 2015 Nissan Altima’s headlight bulb has gone out, you don’t have
+  to wait for a mechanic or spend extra money. Changing it yourself is easier than
+  you mi
 pubDate: 2026-05-30
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-headlight-bulb-on-2015-nissan-altima&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Headlight Bulbs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-headlight-bulb-on-2015-nissan-altima&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If your 2015 Nissan Altima’s headlight bulb has gone out, you don’t have to wait for a mechanic or spend extra money. Changing it yourself is easier than you might think.**

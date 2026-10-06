@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for a Subaru Forester: Top All-Season Picks for Performance"
-description: "Choosing the best tires for a Subaru Forester improves safety, comfort, and performance. This guide covers top all-season and performance tires suited for your "
+title: 'Best Tires for a Subaru Forester: Top All-Season Picks for Performance'
+description: 'Choosing the best tires for a Subaru Forester improves safety, comfort,
+  and performance. This guide covers top all-season and performance tires suited for
+  your '
 pubDate: 2025-12-25
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-a-subaru-forester&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Subaru and Mazda Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-a-subaru-forester&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for a Subaru Forester improves safety, comfort, and performance. This guide covers top all-season and performance tires suited for your vehicle.**

@@ -1,10 +1,13 @@
 ---
-title: "How to Open the Hood of a Ford Focus: Quick & Easy Steps"
-description: "Have you ever needed to check under the hood of your Ford Focus but didn’t know where to start? Whether it’s for a quick fluid check, topping up your windshield"
+title: 'How to Open the Hood of a Ford Focus: Quick & Easy Steps'
+description: Have you ever needed to check under the hood of your Ford Focus but didn’t
+  know where to start? Whether it’s for a quick fluid check, topping up your windshield
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-open-the-hood-of-a-ford-focus&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Opening the Hood
+heroImage: https://tse1.mm.bing.net/th?q=how-to-open-the-hood-of-a-ford-focus&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Have you ever needed to check under the hood of your Ford Focus but didn’t know where to start? Whether it’s for a quick fluid check, topping up your windshield washer, or just making sure everything looks right, knowing how to open the hood is the first step.**

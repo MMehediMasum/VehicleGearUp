@@ -1,10 +1,14 @@
 ---
-title: "Best Truck Bed Mat for F150: Ultimate All-Weather Protection and Durability"
-description: "Protecting your Ford F150’s truck bed keeps it looking new and extends its life. The right bed mat offers durable, all-weather protection for your cargo area. C"
+title: 'Best Truck Bed Mat for F150: Ultimate All-Weather Protection and Durability'
+description: Protecting your Ford F150’s truck bed keeps it looking new and extends
+  its life. The right bed mat offers durable, all-weather protection for your cargo
+  area. C
 pubDate: 2026-07-23
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-truck-bed-mat-for-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Truck Bed Gear
+heroImage: https://tse1.mm.bing.net/th?q=best-truck-bed-mat-for-f150&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Protecting your Ford F150’s truck bed keeps it looking new and extends its life. The right bed mat offers durable, all-weather protection for your cargo area.**

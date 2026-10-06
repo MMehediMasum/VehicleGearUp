@@ -1,10 +1,14 @@
 ---
-title: "Best Electric Winch for Car Trailer: Top Powerful Winches Reviewed"
-description: "Finding the best electric winch for your car trailer ensures safe and easy loading. Choose a winch with the right power, rope type, and controls for your needs."
+title: 'Best Electric Winch for Car Trailer: Top Powerful Winches Reviewed'
+description: Finding the best electric winch for your car trailer ensures safe and
+  easy loading. Choose a winch with the right power, rope type, and controls for your
+  needs.
 pubDate: 2025-11-05
-author: "herbertlangham"
-categories: ["Towing & Hauling"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-electric-winch-for-car-trailer&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Trailer Gear and Accessories
+heroImage: https://tse1.mm.bing.net/th?q=best-electric-winch-for-car-trailer&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Finding the best electric winch for your car trailer ensures safe and easy loading. Choose a winch with the right power, rope type, and controls for your needs.**

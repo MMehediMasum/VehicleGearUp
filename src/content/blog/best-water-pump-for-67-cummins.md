@@ -1,10 +1,14 @@
 ---
-title: "Best Water Pump for 6.7 Cummins: Top Reliable Picks for Your Engine"
-description: "Choosing the best water pump for a 6.7 Cummins engine ensures reliable cooling and engine performance. A quality pump prevents overheating and costly repairs. T"
+title: 'Best Water Pump for 6.7 Cummins: Top Reliable Picks for Your Engine'
+description: Choosing the best water pump for a 6.7 Cummins engine ensures reliable
+  cooling and engine performance. A quality pump prevents overheating and costly repairs.
+  T
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-water-pump-for-67-cummins&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Engine Tuners and Throttle Upgrades
+heroImage: https://tse1.mm.bing.net/th?q=best-water-pump-for-67-cummins&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best water pump for a 6.7 Cummins engine ensures reliable cooling and engine performance. A quality pump prevents overheating and costly repairs.**

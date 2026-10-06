@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for a Sports Car: Top Picks for Performance and Durability"
-description: "Choosing the best tires for a sports car boosts performance and safety on every drive. Quality tires improve grip, handling, and ride comfort. Sports car tires "
+title: 'Best Tires for a Sports Car: Top Picks for Performance and Durability'
+description: 'Choosing the best tires for a sports car boosts performance and safety
+  on every drive. Quality tires improve grip, handling, and ride comfort. Sports car
+  tires '
 pubDate: 2025-12-22
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-a-sports-car&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Mud Street and RV Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-a-sports-car&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for a sports car boosts performance and safety on every drive. Quality tires improve grip, handling, and ride comfort.**

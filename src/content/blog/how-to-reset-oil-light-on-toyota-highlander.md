@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Light on Toyota Highlander: Quick & Easy Guide"
-description: "Is your Toyota Highlander’s oil light on, and you’re not sure what to do next? Don’t worry—you’re in the right place. That little warning light can be confusing"
+title: 'How to Reset Oil Light on Toyota Highlander: Quick & Easy Guide'
+description: Is your Toyota Highlander’s oil light on, and you’re not sure what to
+  do next? Don’t worry—you’re in the right place. That little warning light can be
+  confusing
 pubDate: 2026-04-28
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-light-on-toyota-highlander&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Oil Light Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-light-on-toyota-highlander&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your Toyota Highlander’s oil light on, and you’re not sure what to do next? Don’t worry—you’re in the right place.**

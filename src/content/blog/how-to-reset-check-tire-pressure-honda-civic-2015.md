@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Check Tire Pressure Honda Civic 2015: Easy Guide"
-description: "Is your 2015 Honda Civic showing a tire pressure warning, and you’re not sure how to fix it? You’re not alone. Knowing how to reset the tire pressure system can"
+title: 'How to Reset Check Tire Pressure Honda Civic 2015: Easy Guide'
+description: Is your 2015 Honda Civic showing a tire pressure warning, and you’re
+  not sure how to fix it? You’re not alone. Knowing how to reset the tire pressure
+  system can
 pubDate: 2026-01-30
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-check-tire-pressure-honda-civic-2015&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Checking Tire Pressure
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-check-tire-pressure-honda-civic-2015&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Is your 2015 Honda Civic showing a tire pressure warning, and you’re not sure how to fix it? You’re not alone.**

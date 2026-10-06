@@ -1,10 +1,14 @@
 ---
-title: "How to Repair Paint Chips on Car Hood: Easy Steps for Flawless Finish"
-description: "Have you noticed those annoying paint chips on your car hood? They might seem small, but left untreated, they can lead to rust and make your car look worn out. "
+title: 'How to Repair Paint Chips on Car Hood: Easy Steps for Flawless Finish'
+description: 'Have you noticed those annoying paint chips on your car hood? They might
+  seem small, but left untreated, they can lead to rust and make your car look worn
+  out. '
 pubDate: 2026-04-29
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-repair-paint-chips-on-car-hood&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hood Dents and Chips
+heroImage: https://tse1.mm.bing.net/th?q=how-to-repair-paint-chips-on-car-hood&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you noticed those annoying paint chips on your car hood? They might seem small, but left untreated, they can lead to rust and make your car look worn out.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Battery for Dodge Cummins Diesel: Top Cables and Replacement Kits"
-description: "Choosing the best battery for your Dodge Cummins diesel ensures reliable starts and long-lasting power. A quality battery and compatible cables keep your truck "
+title: 'Best Battery for Dodge Cummins Diesel: Top Cables and Replacement Kits'
+description: 'Choosing the best battery for your Dodge Cummins diesel ensures reliable
+  starts and long-lasting power. A quality battery and compatible cables keep your
+  truck '
 pubDate: 2026-07-10
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-battery-for-dodge-cummins-diesel&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jeep and Ram Batteries
+heroImage: https://tse1.mm.bing.net/th?q=best-battery-for-dodge-cummins-diesel&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Choosing the best battery for your Dodge Cummins diesel ensures reliable starts and long-lasting power. A quality battery and compatible cables keep your truck running smoothly.**

@@ -1,10 +1,13 @@
 ---
-title: "Best Bike Rack for Toyota Corolla: Top Durable and Versatile Picks"
-description: "Finding the best bike rack for your Toyota Corolla ensures safe and easy bike transport. Choosing the right rack depends on your needs and vehicle compatibility"
+title: 'Best Bike Rack for Toyota Corolla: Top Durable and Versatile Picks'
+description: Finding the best bike rack for your Toyota Corolla ensures safe and easy
+  bike transport. Choosing the right rack depends on your needs and vehicle compatibility
 pubDate: 2025-11-02
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-bike-rack-for-toyota-corolla&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Bike Racks for Cars
+heroImage: https://tse1.mm.bing.net/th?q=best-bike-rack-for-toyota-corolla&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Finding the best bike rack for your Toyota Corolla ensures safe and easy bike transport. Choosing the right rack depends on your needs and vehicle compatibility.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Tire for Harley Touring Bike: Top Picks for Grip and Durability"
-description: "Choosing the best tire for a Harley touring bike affects safety, comfort, and performance on long rides. The right tire ensures better grip, stability, and dura"
+title: 'Best Tire for Harley Touring Bike: Top Picks for Grip and Durability'
+description: Choosing the best tire for a Harley touring bike affects safety, comfort,
+  and performance on long rides. The right tire ensures better grip, stability, and
+  dura
 pubDate: 2025-12-28
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tire-for-harley-touring-bike&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tire-for-harley-touring-bike&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best tire for a Harley touring bike affects safety, comfort, and performance on long rides. The right tire ensures better grip, stability, and durability on all road types.**

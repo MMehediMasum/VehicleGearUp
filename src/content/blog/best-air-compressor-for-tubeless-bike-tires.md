@@ -1,10 +1,14 @@
 ---
-title: "Best Air Compressor for Tubeless Bike Tires: Top Portable Inflators Reviewed"
-description: "Finding the best air compressor for tubeless bike tires saves time and ensures a secure seal. Choosing the right pump makes tire inflation easy and fast. Tubele"
+title: 'Best Air Compressor for Tubeless Bike Tires: Top Portable Inflators Reviewed'
+description: Finding the best air compressor for tubeless bike tires saves time and
+  ensures a secure seal. Choosing the right pump makes tire inflation easy and fast.
+  Tubele
 pubDate: 2026-01-08
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-air-compressor-for-tubeless-bike-tires&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Bike Tires and Pumps
+heroImage: https://tse1.mm.bing.net/th?q=best-air-compressor-for-tubeless-bike-tires&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Finding the best air compressor for tubeless bike tires saves time and ensures a secure seal. Choosing the right pump makes tire inflation easy and fast.**

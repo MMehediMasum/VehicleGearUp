@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Hyundai Palisade: Top Picks for Safety and Performance"
-description: "Choosing the best tires for your 2022 Hyundai Palisade improves safety, comfort, and performance. The right tires fit your driving style and road conditions per"
+title: 'Best Tires for Hyundai Palisade: Top Picks for Safety and Performance'
+description: Choosing the best tires for your 2022 Hyundai Palisade improves safety,
+  comfort, and performance. The right tires fit your driving style and road conditions
+  per
 pubDate: 2025-12-28
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-2022-hyundai-palisade&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hyundai and Kia Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-2022-hyundai-palisade&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your 2022 Hyundai Palisade improves safety, comfort, and performance. The right tires fit your driving style and road conditions perfectly.**

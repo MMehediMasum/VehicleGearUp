@@ -1,10 +1,14 @@
 ---
-title: "Best Dog Seat Cover for Jeep Wrangler: Durable, Waterproof, and Scratch-Proof"
-description: "Finding the best dog seat cover for your Jeep Wrangler protects your vehicle and keeps your pet safe. Jeep owners need durable, waterproof covers that fit perfe"
+title: 'Best Dog Seat Cover for Jeep Wrangler: Durable, Waterproof, and Scratch-Proof'
+description: Finding the best dog seat cover for your Jeep Wrangler protects your
+  vehicle and keeps your pet safe. Jeep owners need durable, waterproof covers that
+  fit perfe
 pubDate: 2026-07-28
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-dog-seat-cover-for-jeep-wrangler&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Seat Protectors and Cushions
+heroImage: https://tse1.mm.bing.net/th?q=best-dog-seat-cover-for-jeep-wrangler&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Finding the best dog seat cover for your Jeep Wrangler protects your vehicle and keeps your pet safe. Jeep owners need durable, waterproof covers that fit perfectly.**

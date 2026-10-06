@@ -1,10 +1,14 @@
 ---
-title: "How to Check Tire Pressure on Toyota Rav4: Easy Step-by-Step Guide"
-description: "Checking the tire pressure on your Toyota RAV4 is one of the easiest ways to keep your vehicle running smoothly and safely. But do you know why it matters and h"
+title: 'How to Check Tire Pressure on Toyota Rav4: Easy Step-by-Step Guide'
+description: Checking the tire pressure on your Toyota RAV4 is one of the easiest
+  ways to keep your vehicle running smoothly and safely. But do you know why it matters
+  and h
 pubDate: 2026-01-24
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-check-tire-pressure-on-toyota-rav4&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Tire Pressure Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-check-tire-pressure-on-toyota-rav4&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Checking the tire pressure on your Toyota RAV4 is one of the easiest ways to keep your vehicle running smoothly and safely. But do you know why it matters and how to do it right?**

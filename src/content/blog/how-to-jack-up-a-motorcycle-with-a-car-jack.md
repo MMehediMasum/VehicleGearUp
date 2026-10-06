@@ -1,10 +1,14 @@
 ---
-title: "How to Jack Up a Motorcycle With a Car Jack: Easy Step-by-Step Guide"
-description: "Lifting your motorcycle safely can be tricky, especially if you don’t have a dedicated bike lift. But what if you could use a car jack you already have? Yes, yo"
+title: 'How to Jack Up a Motorcycle With a Car Jack: Easy Step-by-Step Guide'
+description: Lifting your motorcycle safely can be tricky, especially if you don’t
+  have a dedicated bike lift. But what if you could use a car jack you already have?
+  Yes, yo
 pubDate: 2026-03-08
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-jack-up-a-motorcycle-with-a-car-jack&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Batteries and Brakes
+heroImage: https://tse1.mm.bing.net/th?q=how-to-jack-up-a-motorcycle-with-a-car-jack&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Lifting your motorcycle safely can be tricky, especially if you don’t have a dedicated bike lift. But what if you could use a car jack you already have?**

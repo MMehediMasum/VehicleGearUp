@@ -1,10 +1,14 @@
 ---
-title: "Best 275 60R20 Tires for Ram 1500: Top All-Terrain Picks Reviewed"
-description: "Choosing the best 275/60R20 tires for your Ram 1500 improves safety and performance. This size fits many Ram 1500 models perfectly. Tires affect your truck’s ha"
+title: 'Best 275 60R20 Tires for Ram 1500: Top All-Terrain Picks Reviewed'
+description: Choosing the best 275/60R20 tires for your Ram 1500 improves safety and
+  performance. This size fits many Ram 1500 models perfectly. Tires affect your truck’s
+  ha
 pubDate: 2026-01-06
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-275-60r20-tires-for-ram-1500&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ram and Dodge Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-275-60r20-tires-for-ram-1500&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best 275/60R20 tires for your Ram 1500 improves safety and performance. This size fits many Ram 1500 models perfectly.**

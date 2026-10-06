@@ -1,10 +1,14 @@
 ---
-title: "How to Wire a Car Stereo in a House: Easy DIY Guide"
-description: "Have you ever wondered if you could enjoy your car stereo’s powerful sound right inside your home? Imagine filling your room with the crisp, clear music you lov"
+title: 'How to Wire a Car Stereo in a House: Easy DIY Guide'
+description: Have you ever wondered if you could enjoy your car stereo’s powerful
+  sound right inside your home? Imagine filling your room with the crisp, clear music
+  you lov
 pubDate: 2026-05-30
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-wire-a-car-stereo-in-a-house&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Choosing Car Stereos
+heroImage: https://tse1.mm.bing.net/th?q=how-to-wire-a-car-stereo-in-a-house&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Have you ever wondered if you could enjoy your car stereo’s powerful sound right inside your home? Imagine filling your room with the crisp, clear music you love from your car’s stereo system.**

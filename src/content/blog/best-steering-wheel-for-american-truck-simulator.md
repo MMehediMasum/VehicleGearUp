@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Steering Wheel for American Truck Simulator: Top Picks for Realistic Gameplay"
 description: "Finding the best steering wheel improves your American Truck Simulator experience. It gives better control and a more real feel while driving. A good steering w"
 pubDate: 2026-01-06

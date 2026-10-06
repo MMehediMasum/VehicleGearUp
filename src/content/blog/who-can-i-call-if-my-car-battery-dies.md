@@ -1,10 +1,14 @@
 ---
-title: "Who Can I Call If My Car Battery Dies: Quick Help Tips"
-description: "Imagine this: you’re all set to leave, but your car won’t start. Your battery is dead, and now you’re stuck. What do you do next? Who can you call for help? Thi"
+title: 'Who Can I Call If My Car Battery Dies: Quick Help Tips'
+description: 'Imagine this: you’re all set to leave, but your car won’t start. Your
+  battery is dead, and now you’re stuck. What do you do next? Who can you call for
+  help? Thi'
 pubDate: 2026-04-13
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=who-can-i-call-if-my-car-battery-dies&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Signs of a Failing Battery
+heroImage: https://tse1.mm.bing.net/th?q=who-can-i-call-if-my-car-battery-dies&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Imagine this: you’re all set to leave, but your car won’t start. Your battery is dead, and now you’re stuck.**

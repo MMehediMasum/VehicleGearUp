@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for Lb7: Boost Power and Performance Easily"
-description: "Choosing the best cold air intake for your LB7 engine can boost power and improve fuel efficiency. This guide reviews top options designed for Chevy and GMC tru"
+title: 'Best Cold Air Intake for Lb7: Boost Power and Performance Easily'
+description: Choosing the best cold air intake for your LB7 engine can boost power
+  and improve fuel efficiency. This guide reviews top options designed for Chevy and
+  GMC tru
 pubDate: 2026-06-01
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-lb7&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- GM Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-lb7&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best cold air intake for your LB7 engine can boost power and improve fuel efficiency. This guide reviews top options designed for Chevy and GMC trucks from 2001 to 2004.**

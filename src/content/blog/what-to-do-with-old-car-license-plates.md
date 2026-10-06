@@ -1,10 +1,14 @@
 ---
-title: "What to Do With Old Car License Plates: Creative & Fun Ideas"
-description: "Have old car license plates gathering dust in your garage or attic? You might be wondering what to do with them instead of just tossing them away. Those worn-ou"
+title: 'What to Do With Old Car License Plates: Creative & Fun Ideas'
+description: Have old car license plates gathering dust in your garage or attic? You
+  might be wondering what to do with them instead of just tossing them away. Those
+  worn-ou
 pubDate: 2026-02-03
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-do-with-old-car-license-plates&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- License Plate Questions
+heroImage: https://tse1.mm.bing.net/th?q=what-to-do-with-old-car-license-plates&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Have old car license plates gathering dust in your garage or attic? You might be wondering what to do with them instead of just tossing them away.**

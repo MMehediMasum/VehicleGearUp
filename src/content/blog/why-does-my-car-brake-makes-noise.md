@@ -1,10 +1,14 @@
 ---
-title: "Why Does My Car Brake Makes Noise: Top Causes & Fixes Explained"
-description: "Have you ever hit the brakes and heard a strange noise coming from your car? That squeak, grind, or squeal can be more than just annoying—it might be a sign tha"
+title: 'Why Does My Car Brake Makes Noise: Top Causes & Fixes Explained'
+description: Have you ever hit the brakes and heard a strange noise coming from your
+  car? That squeak, grind, or squeal can be more than just annoying—it might be a
+  sign tha
 pubDate: 2026-05-12
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-does-my-car-brake-makes-noise&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Parking Brake Help
+heroImage: https://tse1.mm.bing.net/th?q=why-does-my-car-brake-makes-noise&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever hit the brakes and heard a strange noise coming from your car? That squeak, grind, or squeal can be more than just annoying—it might be a sign that something is wrong with your brakes.**

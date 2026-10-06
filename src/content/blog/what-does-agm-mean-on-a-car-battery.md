@@ -1,10 +1,14 @@
 ---
-title: "What Does Agm Mean on a Car Battery: Ultimate Guide Explained"
-description: "Have you ever noticed the letters \"AGM\" on your car battery and wondered what they actually mean? Understanding this simple acronym can make a big difference in"
+title: 'What Does Agm Mean on a Car Battery: Ultimate Guide Explained'
+description: Have you ever noticed the letters "AGM" on your car battery and wondered
+  what they actually mean? Understanding this simple acronym can make a big difference
+  in
 pubDate: 2025-08-31
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-does-agm-mean-on-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Ratings Explained
+heroImage: https://tse1.mm.bing.net/th?q=what-does-agm-mean-on-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever noticed the letters "AGM" on your car battery and wondered what they actually mean? Understanding this simple acronym can make a big difference in how you choose and care for your battery.**

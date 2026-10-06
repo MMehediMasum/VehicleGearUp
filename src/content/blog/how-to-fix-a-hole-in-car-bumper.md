@@ -1,10 +1,14 @@
 ---
-title: "How to Fix a Hole in Car Bumper: Quick and Easy Repair Tips"
-description: "A hole in your car bumper can be frustrating and make your vehicle look worn out. But don’t worry—you don’t have to spend a fortune on repairs or a full replace"
+title: 'How to Fix a Hole in Car Bumper: Quick and Easy Repair Tips'
+description: A hole in your car bumper can be frustrating and make your vehicle look
+  worn out. But don’t worry—you don’t have to spend a fortune on repairs or a full
+  replace
 pubDate: 2026-05-17
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-a-hole-in-car-bumper&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Bumper Dent and Scratch Repair
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-a-hole-in-car-bumper&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **A hole in your car bumper can be frustrating and make your vehicle look worn out. But don’t worry—you don’t have to spend a fortune on repairs or a full replacement.**

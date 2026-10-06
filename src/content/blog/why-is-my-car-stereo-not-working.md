@@ -1,10 +1,14 @@
 ---
-title: "Why is My Car Stereo Not Working: Top Fixes You Need Now"
-description: "Is your car stereo suddenly silent when you want your favorite tunes? It’s frustrating when you turn the key, expecting music, but all you get is silence or str"
+title: 'Why is My Car Stereo Not Working: Top Fixes You Need Now'
+description: Is your car stereo suddenly silent when you want your favorite tunes?
+  It’s frustrating when you turn the key, expecting music, but all you get is silence
+  or str
 pubDate: 2025-10-14
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-is-my-car-stereo-not-working&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Choosing Car Stereos
+heroImage: https://tse1.mm.bing.net/th?q=why-is-my-car-stereo-not-working&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your car stereo suddenly silent when you want your favorite tunes? It’s frustrating when you turn the key, expecting music, but all you get is silence or strange sounds.**

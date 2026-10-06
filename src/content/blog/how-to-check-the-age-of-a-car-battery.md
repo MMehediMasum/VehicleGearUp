@@ -1,10 +1,14 @@
 ---
-title: "How to Check the Age of a Car Battery: Easy Steps Revealed"
-description: "Is your car acting sluggish, or has it been struggling to start lately? Your battery might be the culprit. But how can you tell how old your car battery really "
+title: 'How to Check the Age of a Car Battery: Easy Steps Revealed'
+description: 'Is your car acting sluggish, or has it been struggling to start lately?
+  Your battery might be the culprit. But how can you tell how old your car battery
+  really '
 pubDate: 2026-03-25
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-check-the-age-of-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Types and Specs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-check-the-age-of-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your car acting sluggish, or has it been struggling to start lately? Your battery might be the culprit.**

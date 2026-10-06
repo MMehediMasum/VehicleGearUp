@@ -1,10 +1,13 @@
 ---
-title: "Where is the Battery in a Ford Escape: Easy Location Guide"
-description: "Are you having trouble finding the battery in your Ford Escape? Knowing exactly where your car’s battery is located can save you time and frustration, especiall"
+title: 'Where is the Battery in a Ford Escape: Easy Location Guide'
+description: Are you having trouble finding the battery in your Ford Escape? Knowing
+  exactly where your car’s battery is located can save you time and frustration, especiall
 pubDate: 2026-03-26
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-is-the-battery-in-a-ford-escape&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Finding the Battery Location
+heroImage: https://tse1.mm.bing.net/th?q=where-is-the-battery-in-a-ford-escape&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you having trouble finding the battery in your Ford Escape? Knowing exactly where your car’s battery is located can save you time and frustration, especially when you need a jump start or a replacement.**

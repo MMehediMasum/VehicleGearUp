@@ -1,10 +1,14 @@
 ---
-title: "Can You Get a Car Wash below Freezing: Essential Tips Revealed"
-description: "Have you ever wondered if you can get a car wash when the temperature drops below freezing? You might think it’s impossible or even harmful to wash your car in "
+title: 'Can You Get a Car Wash below Freezing: Essential Tips Revealed'
+description: 'Have you ever wondered if you can get a car wash when the temperature
+  drops below freezing? You might think it’s impossible or even harmful to wash your
+  car in '
 pubDate: 2025-08-27
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-get-a-car-wash-below-freezing&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Winter Car Wash Questions
+heroImage: https://tse1.mm.bing.net/th?q=can-you-get-a-car-wash-below-freezing&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever wondered if you can get a car wash when the temperature drops below freezing? You might think it’s impossible or even harmful to wash your car in freezing weather.**

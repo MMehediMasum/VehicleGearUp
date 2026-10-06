@@ -1,10 +1,14 @@
 ---
-title: "Best Code Reader for 2004 Dodge Sprinter: Top OBD2 Scanners Reviewed"
-description: "Finding the best code reader for a 2004 Dodge Sprinter helps you diagnose car problems quickly. The right tool reads engine codes and clears error lights with e"
+title: 'Best Code Reader for 2004 Dodge Sprinter: Top OBD2 Scanners Reviewed'
+description: Finding the best code reader for a 2004 Dodge Sprinter helps you diagnose
+  car problems quickly. The right tool reads engine codes and clears error lights
+  with e
 pubDate: 2026-06-05
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-code-reader-for-2004-dodge-sprinter&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Scan Tools and Code Readers
+heroImage: https://tse1.mm.bing.net/th?q=best-code-reader-for-2004-dodge-sprinter&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Finding the best code reader for a 2004 Dodge Sprinter helps you diagnose car problems quickly. The right tool reads engine codes and clears error lights with ease.**

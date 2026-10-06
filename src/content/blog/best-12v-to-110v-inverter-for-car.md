@@ -1,10 +1,14 @@
 ---
-title: "Best 12V to 110V Inverter for Car: Top Power Solutions Reviewed"
-description: "A 12V to 110V inverter powers your devices from your car’s battery. It converts low voltage DC to standard AC power for everyday use. Choosing the best inverter"
+title: 'Best 12V to 110V Inverter for Car: Top Power Solutions Reviewed'
+description: A 12V to 110V inverter powers your devices from your car’s battery. It
+  converts low voltage DC to standard AC power for everyday use. Choosing the best
+  inverter
 pubDate: 2025-10-08
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-12v-to-110v-inverter-for-car&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Power Supplies and Inverters
+heroImage: https://tse1.mm.bing.net/th?q=best-12v-to-110v-inverter-for-car&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **A 12V to 110V inverter powers your devices from your car’s battery. It converts low voltage DC to standard AC power for everyday use.**

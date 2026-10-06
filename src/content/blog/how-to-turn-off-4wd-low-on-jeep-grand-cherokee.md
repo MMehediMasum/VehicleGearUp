@@ -1,10 +1,14 @@
 ---
-title: "How to Turn off 4Wd Low on Jeep Grand Cherokee: Easy Steps Guide"
-description: "If you’ve ever driven your Jeep Grand Cherokee off-road, you know how powerful 4WD Low can be. But what happens when it’s time to switch back to normal driving?"
+title: 'How to Turn off 4Wd Low on Jeep Grand Cherokee: Easy Steps Guide'
+description: If you’ve ever driven your Jeep Grand Cherokee off-road, you know how
+  powerful 4WD Low can be. But what happens when it’s time to switch back to normal
+  driving?
 pubDate: 2026-02-28
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-4wd-low-on-jeep-grand-cherokee&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Turning On 4WD
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-4wd-low-on-jeep-grand-cherokee&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **If you’ve ever driven your Jeep Grand Cherokee off-road, you know how powerful 4WD Low can be. But what happens when it’s time to switch back to normal driving?**

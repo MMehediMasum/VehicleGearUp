@@ -1,10 +1,14 @@
 ---
-title: "What Spark Plugs Need for Hyundai Sonata 2017 Se: Ultimate Guide"
-description: "If you own a 2017 Hyundai Sonata SE, you know how important it is to keep your car running smoothly. One key part that often gets overlooked is the spark plugs."
+title: 'What Spark Plugs Need for Hyundai Sonata 2017 Se: Ultimate Guide'
+description: If you own a 2017 Hyundai Sonata SE, you know how important it is to
+  keep your car running smoothly. One key part that often gets overlooked is the spark
+  plugs.
 pubDate: 2026-02-05
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-spark-plugs-need-for-hyundai-sonata-2017-se&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spark Plug Maintenance
+heroImage: https://tse1.mm.bing.net/th?q=what-spark-plugs-need-for-hyundai-sonata-2017-se&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **If you own a 2017 Hyundai Sonata SE, you know how important it is to keep your car running smoothly. One key part that often gets overlooked is the spark plugs.**

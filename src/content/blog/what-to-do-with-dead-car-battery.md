@@ -1,10 +1,13 @@
 ---
-title: "What to Do With Dead Car Battery: Quick Fixes and Smart Tips"
-description: "Your car won’t start, and you suspect the battery is dead. It’s frustrating, right? But don’t panic just yet. Knowing exactly what to do with a dead car battery"
+title: 'What to Do With Dead Car Battery: Quick Fixes and Smart Tips'
+description: Your car won’t start, and you suspect the battery is dead. It’s frustrating,
+  right? But don’t panic just yet. Knowing exactly what to do with a dead car battery
 pubDate: 2026-03-29
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-do-with-dead-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Reviving a Dead Battery
+heroImage: https://tse1.mm.bing.net/th?q=what-to-do-with-dead-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Your car won’t start, and you suspect the battery is dead. It’s frustrating, right?**

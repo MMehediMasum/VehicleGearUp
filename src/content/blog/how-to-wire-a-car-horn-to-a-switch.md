@@ -1,10 +1,14 @@
 ---
-title: "How to Wire a Car Horn to a Switch: Easy Step-by-Step Guide"
-description: "Want to make your car horn work exactly when you want it to? Wiring a car horn to a switch is easier than you think. With the right steps, you can control your "
+title: 'How to Wire a Car Horn to a Switch: Easy Step-by-Step Guide'
+description: 'Want to make your car horn work exactly when you want it to? Wiring
+  a car horn to a switch is easier than you think. With the right steps, you can control
+  your '
 pubDate: 2026-02-21
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-wire-a-car-horn-to-a-switch&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Horn Problems
+heroImage: https://tse1.mm.bing.net/th?q=how-to-wire-a-car-horn-to-a-switch&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Want to make your car horn work exactly when you want it to? Wiring a car horn to a switch is easier than you think.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Start Dodge Durango Without Key Fob: Easy Step-by-Step Guide"
-description: "Have you ever found yourself locked out or stuck because your Dodge Durango key fob isn’t working? It’s frustrating, and you might feel helpless. But don’t worr"
+title: 'How to Start Dodge Durango Without Key Fob: Easy Step-by-Step Guide'
+description: Have you ever found yourself locked out or stuck because your Dodge Durango
+  key fob isn’t working? It’s frustrating, and you might feel helpless. But don’t
+  worr
 pubDate: 2026-02-10
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-start-dodge-durango-without-key-fob&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Starting Without Key Fob
+heroImage: https://tse1.mm.bing.net/th?q=how-to-start-dodge-durango-without-key-fob&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **Have you ever found yourself locked out or stuck because your Dodge Durango key fob isn’t working? It’s frustrating, and you might feel helpless.**

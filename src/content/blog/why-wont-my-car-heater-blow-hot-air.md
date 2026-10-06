@@ -1,10 +1,14 @@
 ---
-title: "Why Won'T My Car Heater Blow Hot Air: Quick Fixes & Solutions"
-description: "Is your car heater blowing cold air even when you need warmth the most? It’s frustrating, uncomfortable, and can make driving in chilly weather downright misera"
+title: 'Why Won''T My Car Heater Blow Hot Air: Quick Fixes & Solutions'
+description: Is your car heater blowing cold air even when you need warmth the most?
+  It’s frustrating, uncomfortable, and can make driving in chilly weather downright
+  misera
 pubDate: 2026-01-17
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-wont-my-car-heater-blow-hot-air&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Heater Not Working
+heroImage: https://tse1.mm.bing.net/th?q=why-wont-my-car-heater-blow-hot-air&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your car heater blowing cold air even when you need warmth the most? It’s frustrating, uncomfortable, and can make driving in chilly weather downright miserable.**

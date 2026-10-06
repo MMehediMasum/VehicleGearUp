@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Honda Accord Sport: Top All-Season Picks Reviewed"
-description: "Choosing the best tires for your 2017 Honda Accord Sport improves safety and driving comfort. Tires affect handling, fuel efficiency, and road grip. Selecting t"
+title: 'Best Tires for Honda Accord Sport: Top All-Season Picks Reviewed'
+description: Choosing the best tires for your 2017 Honda Accord Sport improves safety
+  and driving comfort. Tires affect handling, fuel efficiency, and road grip. Selecting
+  t
 pubDate: 2026-01-08
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-2017-honda-accord-sport&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Sport Model Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-2017-honda-accord-sport&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your 2017 Honda Accord Sport improves safety and driving comfort. Tires affect handling, fuel efficiency, and road grip.**

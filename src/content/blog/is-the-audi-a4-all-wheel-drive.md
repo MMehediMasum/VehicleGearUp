@@ -1,10 +1,14 @@
 ---
-title: "Is the Audi A4 All Wheel Drive: Ultimate Traction or Not?"
-description: "Are you thinking about getting an Audi A4 but wondering if it comes with all-wheel drive? This is a key question that can impact your driving experience, especi"
+title: 'Is the Audi A4 All Wheel Drive: Ultimate Traction or Not?'
+description: Are you thinking about getting an Audi A4 but wondering if it comes with
+  all-wheel drive? This is a key question that can impact your driving experience,
+  especi
 pubDate: 2025-10-24
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-the-audi-a4-all-wheel-drive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- All Wheel Drive Questions
+heroImage: https://tse1.mm.bing.net/th?q=is-the-audi-a4-all-wheel-drive&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you thinking about getting an Audi A4 but wondering if it comes with all-wheel drive? This is a key question that can impact your driving experience, especially if you face changing weather or road conditions.**

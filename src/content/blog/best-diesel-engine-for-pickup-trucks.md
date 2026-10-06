@@ -1,10 +1,13 @@
 ---
-title: "Best Diesel Engine for Pickup Trucks: Top Tools and Accessories Reviewed"
-description: "Choosing the best diesel engine for pickup trucks ensures power, durability, and efficiency. Diesel engines handle heavy loads and long drives better than gasol"
+title: 'Best Diesel Engine for Pickup Trucks: Top Tools and Accessories Reviewed'
+description: Choosing the best diesel engine for pickup trucks ensures power, durability,
+  and efficiency. Diesel engines handle heavy loads and long drives better than gasol
 pubDate: 2026-07-11
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-diesel-engine-for-pickup-trucks&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Carburetor and Fuel Injection Kits
+heroImage: https://tse1.mm.bing.net/th?q=best-diesel-engine-for-pickup-trucks&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best diesel engine for pickup trucks ensures power, durability, and efficiency. Diesel engines handle heavy loads and long drives better than gasoline engines.**

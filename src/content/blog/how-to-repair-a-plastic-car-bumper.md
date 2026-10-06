@@ -1,10 +1,14 @@
 ---
-title: "How to Repair a Plastic Car Bumper: Easy Steps for Perfect Fixes"
-description: "Is your car bumper scratched, cracked, or damaged? Don’t rush to the mechanic just yet. You can save time and money by learning how to repair a plastic car bump"
+title: 'How to Repair a Plastic Car Bumper: Easy Steps for Perfect Fixes'
+description: Is your car bumper scratched, cracked, or damaged? Don’t rush to the
+  mechanic just yet. You can save time and money by learning how to repair a plastic
+  car bump
 pubDate: 2025-09-19
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-repair-a-plastic-car-bumper&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Bumper Dent and Scratch Repair
+heroImage: https://tse1.mm.bing.net/th?q=how-to-repair-a-plastic-car-bumper&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Is your car bumper scratched, cracked, or damaged? Don’t rush to the mechanic just yet.**

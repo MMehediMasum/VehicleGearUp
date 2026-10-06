@@ -1,10 +1,14 @@
 ---
-title: "Best Tire Brand for Toyota Corolla: Top All-Season Picks Reviewed"
-description: "Choosing the best tire brand for your Toyota Corolla ensures safety and smooth driving. Tires affect handling, fuel efficiency, and ride comfort. Selecting the "
+title: 'Best Tire Brand for Toyota Corolla: Top All-Season Picks Reviewed'
+description: 'Choosing the best tire brand for your Toyota Corolla ensures safety
+  and smooth driving. Tires affect handling, fuel efficiency, and ride comfort. Selecting
+  the '
 pubDate: 2026-01-01
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tire-brand-for-toyota-corolla&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Choosing Tire Brands
+heroImage: https://tse1.mm.bing.net/th?q=best-tire-brand-for-toyota-corolla&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tire brand for your Toyota Corolla ensures safety and smooth driving. Tires affect handling, fuel efficiency, and ride comfort.**

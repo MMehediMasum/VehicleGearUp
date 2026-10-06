@@ -1,10 +1,14 @@
 ---
-title: "Where is the Solenoid Located on a 1995 Ford F150: Quick Guide"
-description: "If you’re working on your 1995 Ford F150 and need to find the solenoid, you’re in the right place. Knowing exactly where the solenoid is located can save you ti"
+title: 'Where is the Solenoid Located on a 1995 Ford F150: Quick Guide'
+description: If you’re working on your 1995 Ford F150 and need to find the solenoid,
+  you’re in the right place. Knowing exactly where the solenoid is located can save
+  you ti
 pubDate: 2026-02-18
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-is-the-solenoid-located-on-a-1995-ford-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Model Questions
+heroImage: https://tse1.mm.bing.net/th?q=where-is-the-solenoid-located-on-a-1995-ford-f150&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **If you’re working on your 1995 Ford F150 and need to find the solenoid, you’re in the right place. Knowing exactly where the solenoid is located can save you time and frustration.**

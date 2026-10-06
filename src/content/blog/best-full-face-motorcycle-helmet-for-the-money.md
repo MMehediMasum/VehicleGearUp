@@ -1,10 +1,14 @@
 ---
-title: "Best Full Face Motorcycle Helmet for the Money: Top Lightweight Picks"
-description: "Finding the best full face motorcycle helmet for the money can protect you and fit your budget. Choosing the right helmet matters for safety and comfort on ever"
+title: 'Best Full Face Motorcycle Helmet for the Money: Top Lightweight Picks'
+description: Finding the best full face motorcycle helmet for the money can protect
+  you and fit your budget. Choosing the right helmet matters for safety and comfort
+  on ever
 pubDate: 2025-11-06
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-full-face-motorcycle-helmet-for-the-money&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Helmets and Boots
+heroImage: https://tse1.mm.bing.net/th?q=best-full-face-motorcycle-helmet-for-the-money&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Finding the best full face motorcycle helmet for the money can protect you and fit your budget. Choosing the right helmet matters for safety and comfort on every ride.**

@@ -1,10 +1,14 @@
 ---
-title: "Can I Use a Car Battery for a Trolling Motor: Ultimate Guide"
-description: "Are you wondering if you can use a car battery to power your trolling motor? It’s a question many boat owners ask, especially when looking for a quick and affor"
+title: 'Can I Use a Car Battery for a Trolling Motor: Ultimate Guide'
+description: Are you wondering if you can use a car battery to power your trolling
+  motor? It’s a question many boat owners ask, especially when looking for a quick
+  and affor
 pubDate: 2026-03-26
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-i-use-a-car-battery-for-a-trolling-motor&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Choosing the Best Battery
+heroImage: https://tse1.mm.bing.net/th?q=can-i-use-a-car-battery-for-a-trolling-motor&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you wondering if you can use a car battery to power your trolling motor? It’s a question many boat owners ask, especially when looking for a quick and affordable power source.**

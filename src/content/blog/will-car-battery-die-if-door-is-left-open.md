@@ -1,10 +1,14 @@
 ---
-title: "Will Car Battery Die If Door is Left Open? Shocking Truth Revealed!"
-description: "Have you ever wondered if leaving your car door open could drain your battery? It’s a common concern that many drivers face, especially when rushing out of the "
+title: Will Car Battery Die If Door is Left Open? Shocking Truth Revealed!
+description: 'Have you ever wondered if leaving your car door open could drain your
+  battery? It’s a common concern that many drivers face, especially when rushing out
+  of the '
 pubDate: 2026-04-06
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=will-car-battery-die-if-door-is-left-open&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Heat and Cold Battery Failure
+heroImage: https://tse1.mm.bing.net/th?q=will-car-battery-die-if-door-is-left-open&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if leaving your car door open could drain your battery? It’s a common concern that many drivers face, especially when rushing out of the car.**

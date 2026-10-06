@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Say Car Trunk in Spanish: Easy Tips for Quick Learning"
 description: "Have you ever found yourself needing to talk about your car’s trunk while speaking Spanish but didn’t know the right word? Whether you’re traveling, chatting wi"
 pubDate: 2025-12-04

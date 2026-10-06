@@ -1,10 +1,14 @@
 ---
-title: "Can You Change a Car Battery in the Rain: Safety Tips & Tricks"
-description: "Have you ever faced a dead car battery just as the rain started pouring down? It’s frustrating, right? You might wonder, “Can I change my car battery safely in "
+title: 'Can You Change a Car Battery in the Rain: Safety Tips & Tricks'
+description: 'Have you ever faced a dead car battery just as the rain started pouring
+  down? It’s frustrating, right? You might wonder, “Can I change my car battery safely
+  in '
 pubDate: 2026-04-11
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-change-a-car-battery-in-the-rain&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing a Car Battery
+heroImage: https://tse1.mm.bing.net/th?q=can-you-change-a-car-battery-in-the-rain&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever faced a dead car battery just as the rain started pouring down? It’s frustrating, right?**

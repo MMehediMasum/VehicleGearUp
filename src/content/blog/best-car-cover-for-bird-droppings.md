@@ -1,10 +1,14 @@
 ---
-title: "Best Car Cover for Bird Droppings: Ultimate Protection for Your Vehicle"
-description: "Bird droppings can damage your car’s paint and lower its value quickly. Choosing the best car cover protects your vehicle from these harmful stains. A good car "
+title: 'Best Car Cover for Bird Droppings: Ultimate Protection for Your Vehicle'
+description: 'Bird droppings can damage your car’s paint and lower its value quickly.
+  Choosing the best car cover protects your vehicle from these harmful stains. A good
+  car '
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-cover-for-bird-droppings&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Covers
+heroImage: https://tse1.mm.bing.net/th?q=best-car-cover-for-bird-droppings&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Bird droppings can damage your car’s paint and lower its value quickly. Choosing the best car cover protects your vehicle from these harmful stains.**

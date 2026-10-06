@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Maint Reqd Toyota Camry: Quick & Easy Guide"
-description: "Is the “Maint Reqd” light on your Toyota Camry dashboard? It’s a clear signal that your car needs a maintenance reset, but you might be wondering how to do it y"
+title: 'How to Reset Maint Reqd Toyota Camry: Quick & Easy Guide'
+description: Is the “Maint Reqd” light on your Toyota Camry dashboard? It’s a clear
+  signal that your car needs a maintenance reset, but you might be wondering how to
+  do it y
 pubDate: 2025-12-16
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-maint-reqd-toyota-camry&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Maint Reqd Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-maint-reqd-toyota-camry&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is the “Maint Reqd” light on your Toyota Camry dashboard? It’s a clear signal that your car needs a maintenance reset, but you might be wondering how to do it yourself without visiting a mechanic.**

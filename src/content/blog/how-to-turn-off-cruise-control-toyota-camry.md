@@ -1,10 +1,14 @@
 ---
-title: "How to Turn off Cruise Control Toyota Camry: Quick & Easy Guide"
-description: "If you drive a Toyota Camry, you know how handy cruise control can be on long trips. But what if you want to turn it off quickly and safely? Knowing exactly how"
+title: 'How to Turn off Cruise Control Toyota Camry: Quick & Easy Guide'
+description: If you drive a Toyota Camry, you know how handy cruise control can be
+  on long trips. But what if you want to turn it off quickly and safely? Knowing exactly
+  how
 pubDate: 2026-03-03
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-cruise-control-toyota-camry&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Driver Assist Settings
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-cruise-control-toyota-camry&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If you drive a Toyota Camry, you know how handy cruise control can be on long trips. But what if you want to turn it off quickly and safely?**

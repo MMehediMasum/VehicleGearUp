@@ -1,10 +1,14 @@
 ---
-title: "How to Change Brakes on a Honda Accord: Easy DIY Guide"
-description: "Are you hearing squeaky sounds or feeling a soft brake pedal when you stop your Honda Accord? It might be time to change your brakes. Knowing how to change brak"
+title: 'How to Change Brakes on a Honda Accord: Easy DIY Guide'
+description: Are you hearing squeaky sounds or feeling a soft brake pedal when you
+  stop your Honda Accord? It might be time to change your brakes. Knowing how to change
+  brak
 pubDate: 2026-05-16
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-brakes-on-a-honda-accord&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Brake Replacement and Rotors
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-brakes-on-a-honda-accord&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Are you hearing squeaky sounds or feeling a soft brake pedal when you stop your Honda Accord? It might be time to change your brakes.**

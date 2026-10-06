@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Steering Wheel And Pedals for PS4: Top Picks for Ultimate Racing Experience"
 description: "Choosing the best steering wheel and pedals can improve your PS4 racing game experience. A good set offers better control and realism while playing. Racing game"
 pubDate: 2026-01-07

@@ -1,10 +1,14 @@
 ---
-title: "Best Cordless Air Compressor for Car Tires: Top Portable Inflators Reviewed"
-description: "Finding the best cordless air compressor for car tires helps keep your vehicle safe and ready to drive. These portable pumps offer quick, easy inflation anytime"
+title: 'Best Cordless Air Compressor for Car Tires: Top Portable Inflators Reviewed'
+description: Finding the best cordless air compressor for car tires helps keep your
+  vehicle safe and ready to drive. These portable pumps offer quick, easy inflation
+  anytime
 pubDate: 2026-01-06
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cordless-air-compressor-for-car-tires&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tire Inflators and Compressors
+heroImage: https://tse1.mm.bing.net/th?q=best-cordless-air-compressor-for-car-tires&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Finding the best cordless air compressor for car tires helps keep your vehicle safe and ready to drive. These portable pumps offer quick, easy inflation anytime, anywhere.**

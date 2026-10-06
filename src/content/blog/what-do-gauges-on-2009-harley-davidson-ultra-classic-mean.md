@@ -1,10 +1,14 @@
 ---
-title: "What Do Gauges on 2009 Harley Davidson Ultra Classic Mean: Ultimate Guide"
-description: "If you own a 2009 Harley Davidson Ultra Classic, you’ve probably noticed the cluster of gauges on your dashboard. But do you really know what each one means? Un"
+title: 'What Do Gauges on 2009 Harley Davidson Ultra Classic Mean: Ultimate Guide'
+description: If you own a 2009 Harley Davidson Ultra Classic, you’ve probably noticed
+  the cluster of gauges on your dashboard. But do you really know what each one means?
+  Un
 pubDate: 2025-09-09
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-do-gauges-on-2009-harley-davidson-ultra-classic-mean&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Ownership Questions
+heroImage: https://tse1.mm.bing.net/th?q=what-do-gauges-on-2009-harley-davidson-ultra-classic-mean&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **If you own a 2009 Harley Davidson Ultra Classic, you’ve probably noticed the cluster of gauges on your dashboard. But do you really know what each one means?**

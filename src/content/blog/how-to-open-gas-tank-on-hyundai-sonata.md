@@ -1,10 +1,14 @@
 ---
-title: "How to Open Gas Tank on Hyundai Sonata: Quick & Easy Guide"
-description: "Are you struggling to open the gas tank on your Hyundai Sonata? You’re not alone. Many drivers find this simple task confusing at first, but it doesn’t have to "
+title: 'How to Open Gas Tank on Hyundai Sonata: Quick & Easy Guide'
+description: 'Are you struggling to open the gas tank on your Hyundai Sonata? You’re
+  not alone. Many drivers find this simple task confusing at first, but it doesn’t
+  have to '
 pubDate: 2026-02-09
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-open-gas-tank-on-hyundai-sonata&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Opening European Gas Tanks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-open-gas-tank-on-hyundai-sonata&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are you struggling to open the gas tank on your Hyundai Sonata? You’re not alone.**

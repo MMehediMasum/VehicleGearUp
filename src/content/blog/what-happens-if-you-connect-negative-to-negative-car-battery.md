@@ -1,10 +1,13 @@
 ---
-title: "What Happens If You Connect Negative to Negative Car Battery: Risks Explained"
-description: "Have you ever wondered what happens if you connect negative to negative on a car battery? It might sound simple, but making this mistake can lead to surprising "
+title: 'What Happens If You Connect Negative to Negative Car Battery: Risks Explained'
+description: 'Have you ever wondered what happens if you connect negative to negative
+  on a car battery? It might sound simple, but making this mistake can lead to surprising '
 pubDate: 2026-04-10
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-happens-if-you-connect-negative-to-negative-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Polarity and Acid
+heroImage: https://tse1.mm.bing.net/th?q=what-happens-if-you-connect-negative-to-negative-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered what happens if you connect negative to negative on a car battery? It might sound simple, but making this mistake can lead to surprising results.**

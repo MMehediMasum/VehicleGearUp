@@ -1,10 +1,13 @@
 ---
-title: "Best Car Wash for Pressure Washer: Top Soaps for Spotless Shine"
-description: "Choosing the best car wash soap for your pressure washer improves cleaning results and protects your vehicle’s finish. A good soap works well with foam cannons "
+title: 'Best Car Wash for Pressure Washer: Top Soaps for Spotless Shine'
+description: 'Choosing the best car wash soap for your pressure washer improves cleaning
+  results and protects your vehicle’s finish. A good soap works well with foam cannons '
 pubDate: 2026-07-03
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-wash-for-pressure-washer&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wash Soap Picks
+heroImage: https://tse1.mm.bing.net/th?q=best-car-wash-for-pressure-washer&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best car wash soap for your pressure washer improves cleaning results and protects your vehicle’s finish. A good soap works well with foam cannons and spray guns, making washing easier and more effective.**

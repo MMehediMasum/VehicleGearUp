@@ -1,10 +1,14 @@
 ---
-title: "Who to Call When Car Battery Dies: Quick Help You Can Trust"
-description: "Imagine this: you’re ready to head out, but your car won’t start. The battery is dead, and you’re stuck. What do you do next? Knowing exactly who to call when y"
+title: 'Who to Call When Car Battery Dies: Quick Help You Can Trust'
+description: 'Imagine this: you’re ready to head out, but your car won’t start. The
+  battery is dead, and you’re stuck. What do you do next? Knowing exactly who to call
+  when y'
 pubDate: 2026-04-16
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=who-to-call-when-car-battery-dies&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- When to Replace a Battery
+heroImage: https://tse1.mm.bing.net/th?q=who-to-call-when-car-battery-dies&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Imagine this: you’re ready to head out, but your car won’t start. The battery is dead, and you’re stuck.**

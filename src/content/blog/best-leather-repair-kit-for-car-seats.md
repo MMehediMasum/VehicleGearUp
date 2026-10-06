@@ -1,10 +1,14 @@
 ---
-title: "Best Leather Repair Kit for Car Seats: Restore Tears and Scratches Easily"
-description: "A quality leather repair kit can restore car seats quickly and affordably. It fixes tears, holes, scratches, and peeling with ease. Car seats face wear and dama"
+title: 'Best Leather Repair Kit for Car Seats: Restore Tears and Scratches Easily'
+description: A quality leather repair kit can restore car seats quickly and affordably.
+  It fixes tears, holes, scratches, and peeling with ease. Car seats face wear and
+  dama
 pubDate: 2025-09-11
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-leather-repair-kit-for-car-seats&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Leather and Fabric Seat Care
+heroImage: https://tse1.mm.bing.net/th?q=best-leather-repair-kit-for-car-seats&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **A quality leather repair kit can restore car seats quickly and affordably. It fixes tears, holes, scratches, and peeling with ease.**

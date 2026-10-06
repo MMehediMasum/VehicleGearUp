@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Engine Light Honda Civic: Quick & Easy Guide"
-description: "Your Honda Civic’s engine light just turned on, and you’re not sure what to do next. You might feel a bit worried or confused, but don’t panic. Knowing how to r"
+title: 'How to Reset Engine Light Honda Civic: Quick & Easy Guide'
+description: Your Honda Civic’s engine light just turned on, and you’re not sure what
+  to do next. You might feel a bit worried or confused, but don’t panic. Knowing how
+  to r
 pubDate: 2026-05-05
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-engine-light-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Resetting Check Engine Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-engine-light-honda-civic&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Your Honda Civic’s engine light just turned on, and you’re not sure what to do next. You might feel a bit worried or confused, but don’t panic.**

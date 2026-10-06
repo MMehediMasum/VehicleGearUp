@@ -1,10 +1,14 @@
 ---
-title: "Best Car Primer for Bare Metal: Top Rust-Resistant Automotive Primers"
-description: "Choosing the best car primer for bare metal ensures strong paint adhesion and rust protection. It helps prepare metal surfaces for a smooth, lasting finish. Car"
+title: 'Best Car Primer for Bare Metal: Top Rust-Resistant Automotive Primers'
+description: Choosing the best car primer for bare metal ensures strong paint adhesion
+  and rust protection. It helps prepare metal surfaces for a smooth, lasting finish.
+  Car
 pubDate: 2025-12-24
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-primer-for-bare-metal&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wax by Paint Color
+heroImage: https://tse1.mm.bing.net/th?q=best-car-primer-for-bare-metal&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best car primer for bare metal ensures strong paint adhesion and rust protection. It helps prepare metal surfaces for a smooth, lasting finish.**

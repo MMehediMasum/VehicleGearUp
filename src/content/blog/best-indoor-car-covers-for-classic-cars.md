@@ -1,10 +1,14 @@
 ---
-title: "Best Indoor Car Covers for Classic Cars: Ultimate Protection Guide"
-description: "Protecting classic cars indoors requires the right car cover to keep dust, moisture, and scratches away. Choosing the best indoor car cover helps maintain your "
+title: 'Best Indoor Car Covers for Classic Cars: Ultimate Protection Guide'
+description: 'Protecting classic cars indoors requires the right car cover to keep
+  dust, moisture, and scratches away. Choosing the best indoor car cover helps maintain
+  your '
 pubDate: 2026-07-30
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-indoor-car-covers-for-classic-cars&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Paint Contaminant Removers
+heroImage: https://tse1.mm.bing.net/th?q=best-indoor-car-covers-for-classic-cars&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Protecting classic cars indoors requires the right car cover to keep dust, moisture, and scratches away. Choosing the best indoor car cover helps maintain your vehicle’s value and appearance.**

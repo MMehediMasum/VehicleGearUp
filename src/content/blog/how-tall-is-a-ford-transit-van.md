@@ -1,10 +1,14 @@
 ---
-title: "How Tall is a Ford Transit Van: Ultimate Height Guide 2025"
-description: "Are you curious about how tall a Ford Transit van really is? Whether you’re planning to park it in your garage, navigate low-clearance areas, or just want to kn"
+title: 'How Tall is a Ford Transit Van: Ultimate Height Guide 2025'
+description: Are you curious about how tall a Ford Transit van really is? Whether
+  you’re planning to park it in your garage, navigate low-clearance areas, or just
+  want to kn
 pubDate: 2026-01-18
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-tall-is-a-ford-transit-van&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Third Row and Mileage
+heroImage: https://tse1.mm.bing.net/th?q=how-tall-is-a-ford-transit-van&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you curious about how tall a Ford Transit van really is? Whether you’re planning to park it in your garage, navigate low-clearance areas, or just want to know if it fits your needs, knowing the exact height matters.**

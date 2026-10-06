@@ -1,10 +1,14 @@
 ---
-title: "Why Does My Car Battery Keep Dying Overnight: Top Causes Revealed"
-description: "Have you ever gone out to your car in the morning, only to find it won’t start because the battery is dead? It’s frustrating and confusing, especially when you "
+title: 'Why Does My Car Battery Keep Dying Overnight: Top Causes Revealed'
+description: 'Have you ever gone out to your car in the morning, only to find it won’t
+  start because the battery is dead? It’s frustrating and confusing, especially when
+  you '
 pubDate: 2026-03-24
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-does-my-car-battery-keep-dying-overnight&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Why Batteries Keep Dying
+heroImage: https://tse1.mm.bing.net/th?q=why-does-my-car-battery-keep-dying-overnight&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever gone out to your car in the morning, only to find it won’t start because the battery is dead? It’s frustrating and confusing, especially when you didn’t leave any lights on or use your car much the day before.**

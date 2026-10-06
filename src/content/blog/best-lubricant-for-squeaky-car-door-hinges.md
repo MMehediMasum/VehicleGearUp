@@ -1,10 +1,14 @@
 ---
-title: "Best Lubricant for Squeaky Car Door Hinges: Top Picks for Smooth Silence"
-description: "Squeaky car door hinges annoy many drivers. Choosing the right lubricant stops noise and protects metal parts. Car door hinges face constant friction and weathe"
+title: 'Best Lubricant for Squeaky Car Door Hinges: Top Picks for Smooth Silence'
+description: Squeaky car door hinges annoy many drivers. Choosing the right lubricant
+  stops noise and protects metal parts. Car door hinges face constant friction and
+  weathe
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lubricant-for-squeaky-car-door-hinges&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Handy Car Gadgets
+heroImage: https://tse1.mm.bing.net/th?q=best-lubricant-for-squeaky-car-door-hinges&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Squeaky car door hinges annoy many drivers. Choosing the right lubricant stops noise and protects metal parts.**

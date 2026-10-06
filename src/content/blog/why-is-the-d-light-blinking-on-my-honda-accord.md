@@ -1,10 +1,14 @@
 ---
-title: "Why is the D Light Blinking on My Honda Accord: Causes & Fixes"
-description: "Have you noticed the D light blinking on your Honda Accord’s dashboard and wondered what it means? It’s a small signal, but it can cause big questions and even "
+title: 'Why is the D Light Blinking on My Honda Accord: Causes & Fixes'
+description: 'Have you noticed the D light blinking on your Honda Accord’s dashboard
+  and wondered what it means? It’s a small signal, but it can cause big questions
+  and even '
 pubDate: 2025-09-27
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-is-the-d-light-blinking-on-my-honda-accord&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Dashboard Lights and Noises
+heroImage: https://tse1.mm.bing.net/th?q=why-is-the-d-light-blinking-on-my-honda-accord&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Have you noticed the D light blinking on your Honda Accord’s dashboard and wondered what it means? It’s a small signal, but it can cause big questions and even some worry.**

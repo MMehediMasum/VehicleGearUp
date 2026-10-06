@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for Durango Hellcat to Boost Performance Fast"
-description: "Choosing the best cold air intake for your Durango Hellcat can boost engine power and improve airflow. A good system helps your vehicle run cooler and perform b"
+title: Best Cold Air Intake for Durango Hellcat to Boost Performance Fast
+description: Choosing the best cold air intake for your Durango Hellcat can boost
+  engine power and improve airflow. A good system helps your vehicle run cooler and
+  perform b
 pubDate: 2026-06-29
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-durango-hellcat&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hemi Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-durango-hellcat&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best cold air intake for your Durango Hellcat can boost engine power and improve airflow. A good system helps your vehicle run cooler and perform better.**

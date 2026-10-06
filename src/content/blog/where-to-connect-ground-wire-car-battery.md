@@ -1,10 +1,14 @@
 ---
-title: "Where to Connect Ground Wire Car Battery: Ultimate Guide for Safety"
-description: "If you’ve ever worked on your car’s battery, you know how important it is to connect the ground wire correctly. Getting this right can save you from electrical "
+title: 'Where to Connect Ground Wire Car Battery: Ultimate Guide for Safety'
+description: 'If you’ve ever worked on your car’s battery, you know how important
+  it is to connect the ground wire correctly. Getting this right can save you from
+  electrical '
 pubDate: 2026-04-06
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-connect-ground-wire-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing a Car Battery
+heroImage: https://tse1.mm.bing.net/th?q=where-to-connect-ground-wire-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **If you’ve ever worked on your car’s battery, you know how important it is to connect the ground wire correctly. Getting this right can save you from electrical problems and keep your vehicle running smoothly.**

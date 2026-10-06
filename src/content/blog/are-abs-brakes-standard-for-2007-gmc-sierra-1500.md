@@ -1,10 +1,14 @@
 ---
-title: "Are Abs Brakes Standard for 2007 Gmc Sierra 1500? Key Facts!"
-description: "Are you wondering if your 2007 GMC Sierra 1500 comes with ABS brakes as a standard feature? Knowing this can make a big difference in how safe and confident you"
+title: Are Abs Brakes Standard for 2007 Gmc Sierra 1500? Key Facts!
+description: Are you wondering if your 2007 GMC Sierra 1500 comes with ABS brakes
+  as a standard feature? Knowing this can make a big difference in how safe and confident
+  you
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-abs-brakes-standard-for-2007-gmc-sierra-1500&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Brake Replacement and Rotors
+heroImage: https://tse1.mm.bing.net/th?q=are-abs-brakes-standard-for-2007-gmc-sierra-1500&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Are you wondering if your 2007 GMC Sierra 1500 comes with ABS brakes as a standard feature? Knowing this can make a big difference in how safe and confident you feel behind the wheel.**

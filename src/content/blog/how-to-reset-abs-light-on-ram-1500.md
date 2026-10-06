@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Abs Light on Ram 1500: Easy DIY Fix Guide"
-description: "Is your Ram 1500’s ABS light on, and you’re not sure how to fix it? That little warning can be frustrating and even a bit worrying. But don’t panic—you can rese"
+title: 'How to Reset Abs Light on Ram 1500: Easy DIY Fix Guide'
+description: Is your Ram 1500’s ABS light on, and you’re not sure how to fix it? That
+  little warning can be frustrating and even a bit worrying. But don’t panic—you can
+  rese
 pubDate: 2026-05-21
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-abs-light-on-ram-1500&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Brake Replacement and Rotors
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-abs-light-on-ram-1500&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your Ram 1500’s ABS light on, and you’re not sure how to fix it? That little warning can be frustrating and even a bit worrying.**

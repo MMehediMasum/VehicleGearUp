@@ -1,10 +1,14 @@
 ---
-title: "Best Phone Mount for Tesla Model Y: Top Magnetic & Adjustable Holders"
-description: "Finding the best phone mount for your Tesla Model Y can improve safety and convenience. A good mount keeps your phone secure and easy to see while driving. Tesl"
+title: 'Best Phone Mount for Tesla Model Y: Top Magnetic & Adjustable Holders'
+description: Finding the best phone mount for your Tesla Model Y can improve safety
+  and convenience. A good mount keeps your phone secure and easy to see while driving.
+  Tesl
 pubDate: 2026-06-21
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-phone-mount-for-tesla-model-y&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Tires and Accessories
+heroImage: https://tse1.mm.bing.net/th?q=best-phone-mount-for-tesla-model-y&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Finding the best phone mount for your Tesla Model Y can improve safety and convenience. A good mount keeps your phone secure and easy to see while driving.**

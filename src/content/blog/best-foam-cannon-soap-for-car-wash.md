@@ -1,10 +1,14 @@
 ---
-title: "Best Foam Cannon Soap for Car Wash: Top Picks for Sparkling Results"
-description: "Choosing the best foam cannon soap makes car washing easier and more effective. Foam cannon soaps create thick foam that lifts dirt safely from your car’s surfa"
+title: 'Best Foam Cannon Soap for Car Wash: Top Picks for Sparkling Results'
+description: Choosing the best foam cannon soap makes car washing easier and more
+  effective. Foam cannon soaps create thick foam that lifts dirt safely from your
+  car’s surfa
 pubDate: 2026-07-07
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-foam-cannon-soap-for-car-wash&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wash Costs and Etiquette
+heroImage: https://tse1.mm.bing.net/th?q=best-foam-cannon-soap-for-car-wash&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best foam cannon soap makes car washing easier and more effective. Foam cannon soaps create thick foam that lifts dirt safely from your car’s surface.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Seat Covers for Nissan Sentra: Durable, Stylish, and Easy to Install"
-description: "Choosing the best seat covers for your Nissan Sentra protects your car’s interior and adds style. Quality covers fit well and last long. Protecting your Nissan "
+title: 'Best Seat Covers for Nissan Sentra: Durable, Stylish, and Easy to Install'
+description: 'Choosing the best seat covers for your Nissan Sentra protects your car’s
+  interior and adds style. Quality covers fit well and last long. Protecting your
+  Nissan '
 pubDate: 2026-07-26
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-seat-covers-for-nissan-sentra&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Nissan and Fabric Seat Covers
+heroImage: https://tse1.mm.bing.net/th?q=best-seat-covers-for-nissan-sentra&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best seat covers for your Nissan Sentra protects your car’s interior and adds style. Quality covers fit well and last long.**

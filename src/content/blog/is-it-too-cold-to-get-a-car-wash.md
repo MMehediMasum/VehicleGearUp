@@ -1,10 +1,14 @@
 ---
-title: "Is It Too Cold to Get a Car Wash: Expert Tips to Decide Now"
-description: "Is it too cold to get a car wash? You might wonder if washing your car in chilly weather is safe or even worth the effort. You want your car to look clean, but "
+title: 'Is It Too Cold to Get a Car Wash: Expert Tips to Decide Now'
+description: 'Is it too cold to get a car wash? You might wonder if washing your car
+  in chilly weather is safe or even worth the effort. You want your car to look clean,
+  but '
 pubDate: 2026-03-22
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-it-too-cold-to-get-a-car-wash&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Winter Car Wash Questions
+heroImage: https://tse1.mm.bing.net/th?q=is-it-too-cold-to-get-a-car-wash&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Is it too cold to get a car wash? You might wonder if washing your car in chilly weather is safe or even worth the effort.**

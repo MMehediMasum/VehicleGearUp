@@ -1,10 +1,14 @@
 ---
-title: "Can Soft Top Jeeps Go Through Car Washes? Expert Tips Revealed"
-description: "Are you wondering if your soft top Jeep can safely go through a car wash? You’re not alone. Many Jeep owners worry about damaging their soft tops or losing that"
+title: Can Soft Top Jeeps Go Through Car Washes? Expert Tips Revealed
+description: Are you wondering if your soft top Jeep can safely go through a car wash?
+  You’re not alone. Many Jeep owners worry about damaging their soft tops or losing
+  that
 pubDate: 2025-08-30
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-soft-top-jeeps-go-through-car-washes&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Going Through Car Washes
+heroImage: https://tse1.mm.bing.net/th?q=can-soft-top-jeeps-go-through-car-washes&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Are you wondering if your soft top Jeep can safely go through a car wash? You’re not alone.**

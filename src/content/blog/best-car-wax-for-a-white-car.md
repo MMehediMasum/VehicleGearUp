@@ -1,10 +1,14 @@
 ---
-title: "Best Car Wax for a White Car: Top Polishes for Ultimate Shine & Protection"
-description: "Choosing the best car wax for a white car helps keep its paint bright and protected. White cars need wax that enhances color and guards against dirt and UV rays"
+title: 'Best Car Wax for a White Car: Top Polishes for Ultimate Shine & Protection'
+description: Choosing the best car wax for a white car helps keep its paint bright
+  and protected. White cars need wax that enhances color and guards against dirt and
+  UV rays
 pubDate: 2025-11-19
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-wax-for-a-white-car&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wax by Paint Color
+heroImage: https://tse1.mm.bing.net/th?q=best-car-wax-for-a-white-car&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best car wax for a white car helps keep its paint bright and protected. White cars need wax that enhances color and guards against dirt and UV rays.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Why Do So Many Black People Drive Nissan Altimas? Surprising Facts Revealed"
 description: "Have you ever noticed how many Black people choose to drive Nissan Altimas? It’s not just a coincidence. There are real reasons behind this trend that go beyond"
 pubDate: 2026-03-01

@@ -1,10 +1,14 @@
 ---
-title: "Does Car Need to Be Running to Check Transmission Fluid? Expert Tips"
-description: "Wondering if your car needs to be running to check the transmission fluid? This simple question can save you from costly mistakes and keep your vehicle running "
+title: Does Car Need to Be Running to Check Transmission Fluid? Expert Tips
+description: 'Wondering if your car needs to be running to check the transmission
+  fluid? This simple question can save you from costly mistakes and keep your vehicle
+  running '
 pubDate: 2026-05-13
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-car-need-to-be-running-to-check-transmission-fluid&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Transmission Fluid Checks
+heroImage: https://tse1.mm.bing.net/th?q=does-car-need-to-be-running-to-check-transmission-fluid&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Wondering if your car needs to be running to check the transmission fluid? This simple question can save you from costly mistakes and keep your vehicle running smoothly.**

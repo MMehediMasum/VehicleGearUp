@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Jeep Grand Cherokee Oil Change: Quick & Easy Guide"
-description: "If you own a Jeep Grand Cherokee, knowing how to reset the oil change light is a simple but important skill. Ignoring this step can leave you confused or even r"
+title: 'How to Reset Jeep Grand Cherokee Oil Change: Quick & Easy Guide'
+description: If you own a Jeep Grand Cherokee, knowing how to reset the oil change
+  light is a simple but important skill. Ignoring this step can leave you confused
+  or even r
 pubDate: 2026-04-25
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-jeep-grand-cherokee-oil-change&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Oil Change Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-jeep-grand-cherokee-oil-change&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a Jeep Grand Cherokee, knowing how to reset the oil change light is a simple but important skill. Ignoring this step can leave you confused or even risk missing your next oil change.**

@@ -1,10 +1,14 @@
 ---
-title: "Where to Put Car Jack on Toyota Highlander 2021: Expert Guide"
-description: "If you ever need to change a tire or do some quick maintenance on your Toyota Highlander 2021, knowing exactly where to place the car jack is crucial. Putting t"
+title: 'Where to Put Car Jack on Toyota Highlander 2021: Expert Guide'
+description: If you ever need to change a tire or do some quick maintenance on your
+  Toyota Highlander 2021, knowing exactly where to place the car jack is crucial.
+  Putting t
 pubDate: 2025-11-16
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-put-car-jack-on-toyota-highlander-2021&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Jacks and Jack Stands
+heroImage: https://tse1.mm.bing.net/th?q=where-to-put-car-jack-on-toyota-highlander-2021&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **If you ever need to change a tire or do some quick maintenance on your Toyota Highlander 2021, knowing exactly where to place the car jack is crucial. Putting the jack in the wrong spot can damage your vehicle or even put you at risk.**

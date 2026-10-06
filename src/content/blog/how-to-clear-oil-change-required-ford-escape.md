@@ -1,10 +1,14 @@
 ---
-title: "How to Clear Oil Change Required Ford Escape: Quick Easy Steps"
-description: "Is that \"Oil Change Required\" message on your Ford Escape dashboard driving you a little crazy? You’re not alone. That little warning light is designed to keep "
+title: 'How to Clear Oil Change Required Ford Escape: Quick Easy Steps'
+description: 'Is that "Oil Change Required" message on your Ford Escape dashboard
+  driving you a little crazy? You’re not alone. That little warning light is designed
+  to keep '
 pubDate: 2026-04-24
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clear-oil-change-required-ford-escape&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Oil Change Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clear-oil-change-required-ford-escape&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is that "Oil Change Required" message on your Ford Escape dashboard driving you a little crazy? You’re not alone.**

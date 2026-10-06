@@ -1,10 +1,14 @@
 ---
-title: "How to Get Rid of Car Tires: Easy and Eco-Friendly Methods"
-description: "Are you stuck with old car tires that you don’t know how to dispose of? Getting rid of used tires can feel tricky, confusing, and even frustrating. But it doesn"
+title: 'How to Get Rid of Car Tires: Easy and Eco-Friendly Methods'
+description: Are you stuck with old car tires that you don’t know how to dispose of?
+  Getting rid of used tires can feel tricky, confusing, and even frustrating. But
+  it doesn
 pubDate: 2026-02-18
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-get-rid-of-car-tires&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tire Construction and Origin
+heroImage: https://tse1.mm.bing.net/th?q=how-to-get-rid-of-car-tires&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Are you stuck with old car tires that you don’t know how to dispose of? Getting rid of used tires can feel tricky, confusing, and even frustrating.**

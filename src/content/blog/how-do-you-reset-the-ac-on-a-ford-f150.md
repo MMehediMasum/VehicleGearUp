@@ -1,10 +1,13 @@
 ---
-title: "How Do You Reset the Ac on a Ford F150: Quick & Easy Steps"
-description: "Is your Ford F150’s AC not cooling like it used to? You’re not alone. When your truck’s air conditioning starts acting up, it can make every drive uncomfortable"
+title: 'How Do You Reset the Ac on a Ford F150: Quick & Easy Steps'
+description: Is your Ford F150’s AC not cooling like it used to? You’re not alone.
+  When your truck’s air conditioning starts acting up, it can make every drive uncomfortable
 pubDate: 2025-11-02
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-reset-the-ac-on-a-ford-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford F150 Resets and Fixes
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-reset-the-ac-on-a-ford-f150&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your Ford F150’s AC not cooling like it used to? You’re not alone.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Kia K5 GT Line: Top Picks for Performance & Durability"
-description: "Choosing the best tires for your Kia K5 GT Line improves safety and performance. Quality tires ensure a smooth ride and better control on all roads. The Kia K5 "
+title: 'Best Tires for Kia K5 GT Line: Top Picks for Performance & Durability'
+description: 'Choosing the best tires for your Kia K5 GT Line improves safety and
+  performance. Quality tires ensure a smooth ride and better control on all roads.
+  The Kia K5 '
 pubDate: 2026-01-11
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-kia-k5-gt-line&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hyundai and Kia Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-kia-k5-gt-line&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your Kia K5 GT Line improves safety and performance. Quality tires ensure a smooth ride and better control on all roads.**

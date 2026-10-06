@@ -1,10 +1,14 @@
 ---
-title: "Will Low Transmission Fluid Cause Car Not to Move? Essential Facts"
-description: "Have you ever turned the key, shifted into gear, and your car just wouldn’t move? It’s a frustrating experience that can leave you wondering what went wrong. On"
+title: Will Low Transmission Fluid Cause Car Not to Move? Essential Facts
+description: Have you ever turned the key, shifted into gear, and your car just wouldn’t
+  move? It’s a frustrating experience that can leave you wondering what went wrong.
+  On
 pubDate: 2026-05-15
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=will-low-transmission-fluid-cause-car-not-to-move&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Adding Transmission Fluid
+heroImage: https://tse1.mm.bing.net/th?q=will-low-transmission-fluid-cause-car-not-to-move&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever turned the key, shifted into gear, and your car just wouldn’t move? It’s a frustrating experience that can leave you wondering what went wrong.**

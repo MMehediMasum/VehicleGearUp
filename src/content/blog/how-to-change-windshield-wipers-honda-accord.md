@@ -1,10 +1,14 @@
 ---
-title: "How to Change Windshield Wipers Honda Accord: Easy Step-by-Step Guide"
-description: "Your Honda Accord’s windshield wipers are key to keeping your view clear and your drives safe. But when was the last time you changed them? If you’re noticing s"
+title: 'How to Change Windshield Wipers Honda Accord: Easy Step-by-Step Guide'
+description: Your Honda Accord’s windshield wipers are key to keeping your view clear
+  and your drives safe. But when was the last time you changed them? If you’re noticing
+  s
 pubDate: 2025-09-22
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-windshield-wipers-honda-accord&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Windshield Wipers
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-windshield-wipers-honda-accord&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Your Honda Accord’s windshield wipers are key to keeping your view clear and your drives safe. But when was the last time you changed them?**

@@ -1,10 +1,14 @@
 ---
-title: "How to Delete Bluetooth Device from Honda Accord: Easy Step-by-Step Guide"
-description: "Is your Honda Accord still paired with a Bluetooth device you no longer use? Removing old devices can help your car’s system work faster and connect smoothly wi"
+title: 'How to Delete Bluetooth Device from Honda Accord: Easy Step-by-Step Guide'
+description: Is your Honda Accord still paired with a Bluetooth device you no longer
+  use? Removing old devices can help your car’s system work faster and connect smoothly
+  wi
 pubDate: 2026-02-21
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-delete-bluetooth-device-from-honda-accord&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Deleting Bluetooth Devices
+heroImage: https://tse1.mm.bing.net/th?q=how-to-delete-bluetooth-device-from-honda-accord&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your Honda Accord still paired with a Bluetooth device you no longer use? Removing old devices can help your car’s system work faster and connect smoothly with your current phone.**

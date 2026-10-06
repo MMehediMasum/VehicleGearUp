@@ -1,10 +1,14 @@
 ---
-title: "Best Spark Plug Wires for Harley Davidson: Top Performance and Durability"
-description: "Choosing the best spark plug wires for your Harley Davidson ensures smooth engine performance and reliable starts. Quality wires improve ignition and protect yo"
+title: 'Best Spark Plug Wires for Harley Davidson: Top Performance and Durability'
+description: Choosing the best spark plug wires for your Harley Davidson ensures smooth
+  engine performance and reliable starts. Quality wires improve ignition and protect
+  yo
 pubDate: 2025-11-09
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-spark-plug-wires-for-harley-davidson&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Maintenance Basics
+heroImage: https://tse1.mm.bing.net/th?q=best-spark-plug-wires-for-harley-davidson&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best spark plug wires for your Harley Davidson ensures smooth engine performance and reliable starts. Quality wires improve ignition and protect your bike’s electrical system.**

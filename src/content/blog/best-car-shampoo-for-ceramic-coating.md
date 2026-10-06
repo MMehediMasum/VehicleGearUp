@@ -1,10 +1,14 @@
 ---
-title: "Best Car Shampoo for Ceramic Coating: Top Picks for Ultimate Shine"
-description: "Choosing the best car shampoo for ceramic coating protects your investment and keeps your vehicle shining. Not all soaps work well with ceramic coatings, so pic"
+title: 'Best Car Shampoo for Ceramic Coating: Top Picks for Ultimate Shine'
+description: Choosing the best car shampoo for ceramic coating protects your investment
+  and keeps your vehicle shining. Not all soaps work well with ceramic coatings, so
+  pic
 pubDate: 2026-06-16
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-shampoo-for-ceramic-coating&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Washing Ceramic Coated Cars
+heroImage: https://tse1.mm.bing.net/th?q=best-car-shampoo-for-ceramic-coating&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best car shampoo for ceramic coating protects your investment and keeps your vehicle shining. Not all soaps work well with ceramic coatings, so picking the right one matters.**

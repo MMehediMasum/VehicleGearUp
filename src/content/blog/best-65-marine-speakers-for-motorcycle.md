@@ -1,10 +1,14 @@
 ---
-title: "Best 6.5 Marine Speakers for Motorcycle: Top Waterproof Audio Picks"
-description: "Finding the best 6.5 marine speakers for your motorcycle can boost your ride’s sound quality. These speakers handle water, wind, and rough conditions well. Mari"
+title: 'Best 6.5 Marine Speakers for Motorcycle: Top Waterproof Audio Picks'
+description: Finding the best 6.5 marine speakers for your motorcycle can boost your
+  ride’s sound quality. These speakers handle water, wind, and rough conditions well.
+  Mari
 pubDate: 2026-07-27
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-65-marine-speakers-for-motorcycle&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Batteries and Brakes
+heroImage: https://tse1.mm.bing.net/th?q=best-65-marine-speakers-for-motorcycle&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Finding the best 6.5 marine speakers for your motorcycle can boost your ride’s sound quality. These speakers handle water, wind, and rough conditions well.**

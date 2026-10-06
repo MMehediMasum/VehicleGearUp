@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil on Jeep Grand Cherokee: Quick & Easy Guide"
-description: "If you own a Jeep Grand Cherokee, you know how important it is to keep your vehicle running smoothly. One key step is resetting the oil light after an oil chang"
+title: 'How to Reset Oil on Jeep Grand Cherokee: Quick & Easy Guide'
+description: If you own a Jeep Grand Cherokee, you know how important it is to keep
+  your vehicle running smoothly. One key step is resetting the oil light after an
+  oil chang
 pubDate: 2026-05-08
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-on-jeep-grand-cherokee&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Oil Gauge Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-on-jeep-grand-cherokee&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a Jeep Grand Cherokee, you know how important it is to keep your vehicle running smoothly. One key step is resetting the oil light after an oil change.**

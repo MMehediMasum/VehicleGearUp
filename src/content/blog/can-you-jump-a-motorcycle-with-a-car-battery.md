@@ -1,10 +1,14 @@
 ---
-title: "Can You Jump a Motorcycle With a Car Battery: Safety Tips Explained"
-description: "Have you ever found yourself stuck with a dead motorcycle battery and wondered if your car battery could save the day? It’s a common question that many riders f"
+title: 'Can You Jump a Motorcycle With a Car Battery: Safety Tips Explained'
+description: Have you ever found yourself stuck with a dead motorcycle battery and
+  wondered if your car battery could save the day? It’s a common question that many
+  riders f
 pubDate: 2026-05-31
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-jump-a-motorcycle-with-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Batteries and Brakes
+heroImage: https://tse1.mm.bing.net/th?q=can-you-jump-a-motorcycle-with-a-car-battery&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Have you ever found yourself stuck with a dead motorcycle battery and wondered if your car battery could save the day? It’s a common question that many riders face, especially when they’re in a hurry or far from help.**

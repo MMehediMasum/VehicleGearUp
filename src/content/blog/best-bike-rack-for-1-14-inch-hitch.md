@@ -1,10 +1,14 @@
 ---
-title: "Best Bike Rack for 1 1/4 Inch Hitch: Top Durable Picks Reviewed"
-description: "Choosing the best bike rack for a 1 1/4 inch hitch ensures safe and easy bike transport. This guide covers top racks for cars, SUVs, and trucks. A 1 1/4 inch hi"
+title: 'Best Bike Rack for 1 1/4 Inch Hitch: Top Durable Picks Reviewed'
+description: Choosing the best bike rack for a 1 1/4 inch hitch ensures safe and easy
+  bike transport. This guide covers top racks for cars, SUVs, and trucks. A 1 1/4
+  inch hi
 pubDate: 2025-11-15
-author: "herbertlangham"
-categories: ["Towing & Hauling"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-bike-rack-for-1-14-inch-hitch&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hitch Bike Racks
+heroImage: https://tse1.mm.bing.net/th?q=best-bike-rack-for-1-14-inch-hitch&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Choosing the best bike rack for a 1 1/4 inch hitch ensures safe and easy bike transport. This guide covers top racks for cars, SUVs, and trucks.**

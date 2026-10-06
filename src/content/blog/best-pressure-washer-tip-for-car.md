@@ -1,10 +1,14 @@
 ---
-title: "Best Pressure Washer Tip for Car: Top Nozzles for Ultimate Shine"
-description: "Choosing the best pressure washer tip for your car is key to a safe and effective wash. The right nozzle controls water pressure and spray pattern perfectly. Pr"
+title: 'Best Pressure Washer Tip for Car: Top Nozzles for Ultimate Shine'
+description: Choosing the best pressure washer tip for your car is key to a safe and
+  effective wash. The right nozzle controls water pressure and spray pattern perfectly.
+  Pr
 pubDate: 2026-07-03
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-pressure-washer-tip-for-car&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Detailing Equipment
+heroImage: https://tse1.mm.bing.net/th?q=best-pressure-washer-tip-for-car&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best pressure washer tip for your car is key to a safe and effective wash. The right nozzle controls water pressure and spray pattern perfectly.**

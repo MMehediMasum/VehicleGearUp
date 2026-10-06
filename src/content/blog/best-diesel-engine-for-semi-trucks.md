@@ -1,10 +1,14 @@
 ---
-title: "Best Diesel Engine for Semi Trucks: Top Diagnostic Tools & Jump Starters"
-description: "Choosing the best diesel engine for semi trucks boosts performance and reduces downtime. Reliable diagnostics and power tools keep trucks running smoothly on lo"
+title: 'Best Diesel Engine for Semi Trucks: Top Diagnostic Tools & Jump Starters'
+description: Choosing the best diesel engine for semi trucks boosts performance and
+  reduces downtime. Reliable diagnostics and power tools keep trucks running smoothly
+  on lo
 pubDate: 2025-09-22
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-diesel-engine-for-semi-trucks&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Carburetor and Fuel Injection Kits
+heroImage: https://tse1.mm.bing.net/th?q=best-diesel-engine-for-semi-trucks&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best diesel engine for semi trucks boosts performance and reduces downtime. Reliable diagnostics and power tools keep trucks running smoothly on long hauls.**

@@ -1,10 +1,14 @@
 ---
-title: "What are the Ford F150 Trim Levels: Ultimate Guide to Choose Right"
-description: "If you’re thinking about getting a Ford F150, you probably want to know which trim level suits your needs best. The F150 comes in several versions, each packed "
+title: 'What are the Ford F150 Trim Levels: Ultimate Guide to Choose Right'
+description: 'If you’re thinking about getting a Ford F150, you probably want to know
+  which trim level suits your needs best. The F150 comes in several versions, each
+  packed '
 pubDate: 2025-11-10
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-the-ford-f150-trim-levels&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Snow Plows
+heroImage: https://tse1.mm.bing.net/th?q=what-are-the-ford-f150-trim-levels&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **If you’re thinking about getting a Ford F150, you probably want to know which trim level suits your needs best. The F150 comes in several versions, each packed with different features, power options, and styles.**

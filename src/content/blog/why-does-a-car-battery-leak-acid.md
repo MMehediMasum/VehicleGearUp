@@ -1,10 +1,14 @@
 ---
-title: "Why Does a Car Battery Leak Acid: Causes, Dangers & Fixes"
-description: "Have you ever noticed a strange, sticky liquid under your car and wondered, “Why does a car battery leak acid?” This isn’t just a simple mess—it could be a warn"
+title: 'Why Does a Car Battery Leak Acid: Causes, Dangers & Fixes'
+description: Have you ever noticed a strange, sticky liquid under your car and wondered,
+  “Why does a car battery leak acid?” This isn’t just a simple mess—it could be a
+  warn
 pubDate: 2026-04-11
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-does-a-car-battery-leak-acid&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Why Batteries Keep Dying
+heroImage: https://tse1.mm.bing.net/th?q=why-does-a-car-battery-leak-acid&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever noticed a strange, sticky liquid under your car and wondered, “Why does a car battery leak acid?” This isn’t just a simple mess—it could be a warning sign that your vehicle needs immediate attention. Understanding why your battery leaks acid can save you from costly repairs and keep you safe on the road.**

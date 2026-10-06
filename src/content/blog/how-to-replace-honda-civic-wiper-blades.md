@@ -1,10 +1,14 @@
 ---
-title: "How to Replace Honda Civic Wiper Blades: Easy Step-by-Step Guide"
-description: "Your Honda Civic’s wiper blades are key to keeping your windshield clear and your driving safe, especially during rain or snow. But when was the last time you c"
+title: 'How to Replace Honda Civic Wiper Blades: Easy Step-by-Step Guide'
+description: Your Honda Civic’s wiper blades are key to keeping your windshield clear
+  and your driving safe, especially during rain or snow. But when was the last time
+  you c
 pubDate: 2026-05-14
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-replace-honda-civic-wiper-blades&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Best Wiper Blades
+heroImage: https://tse1.mm.bing.net/th?q=how-to-replace-honda-civic-wiper-blades&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Your Honda Civic’s wiper blades are key to keeping your windshield clear and your driving safe, especially during rain or snow. But when was the last time you checked if they still work well?**

@@ -1,10 +1,14 @@
 ---
-title: "Best Portable Car Lift for Home Garage: Heavy-Duty, Adjustable, Reliable"
-description: "Finding the best portable car lift for your home garage makes vehicle maintenance easier and safer. These lifts handle heavy loads and fit small spaces. Portabl"
+title: 'Best Portable Car Lift for Home Garage: Heavy-Duty, Adjustable, Reliable'
+description: Finding the best portable car lift for your home garage makes vehicle
+  maintenance easier and safer. These lifts handle heavy loads and fit small spaces.
+  Portabl
 pubDate: 2026-06-23
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-portable-car-lift-for-home-garage&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Garage Car Lifts
+heroImage: https://tse1.mm.bing.net/th?q=best-portable-car-lift-for-home-garage&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Finding the best portable car lift for your home garage makes vehicle maintenance easier and safer. These lifts handle heavy loads and fit small spaces.**

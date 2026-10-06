@@ -1,10 +1,14 @@
 ---
-title: "Best Coil Packs for 6.0 Vortec to Boost Your Engine Performance"
-description: "Choosing the best coil pack for your 6.0 Vortec engine boosts ignition and engine performance. Good coil packs ensure smooth starts and steady power delivery. A"
+title: Best Coil Packs for 6.0 Vortec to Boost Your Engine Performance
+description: Choosing the best coil pack for your 6.0 Vortec engine boosts ignition
+  and engine performance. Good coil packs ensure smooth starts and steady power delivery.
+  A
 pubDate: 2026-07-12
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-coil-packs-for-60-vortec&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Coil Packs and Ignition
+heroImage: https://tse1.mm.bing.net/th?q=best-coil-packs-for-60-vortec&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best coil pack for your 6.0 Vortec engine boosts ignition and engine performance. Good coil packs ensure smooth starts and steady power delivery.**

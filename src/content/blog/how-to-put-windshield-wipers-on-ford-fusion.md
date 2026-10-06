@@ -1,10 +1,14 @@
 ---
-title: "How to Put Windshield Wipers on Ford Fusion: Easy Step-by-Step Guide"
-description: "If your Ford Fusion’s windshield wipers aren’t working well, it’s time for a change. You might think putting new wipers on is tricky, but it’s easier than you e"
+title: 'How to Put Windshield Wipers on Ford Fusion: Easy Step-by-Step Guide'
+description: If your Ford Fusion’s windshield wipers aren’t working well, it’s time
+  for a change. You might think putting new wipers on is tricky, but it’s easier than
+  you e
 pubDate: 2025-09-19
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-put-windshield-wipers-on-ford-fusion&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Windshield Wipers
+heroImage: https://tse1.mm.bing.net/th?q=how-to-put-windshield-wipers-on-ford-fusion&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If your Ford Fusion’s windshield wipers aren’t working well, it’s time for a change. You might think putting new wipers on is tricky, but it’s easier than you expect.**

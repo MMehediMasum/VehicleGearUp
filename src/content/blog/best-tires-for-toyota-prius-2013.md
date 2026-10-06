@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Toyota Prius 2013: Top Picks for Ultimate Performance"
-description: "Choosing the best tires for your 2013 Toyota Prius ensures safety, comfort, and fuel efficiency. Good tires improve handling and extend tire life. The 2013 Priu"
+title: 'Best Tires for Toyota Prius 2013: Top Picks for Ultimate Performance'
+description: Choosing the best tires for your 2013 Toyota Prius ensures safety, comfort,
+  and fuel efficiency. Good tires improve handling and extend tire life. The 2013
+  Priu
 pubDate: 2025-12-23
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-toyota-prius-2013&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Hybrid Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-toyota-prius-2013&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best tires for your 2013 Toyota Prius ensures safety, comfort, and fuel efficiency. Good tires improve handling and extend tire life.**

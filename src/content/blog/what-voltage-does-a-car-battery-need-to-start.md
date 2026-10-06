@@ -1,10 +1,14 @@
 ---
-title: "What Voltage Does a Car Battery Need to Start: Essential Guide"
-description: "Have you ever turned your key, only to hear a slow click or nothing at all? Your car battery might be the culprit. But what voltage does a car battery actually "
+title: 'What Voltage Does a Car Battery Need to Start: Essential Guide'
+description: 'Have you ever turned your key, only to hear a slow click or nothing
+  at all? Your car battery might be the culprit. But what voltage does a car battery
+  actually '
 pubDate: 2025-10-20
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-voltage-does-a-car-battery-need-to-start&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Normal Battery Voltage
+heroImage: https://tse1.mm.bing.net/th?q=what-voltage-does-a-car-battery-need-to-start&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever turned your key, only to hear a slow click or nothing at all? Your car battery might be the culprit.**

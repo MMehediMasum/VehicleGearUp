@@ -1,10 +1,14 @@
 ---
-title: "How to Change Windshield Wipers Mazda Cx 5: Easy Step-by-Step Guide"
-description: "If your Mazda CX-5’s windshield wipers aren’t clearing the rain or debris like they used to, it’s time for a change. But don’t worry—you don’t need to spend mon"
+title: 'How to Change Windshield Wipers Mazda Cx 5: Easy Step-by-Step Guide'
+description: If your Mazda CX-5’s windshield wipers aren’t clearing the rain or debris
+  like they used to, it’s time for a change. But don’t worry—you don’t need to spend
+  mon
 pubDate: 2025-09-24
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-windshield-wipers-mazda-cx-5&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Windshield Wipers
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-windshield-wipers-mazda-cx-5&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If your Mazda CX-5’s windshield wipers aren’t clearing the rain or debris like they used to, it’s time for a change. But don’t worry—you don’t need to spend money at the shop or struggle with complicated instructions.**

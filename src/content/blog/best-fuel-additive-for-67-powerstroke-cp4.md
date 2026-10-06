@@ -1,10 +1,14 @@
 ---
-title: "Best Fuel Additive for 6.7 Powerstroke CP4: Top Picks and Benefits"
-description: "Choosing the best fuel additive for the 6.7 Powerstroke CP4 pump helps protect your engine and fuel system. Proper additives improve fuel flow and reduce wear o"
+title: 'Best Fuel Additive for 6.7 Powerstroke CP4: Top Picks and Benefits'
+description: Choosing the best fuel additive for the 6.7 Powerstroke CP4 pump helps
+  protect your engine and fuel system. Proper additives improve fuel flow and reduce
+  wear o
 pubDate: 2026-06-20
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-fuel-additive-for-67-powerstroke-cp4&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Diesel Fuel Filters and Additives
+heroImage: https://tse1.mm.bing.net/th?q=best-fuel-additive-for-67-powerstroke-cp4&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best fuel additive for the 6.7 Powerstroke CP4 pump helps protect your engine and fuel system. Proper additives improve fuel flow and reduce wear on key parts.**

@@ -1,10 +1,14 @@
 ---
-title: "When is the Best Time to Buy Car Tires: Ultimate Savings Guide"
-description: "Are you wondering when is the best time to buy car tires without breaking the bank? Choosing the right moment can save you a surprising amount of money and stre"
+title: 'When is the Best Time to Buy Car Tires: Ultimate Savings Guide'
+description: Are you wondering when is the best time to buy car tires without breaking
+  the bank? Choosing the right moment can save you a surprising amount of money and
+  stre
 pubDate: 2025-09-22
-author: "herbertlangham"
-categories: ["Car Buying & Ownership"]
-heroImage: "https://tse1.mm.bing.net/th?q=when-is-the-best-time-to-buy-car-tires&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tire Construction and Origin
+heroImage: https://tse1.mm.bing.net/th?q=when-is-the-best-time-to-buy-car-tires&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Are you wondering when is the best time to buy car tires without breaking the bank? Choosing the right moment can save you a surprising amount of money and stress.**

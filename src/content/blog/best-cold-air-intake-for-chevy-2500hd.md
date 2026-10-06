@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for Chevy 2500Hd to Boost Power & Performance"
-description: "Finding the best cold air intake for your Chevy 2500HD can improve engine power and fuel efficiency. Choosing the right system helps your truck breathe better a"
+title: Best Cold Air Intake for Chevy 2500Hd to Boost Power & Performance
+description: Finding the best cold air intake for your Chevy 2500HD can improve engine
+  power and fuel efficiency. Choosing the right system helps your truck breathe better
+  a
 pubDate: 2026-06-21
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-chevy-2500hd&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- GM Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-chevy-2500hd&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Finding the best cold air intake for your Chevy 2500HD can improve engine power and fuel efficiency. Choosing the right system helps your truck breathe better and perform stronger.**

@@ -1,10 +1,14 @@
 ---
-title: "Do Car Tires Lose Air in Cold Weather: Essential Facts Revealed"
-description: "Have you ever noticed your car tires feeling a bit flat when the temperature drops? You might wonder, “Do car tires lose air in cold weather?” The answer can af"
+title: 'Do Car Tires Lose Air in Cold Weather: Essential Facts Revealed'
+description: Have you ever noticed your car tires feeling a bit flat when the temperature
+  drops? You might wonder, “Do car tires lose air in cold weather?” The answer can
+  af
 pubDate: 2025-11-03
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-car-tires-lose-air-in-cold-weather&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tire Construction and Origin
+heroImage: https://tse1.mm.bing.net/th?q=do-car-tires-lose-air-in-cold-weather&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Have you ever noticed your car tires feeling a bit flat when the temperature drops? You might wonder, “Do car tires lose air in cold weather?” The answer can affect your safety and your wallet.**

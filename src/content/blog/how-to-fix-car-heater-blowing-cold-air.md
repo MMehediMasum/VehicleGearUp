@@ -1,10 +1,14 @@
 ---
-title: "How to Fix Car Heater Blowing Cold Air: Quick & Easy Solutions"
-description: "Is your car heater blowing cold air just when you need warmth the most? It’s frustrating and uncomfortable, especially on chilly mornings or long drives. But do"
+title: 'How to Fix Car Heater Blowing Cold Air: Quick & Easy Solutions'
+description: Is your car heater blowing cold air just when you need warmth the most?
+  It’s frustrating and uncomfortable, especially on chilly mornings or long drives.
+  But do
 pubDate: 2025-08-28
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-car-heater-blowing-cold-air&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Heater Not Working
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-car-heater-blowing-cold-air&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your car heater blowing cold air just when you need warmth the most? It’s frustrating and uncomfortable, especially on chilly mornings or long drives.**

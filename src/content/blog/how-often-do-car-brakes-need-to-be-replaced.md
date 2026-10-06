@@ -1,10 +1,14 @@
 ---
-title: "How Often Do Car Brakes Need to Be Replaced: Essential Guide"
-description: "Have you ever wondered how often your car brakes need to be replaced? Your brakes are one of the most important safety features on your vehicle. If they fail, i"
+title: 'How Often Do Car Brakes Need to Be Replaced: Essential Guide'
+description: Have you ever wondered how often your car brakes need to be replaced?
+  Your brakes are one of the most important safety features on your vehicle. If they
+  fail, i
 pubDate: 2026-05-14
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-often-do-car-brakes-need-to-be-replaced&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Brake Replacement and Rotors
+heroImage: https://tse1.mm.bing.net/th?q=how-often-do-car-brakes-need-to-be-replaced&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever wondered how often your car brakes need to be replaced? Your brakes are one of the most important safety features on your vehicle.**

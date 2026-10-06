@@ -1,10 +1,14 @@
 ---
-title: "Best Dirt Bike Tire for Trail Riding: Top Knobby Tires for Tough Terrain"
-description: "Choosing the best dirt bike tire for trail riding boosts your bike’s grip and control on rough paths. Tires designed for trails handle dirt, rocks, and mud bett"
+title: 'Best Dirt Bike Tire for Trail Riding: Top Knobby Tires for Tough Terrain'
+description: Choosing the best dirt bike tire for trail riding boosts your bike’s
+  grip and control on rough paths. Tires designed for trails handle dirt, rocks, and
+  mud bett
 pubDate: 2026-01-09
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-dirt-bike-tire-for-trail-riding&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-dirt-bike-tire-for-trail-riding&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best dirt bike tire for trail riding boosts your bike’s grip and control on rough paths. Tires designed for trails handle dirt, rocks, and mud better than regular tires.**

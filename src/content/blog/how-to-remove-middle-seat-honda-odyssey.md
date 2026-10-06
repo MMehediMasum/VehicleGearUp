@@ -1,10 +1,14 @@
 ---
-title: "How to Remove Middle Seat Honda Odyssey: Easy Step-by-Step Guide"
-description: "If you own a Honda Odyssey, you know how important it is to have flexible seating options. But sometimes, the middle seat can feel cramped or just get in the wa"
+title: 'How to Remove Middle Seat Honda Odyssey: Easy Step-by-Step Guide'
+description: If you own a Honda Odyssey, you know how important it is to have flexible
+  seating options. But sometimes, the middle seat can feel cramped or just get in
+  the wa
 pubDate: 2026-05-27
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-remove-middle-seat-honda-odyssey&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Features and Fixes
+heroImage: https://tse1.mm.bing.net/th?q=how-to-remove-middle-seat-honda-odyssey&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If you own a Honda Odyssey, you know how important it is to have flexible seating options. But sometimes, the middle seat can feel cramped or just get in the way.**

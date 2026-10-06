@@ -1,10 +1,14 @@
 ---
-title: "How to Tighten a Visor on a 2012 Toyota Rav4: Easy Step-by-Step Guide"
-description: "Is your 2012 Toyota RAV4 visor feeling loose or wobbly? A loose visor can be distracting and even dangerous while driving. But don’t worry—you don’t need to vis"
+title: 'How to Tighten a Visor on a 2012 Toyota Rav4: Easy Step-by-Step Guide'
+description: Is your 2012 Toyota RAV4 visor feeling loose or wobbly? A loose visor
+  can be distracting and even dangerous while driving. But don’t worry—you don’t need
+  to vis
 pubDate: 2026-02-08
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-tighten-a-visor-on-a-2012-toyota-rav4&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Sun Shades and Visors
+heroImage: https://tse1.mm.bing.net/th?q=how-to-tighten-a-visor-on-a-2012-toyota-rav4&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Is your 2012 Toyota RAV4 visor feeling loose or wobbly? A loose visor can be distracting and even dangerous while driving.**

@@ -1,10 +1,14 @@
 ---
-title: "Where is the Battery in a Dodge Durango: Quick Location Guide"
-description: "Are you having trouble finding the battery in your Dodge Durango? Knowing exactly where your battery is can save you time and frustration, especially if your ve"
+title: 'Where is the Battery in a Dodge Durango: Quick Location Guide'
+description: Are you having trouble finding the battery in your Dodge Durango? Knowing
+  exactly where your battery is can save you time and frustration, especially if your
+  ve
 pubDate: 2025-09-07
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-is-the-battery-in-a-dodge-durango&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Finding the Battery Location
+heroImage: https://tse1.mm.bing.net/th?q=where-is-the-battery-in-a-dodge-durango&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you having trouble finding the battery in your Dodge Durango? Knowing exactly where your battery is can save you time and frustration, especially if your vehicle won’t start or you need a quick jump-start.**

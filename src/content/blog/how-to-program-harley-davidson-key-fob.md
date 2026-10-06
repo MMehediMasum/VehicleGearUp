@@ -1,10 +1,14 @@
 ---
-title: "How to Program Harley Davidson Key Fob: Easy Step-by-Step Guide"
-description: "If you own a Harley Davidson, you know how important your key fob is for quick and easy access to your bike. But what happens when you get a new fob or need to "
+title: 'How to Program Harley Davidson Key Fob: Easy Step-by-Step Guide'
+description: 'If you own a Harley Davidson, you know how important your key fob is
+  for quick and easy access to your bike. But what happens when you get a new fob
+  or need to '
 pubDate: 2026-02-05
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-program-harley-davidson-key-fob&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Maintenance Basics
+heroImage: https://tse1.mm.bing.net/th?q=how-to-program-harley-davidson-key-fob&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **If you own a Harley Davidson, you know how important your key fob is for quick and easy access to your bike. But what happens when you get a new fob or need to replace the old one?**

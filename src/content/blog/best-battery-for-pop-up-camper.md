@@ -1,10 +1,14 @@
 ---
-title: "Best Battery for Pop Up Camper: Top Durable and Maintenance-Free Picks"
-description: "Choosing the best battery for your pop up camper ensures reliable power on every trip. A good battery keeps your lights, appliances, and devices running smoothl"
+title: 'Best Battery for Pop Up Camper: Top Durable and Maintenance-Free Picks'
+description: Choosing the best battery for your pop up camper ensures reliable power
+  on every trip. A good battery keeps your lights, appliances, and devices running
+  smoothl
 pubDate: 2026-07-10
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-battery-for-pop-up-camper&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hitch Bike Racks
+heroImage: https://tse1.mm.bing.net/th?q=best-battery-for-pop-up-camper&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Choosing the best battery for your pop up camper ensures reliable power on every trip. A good battery keeps your lights, appliances, and devices running smoothly.**

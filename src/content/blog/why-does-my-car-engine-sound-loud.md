@@ -1,10 +1,14 @@
 ---
-title: "Why Does My Car Engine Sound Loud: Top Causes & Easy Fixes"
-description: "Have you noticed your car engine sounding louder than usual? It can be alarming and confusing when your familiar ride suddenly makes strange noises. You might w"
+title: 'Why Does My Car Engine Sound Loud: Top Causes & Easy Fixes'
+description: Have you noticed your car engine sounding louder than usual? It can be
+  alarming and confusing when your familiar ride suddenly makes strange noises. You
+  might w
 pubDate: 2026-04-26
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-does-my-car-engine-sound-loud&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Engine Noise and Heat
+heroImage: https://tse1.mm.bing.net/th?q=why-does-my-car-engine-sound-loud&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you noticed your car engine sounding louder than usual? It can be alarming and confusing when your familiar ride suddenly makes strange noises.**

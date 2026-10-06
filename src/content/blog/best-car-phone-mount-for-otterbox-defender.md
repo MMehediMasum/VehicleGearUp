@@ -1,10 +1,15 @@
 ---
-title: "Best Car Phone Mount for Otterbox Defender: Secure, Magnetic, and Versatile Options"
-description: "Finding the best car phone mount for your OtterBox Defender is essential for safe driving. A good mount holds your phone firmly and fits bulky cases like OtterB"
+title: 'Best Car Phone Mount for Otterbox Defender: Secure, Magnetic, and Versatile
+  Options'
+description: Finding the best car phone mount for your OtterBox Defender is essential
+  for safe driving. A good mount holds your phone firmly and fits bulky cases like
+  OtterB
 pubDate: 2026-06-28
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-phone-mount-for-otterbox-defender&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Phone Mounts and Adapters
+heroImage: https://tse1.mm.bing.net/th?q=best-car-phone-mount-for-otterbox-defender&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Finding the best car phone mount for your OtterBox Defender is essential for safe driving. A good mount holds your phone firmly and fits bulky cases like OtterBox.**

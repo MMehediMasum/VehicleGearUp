@@ -1,10 +1,14 @@
 ---
-title: "What is the Battery Warranty for Hyundai Kona Electric: Ultimate Guide"
-description: "Are you thinking about owning a Hyundai Kona Electric but wondering how long the battery warranty lasts? Your electric vehicle’s battery is a big investment, an"
+title: 'What is the Battery Warranty for Hyundai Kona Electric: Ultimate Guide'
+description: Are you thinking about owning a Hyundai Kona Electric but wondering how
+  long the battery warranty lasts? Your electric vehicle’s battery is a big investment,
+  an
 pubDate: 2025-10-14
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-battery-warranty-for-hyundai-kona-electric&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Hybrid Tires
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-battery-warranty-for-hyundai-kona-electric&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you thinking about owning a Hyundai Kona Electric but wondering how long the battery warranty lasts? Your electric vehicle’s battery is a big investment, and knowing the warranty details can give you peace of mind.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for F150 20 Inch: Top Durable and Stylish Wheel Sets"
-description: "Choosing the best tires for your F150 20 inch wheels improves safety and performance. Quality tires fit perfectly and handle various road conditions well. F150 "
+title: 'Best Tires for F150 20 Inch: Top Durable and Stylish Wheel Sets'
+description: 'Choosing the best tires for your F150 20 inch wheels improves safety
+  and performance. Quality tires fit perfectly and handle various road conditions
+  well. F150 '
 pubDate: 2025-12-30
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-f150-20-inch&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Car and Truck Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-f150-20-inch&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your F150 20 inch wheels improves safety and performance. Quality tires fit perfectly and handle various road conditions well.**

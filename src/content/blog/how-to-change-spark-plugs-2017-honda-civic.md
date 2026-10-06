@@ -1,10 +1,14 @@
 ---
-title: "How to Change Spark Plugs 2017 Honda Civic: Easy Step-by-Step Guide"
-description: "If you own a 2017 Honda Civic, knowing how to change your spark plugs can save you time and money. Spark plugs play a key role in your car’s performance, and wo"
+title: 'How to Change Spark Plugs 2017 Honda Civic: Easy Step-by-Step Guide'
+description: If you own a 2017 Honda Civic, knowing how to change your spark plugs
+  can save you time and money. Spark plugs play a key role in your car’s performance,
+  and wo
 pubDate: 2026-02-12
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-spark-plugs-2017-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spark Plug Maintenance
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-spark-plugs-2017-honda-civic&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **If you own a 2017 Honda Civic, knowing how to change your spark plugs can save you time and money. Spark plugs play a key role in your car’s performance, and worn-out plugs can cause rough idling, poor fuel efficiency, or trouble starting your engine.**

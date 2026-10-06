@@ -1,10 +1,14 @@
 ---
-title: "How to Connect Subwoofer to Car Stereo Without Amp: Easy Guide"
-description: "Are you looking to boost your car’s sound system but don’t have an amplifier? Connecting a subwoofer to your car stereo without an amp might sound tricky, but i"
+title: 'How to Connect Subwoofer to Car Stereo Without Amp: Easy Guide'
+description: Are you looking to boost your car’s sound system but don’t have an amplifier?
+  Connecting a subwoofer to your car stereo without an amp might sound tricky, but
+  i
 pubDate: 2026-05-24
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-connect-subwoofer-to-car-stereo-without-amp&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Stereo Installation Help
+heroImage: https://tse1.mm.bing.net/th?q=how-to-connect-subwoofer-to-car-stereo-without-amp&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are you looking to boost your car’s sound system but don’t have an amplifier? Connecting a subwoofer to your car stereo without an amp might sound tricky, but it’s simpler than you think.**

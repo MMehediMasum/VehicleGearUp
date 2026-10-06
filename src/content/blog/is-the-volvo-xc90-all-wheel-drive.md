@@ -1,10 +1,14 @@
 ---
-title: "Is the Volvo Xc90 All Wheel Drive: Ultimate Traction Explained"
-description: "Are you wondering if the Volvo XC90 comes with all-wheel drive? Whether you face rainy roads, snowy streets, or rough terrain, knowing how your SUV handles can "
+title: 'Is the Volvo Xc90 All Wheel Drive: Ultimate Traction Explained'
+description: 'Are you wondering if the Volvo XC90 comes with all-wheel drive? Whether
+  you face rainy roads, snowy streets, or rough terrain, knowing how your SUV handles
+  can '
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-the-volvo-xc90-all-wheel-drive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- All Wheel Drive Questions
+heroImage: https://tse1.mm.bing.net/th?q=is-the-volvo-xc90-all-wheel-drive&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you wondering if the Volvo XC90 comes with all-wheel drive? Whether you face rainy roads, snowy streets, or rough terrain, knowing how your SUV handles can make a big difference.**

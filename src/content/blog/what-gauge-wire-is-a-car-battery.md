@@ -1,10 +1,13 @@
 ---
-title: "What Gauge Wire is a Car Battery: Essential Guide for Safety & Performance"
-description: "When it comes to your car’s battery, choosing the right wire gauge is more important than you might think. Using the wrong size wire can cause poor performance,"
+title: 'What Gauge Wire is a Car Battery: Essential Guide for Safety & Performance'
+description: When it comes to your car’s battery, choosing the right wire gauge is
+  more important than you might think. Using the wrong size wire can cause poor performance,
 pubDate: 2026-03-28
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-gauge-wire-is-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Price and Installation
+heroImage: https://tse1.mm.bing.net/th?q=what-gauge-wire-is-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **When it comes to your car’s battery, choosing the right wire gauge is more important than you might think. Using the wrong size wire can cause poor performance, damage, or even safety issues.**

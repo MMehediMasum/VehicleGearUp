@@ -1,10 +1,14 @@
 ---
-title: "Why is My Honda Civic Not Blowing Cold Air: Top Causes & Fixes"
-description: "Is your Honda Civic’s air conditioner failing to blow cold air just when you need it most? It can be frustrating and uncomfortable, especially on hot days. You "
+title: 'Why is My Honda Civic Not Blowing Cold Air: Top Causes & Fixes'
+description: 'Is your Honda Civic’s air conditioner failing to blow cold air just
+  when you need it most? It can be frustrating and uncomfortable, especially on hot
+  days. You '
 pubDate: 2026-02-23
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-is-my-honda-civic-not-blowing-cold-air&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Everyday Car Questions
+heroImage: https://tse1.mm.bing.net/th?q=why-is-my-honda-civic-not-blowing-cold-air&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Is your Honda Civic’s air conditioner failing to blow cold air just when you need it most? It can be frustrating and uncomfortable, especially on hot days.**

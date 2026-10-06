@@ -1,10 +1,14 @@
 ---
-title: "How to Replace Toyota Corolla Windshield Wipers: Easy Step-by-Step Guide"
-description: "Are your Toyota Corolla windshield wipers leaving streaks or missing spots? Clear visibility is crucial for your safety while driving, especially during rain or"
+title: 'How to Replace Toyota Corolla Windshield Wipers: Easy Step-by-Step Guide'
+description: Are your Toyota Corolla windshield wipers leaving streaks or missing
+  spots? Clear visibility is crucial for your safety while driving, especially during
+  rain or
 pubDate: 2026-04-30
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-replace-toyota-corolla-windshield-wipers&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Windshield Wipers
+heroImage: https://tse1.mm.bing.net/th?q=how-to-replace-toyota-corolla-windshield-wipers&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Are your Toyota Corolla windshield wipers leaving streaks or missing spots? Clear visibility is crucial for your safety while driving, especially during rain or snow.**

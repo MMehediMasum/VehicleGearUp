@@ -1,10 +1,14 @@
 ---
-title: "Best Garage Air Compressor for Car Tires: Top Quiet & Fast Inflators"
-description: "Choosing the best garage air compressor for car tires saves time and keeps your vehicle safe. A reliable air compressor inflates tires quickly and accurately. M"
+title: 'Best Garage Air Compressor for Car Tires: Top Quiet & Fast Inflators'
+description: Choosing the best garage air compressor for car tires saves time and
+  keeps your vehicle safe. A reliable air compressor inflates tires quickly and accurately.
+  M
 pubDate: 2026-01-05
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-garage-air-compressor-for-car-tires&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tire Inflators and Compressors
+heroImage: https://tse1.mm.bing.net/th?q=best-garage-air-compressor-for-car-tires&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best garage air compressor for car tires saves time and keeps your vehicle safe. A reliable air compressor inflates tires quickly and accurately.**

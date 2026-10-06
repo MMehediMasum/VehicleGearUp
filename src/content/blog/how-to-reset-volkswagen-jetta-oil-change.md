@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Volkswagen Jetta Oil Change: Easy Step-by-Step Guide"
-description: "If you own a Volkswagen Jetta, you know how important it is to keep up with regular oil changes. But after changing your oil, do you know how to reset the oil c"
+title: 'How to Reset Volkswagen Jetta Oil Change: Easy Step-by-Step Guide'
+description: If you own a Volkswagen Jetta, you know how important it is to keep up
+  with regular oil changes. But after changing your oil, do you know how to reset
+  the oil c
 pubDate: 2026-05-18
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-volkswagen-jetta-oil-change&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Oil Change Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-volkswagen-jetta-oil-change&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a Volkswagen Jetta, you know how important it is to keep up with regular oil changes. But after changing your oil, do you know how to reset the oil change light?**

@@ -1,10 +1,14 @@
 ---
-title: "How to Turn off Brake Hold Honda Civic: Quick & Easy Guide"
-description: "If you drive a Honda Civic, you’ve probably noticed the Brake Hold feature. It’s designed to make stop-and-go traffic easier by holding the brakes for you. But "
+title: 'How to Turn off Brake Hold Honda Civic: Quick & Easy Guide'
+description: 'If you drive a Honda Civic, you’ve probably noticed the Brake Hold feature.
+  It’s designed to make stop-and-go traffic easier by holding the brakes for you.
+  But '
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-brake-hold-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Parking Brake Help
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-brake-hold-honda-civic&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you drive a Honda Civic, you’ve probably noticed the Brake Hold feature. It’s designed to make stop-and-go traffic easier by holding the brakes for you.**

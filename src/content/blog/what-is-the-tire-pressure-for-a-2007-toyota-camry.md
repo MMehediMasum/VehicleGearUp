@@ -1,10 +1,14 @@
 ---
-title: "What is the Tire Pressure for a 2007 Toyota Camry: Essential Guide"
-description: "Are you unsure about the right tire pressure for your 2007 Toyota Camry? Keeping your tires properly inflated is one of the easiest ways to improve your car’s s"
+title: 'What is the Tire Pressure for a 2007 Toyota Camry: Essential Guide'
+description: Are you unsure about the right tire pressure for your 2007 Toyota Camry?
+  Keeping your tires properly inflated is one of the easiest ways to improve your
+  car’s s
 pubDate: 2026-02-01
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-tire-pressure-for-a-2007-toyota-camry&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Tire Pressure Light
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-tire-pressure-for-a-2007-toyota-camry&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Are you unsure about the right tire pressure for your 2007 Toyota Camry? Keeping your tires properly inflated is one of the easiest ways to improve your car’s safety, fuel efficiency, and overall performance.**

@@ -1,10 +1,14 @@
 ---
-title: "Does Costco Install Car Batteries for Free: Truth Revealed!"
-description: "Are you wondering if Costco installs car batteries for free? If you’re thinking about buying a new battery for your vehicle, knowing whether installation comes "
+title: 'Does Costco Install Car Batteries for Free: Truth Revealed!'
+description: 'Are you wondering if Costco installs car batteries for free? If you’re
+  thinking about buying a new battery for your vehicle, knowing whether installation
+  comes '
 pubDate: 2026-01-19
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-costco-install-car-batteries-for-free&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Retailers and Returns
+heroImage: https://tse1.mm.bing.net/th?q=does-costco-install-car-batteries-for-free&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you wondering if Costco installs car batteries for free? If you’re thinking about buying a new battery for your vehicle, knowing whether installation comes at no extra cost can save you time and money.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Outdoor Car Cover for C6 Corvette: Ultimate Weather Protection Guide"
-description: "Protecting your C6 Corvette outdoors requires a reliable car cover that fits perfectly and shields against all weather. Choosing the best cover keeps your car s"
+title: 'Best Outdoor Car Cover for C6 Corvette: Ultimate Weather Protection Guide'
+description: Protecting your C6 Corvette outdoors requires a reliable car cover that
+  fits perfectly and shields against all weather. Choosing the best cover keeps your
+  car s
 pubDate: 2026-07-16
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-outdoor-car-cover-for-c6-corvette&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Covers
+heroImage: https://tse1.mm.bing.net/th?q=best-outdoor-car-cover-for-c6-corvette&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Protecting your C6 Corvette outdoors requires a reliable car cover that fits perfectly and shields against all weather. Choosing the best cover keeps your car safe from rain, sun, dust, and snow.**

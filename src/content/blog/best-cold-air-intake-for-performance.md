@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for Performance: Boost Horsepower and Torque Easily"
-description: "Choosing the best cold air intake boosts your engine’s power and efficiency. These systems improve airflow for better performance and fuel economy. A cold air i"
+title: 'Best Cold Air Intake for Performance: Boost Horsepower and Torque Easily'
+description: Choosing the best cold air intake boosts your engine’s power and efficiency.
+  These systems improve airflow for better performance and fuel economy. A cold air
+  i
 pubDate: 2026-06-19
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-performance&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Engine Specific Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-performance&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best cold air intake boosts your engine’s power and efficiency. These systems improve airflow for better performance and fuel economy.**

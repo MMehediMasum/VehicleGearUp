@@ -1,10 +1,14 @@
 ---
-title: "What is a Normal Temperature for Car Coolant: Essential Guide"
-description: "Have you ever wondered what the normal temperature for your car’s coolant should be? Knowing this simple fact can save you from costly repairs and keep your eng"
+title: 'What is a Normal Temperature for Car Coolant: Essential Guide'
+description: Have you ever wondered what the normal temperature for your car’s coolant
+  should be? Knowing this simple fact can save you from costly repairs and keep your
+  eng
 pubDate: 2025-09-03
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-a-normal-temperature-for-car-coolant&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Coolant and AC Recharge
+heroImage: https://tse1.mm.bing.net/th?q=what-is-a-normal-temperature-for-car-coolant&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever wondered what the normal temperature for your car’s coolant should be? Knowing this simple fact can save you from costly repairs and keep your engine running smoothly.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Lithium Battery for Car Audio: Top Powerful Picks for Ultimate Sound"
-description: "Choosing the best lithium battery for car audio ensures clear sound and reliable power. The right battery supports high wattage and long listening sessions. Car"
+title: 'Best Lithium Battery for Car Audio: Top Powerful Picks for Ultimate Sound'
+description: Choosing the best lithium battery for car audio ensures clear sound and
+  reliable power. The right battery supports high wattage and long listening sessions.
+  Car
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lithium-battery-for-car-audio&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Choosing the Best Battery
+heroImage: https://tse1.mm.bing.net/th?q=best-lithium-battery-for-car-audio&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Choosing the best lithium battery for car audio ensures clear sound and reliable power. The right battery supports high wattage and long listening sessions.**

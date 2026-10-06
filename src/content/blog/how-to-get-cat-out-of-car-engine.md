@@ -1,10 +1,14 @@
 ---
-title: "How to Get Cat Out of Car Engine: Quick & Safe Rescue Tips"
-description: "Have you ever heard a faint meow coming from under your car’s hood? If your cat has crawled into your car engine, you’re not alone—and you need to act fast. Cat"
+title: 'How to Get Cat Out of Car Engine: Quick & Safe Rescue Tips'
+description: Have you ever heard a faint meow coming from under your car’s hood? If
+  your cat has crawled into your car engine, you’re not alone—and you need to act
+  fast. Cat
 pubDate: 2025-08-30
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-get-cat-out-of-car-engine&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Keeping Pests Out of Engines
+heroImage: https://tse1.mm.bing.net/th?q=how-to-get-cat-out-of-car-engine&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever heard a faint meow coming from under your car’s hood? If your cat has crawled into your car engine, you’re not alone—and you need to act fast.**

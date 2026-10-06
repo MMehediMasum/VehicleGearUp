@@ -1,10 +1,14 @@
 ---
-title: "How to Connect Iphone With Aux on Harley Davidson: Easy Step-by-Step Guide"
-description: "You want to enjoy your favorite music or podcasts while riding your Harley Davidson, but connecting your iPhone to the bike’s aux input feels confusing. Don’t w"
+title: 'How to Connect Iphone With Aux on Harley Davidson: Easy Step-by-Step Guide'
+description: You want to enjoy your favorite music or podcasts while riding your Harley
+  Davidson, but connecting your iPhone to the bike’s aux input feels confusing. Don’t
+  w
 pubDate: 2025-12-20
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-connect-iphone-with-aux-on-harley-davidson&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Maintenance Basics
+heroImage: https://tse1.mm.bing.net/th?q=how-to-connect-iphone-with-aux-on-harley-davidson&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **You want to enjoy your favorite music or podcasts while riding your Harley Davidson, but connecting your iPhone to the bike’s aux input feels confusing. Don’t worry—you’re not alone.**

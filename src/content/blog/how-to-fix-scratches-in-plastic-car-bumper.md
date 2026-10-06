@@ -1,10 +1,14 @@
 ---
-title: "How to Fix Scratches in Plastic Car Bumper: Easy DIY Tips"
-description: "Have you noticed scratches on your plastic car bumper that make your vehicle look worn out? Those marks can be frustrating, but fixing them is easier than you m"
+title: 'How to Fix Scratches in Plastic Car Bumper: Easy DIY Tips'
+description: Have you noticed scratches on your plastic car bumper that make your
+  vehicle look worn out? Those marks can be frustrating, but fixing them is easier
+  than you m
 pubDate: 2025-11-17
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-scratches-in-plastic-car-bumper&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Bumper Dent and Scratch Repair
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-scratches-in-plastic-car-bumper&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you noticed scratches on your plastic car bumper that make your vehicle look worn out? Those marks can be frustrating, but fixing them is easier than you might think.**

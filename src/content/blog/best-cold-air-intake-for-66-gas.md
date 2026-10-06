@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for 6.6 Gas: Top Performance Boosting Picks"
-description: "Finding the best cold air intake for your 6.6 gas engine boosts power and efficiency. This guide covers top options for Chevy, GMC, and Ford trucks. Cold air in"
+title: 'Best Cold Air Intake for 6.6 Gas: Top Performance Boosting Picks'
+description: Finding the best cold air intake for your 6.6 gas engine boosts power
+  and efficiency. This guide covers top options for Chevy, GMC, and Ford trucks. Cold
+  air in
 pubDate: 2025-11-14
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-66-gas&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Engine Specific Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-66-gas&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Finding the best cold air intake for your 6.6 gas engine boosts power and efficiency. This guide covers top options for Chevy, GMC, and Ford trucks.**

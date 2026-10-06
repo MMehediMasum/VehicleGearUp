@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Honda Rancher 420: Top ATV Tires for Ultimate Performance"
-description: "Choosing the best tires for your Honda Rancher 420 improves ride quality and off-road performance. The right tires boost traction, durability, and safety on all"
+title: 'Best Tires for Honda Rancher 420: Top ATV Tires for Ultimate Performance'
+description: Choosing the best tires for your Honda Rancher 420 improves ride quality
+  and off-road performance. The right tires boost traction, durability, and safety
+  on all
 pubDate: 2025-12-30
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-honda-rancher-420&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- ATV Tires and Speed
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-honda-rancher-420&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best tires for your Honda Rancher 420 improves ride quality and off-road performance. The right tires boost traction, durability, and safety on all terrains.**

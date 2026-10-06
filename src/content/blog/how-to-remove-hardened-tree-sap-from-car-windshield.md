@@ -1,10 +1,13 @@
 ---
-title: "How to Remove Hardened Tree Sap from Car Windshield: Easy & Fast Tips"
-description: "Have you ever looked out your car windshield only to find stubborn, hardened tree sap blocking your view? It’s frustrating, messy, and can even damage your glas"
+title: 'How to Remove Hardened Tree Sap from Car Windshield: Easy & Fast Tips'
+description: Have you ever looked out your car windshield only to find stubborn, hardened
+  tree sap blocking your view? It’s frustrating, messy, and can even damage your glas
 pubDate: 2025-11-06
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-remove-hardened-tree-sap-from-car-windshield&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Windshield Sap and Scratches
+heroImage: https://tse1.mm.bing.net/th?q=how-to-remove-hardened-tree-sap-from-car-windshield&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever looked out your car windshield only to find stubborn, hardened tree sap blocking your view? It’s frustrating, messy, and can even damage your glass if left untreated.**

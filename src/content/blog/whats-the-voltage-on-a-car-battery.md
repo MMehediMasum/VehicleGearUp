@@ -1,10 +1,14 @@
 ---
-title: "What'S the Voltage on a Car Battery: Key Facts You Must Know"
-description: "Have you ever wondered what the voltage on a car battery really means? Understanding this simple number can save you from unexpected breakdowns and costly repai"
+title: 'What''S the Voltage on a Car Battery: Key Facts You Must Know'
+description: Have you ever wondered what the voltage on a car battery really means?
+  Understanding this simple number can save you from unexpected breakdowns and costly
+  repai
 pubDate: 2026-04-03
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=whats-the-voltage-on-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Normal Battery Voltage
+heroImage: https://tse1.mm.bing.net/th?q=whats-the-voltage-on-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered what the voltage on a car battery really means? Understanding this simple number can save you from unexpected breakdowns and costly repairs.**

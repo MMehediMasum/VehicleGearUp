@@ -1,10 +1,14 @@
 ---
-title: "Do Car Washes Close When It'S Cold: What You Need to Know"
-description: "Have you ever wondered if car washes shut down when the temperature drops? You might be surprised to learn that cold weather can change how and when car washes "
+title: 'Do Car Washes Close When It''S Cold: What You Need to Know'
+description: 'Have you ever wondered if car washes shut down when the temperature
+  drops? You might be surprised to learn that cold weather can change how and when
+  car washes '
 pubDate: 2025-11-16
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-car-washes-close-when-its-cold&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Do Car Washes Damage Paint
+heroImage: https://tse1.mm.bing.net/th?q=do-car-washes-close-when-its-cold&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever wondered if car washes shut down when the temperature drops? You might be surprised to learn that cold weather can change how and when car washes operate.**

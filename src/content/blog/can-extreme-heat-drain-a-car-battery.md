@@ -1,10 +1,14 @@
 ---
-title: "Can Extreme Heat Drain a Car Battery? Shocking Truth Revealed"
-description: "Have you ever wondered why your car battery seems to die faster during a heatwave? You might think cold weather is the main enemy, but extreme heat can also tak"
+title: Can Extreme Heat Drain a Car Battery? Shocking Truth Revealed
+description: Have you ever wondered why your car battery seems to die faster during
+  a heatwave? You might think cold weather is the main enemy, but extreme heat can
+  also tak
 pubDate: 2026-03-27
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-extreme-heat-drain-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Cold Weather Battery Drain
+heroImage: https://tse1.mm.bing.net/th?q=can-extreme-heat-drain-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered why your car battery seems to die faster during a heatwave? You might think cold weather is the main enemy, but extreme heat can also take a serious toll on your battery.**

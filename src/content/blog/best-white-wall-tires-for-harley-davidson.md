@@ -1,10 +1,14 @@
 ---
-title: "Best White Wall Tires for Harley Davidson: Top Picks for Classic Style"
-description: "White wall tires add classic style and a vintage look to Harley Davidson motorcycles. Choosing the right tire ensures safety, durability, and smooth rides. Harl"
+title: 'Best White Wall Tires for Harley Davidson: Top Picks for Classic Style'
+description: White wall tires add classic style and a vintage look to Harley Davidson
+  motorcycles. Choosing the right tire ensures safety, durability, and smooth rides.
+  Harl
 pubDate: 2025-10-25
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-white-wall-tires-for-harley-davidson&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-white-wall-tires-for-harley-davidson&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **White wall tires add classic style and a vintage look to Harley Davidson motorcycles. Choosing the right tire ensures safety, durability, and smooth rides.**

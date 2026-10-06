@@ -1,10 +1,14 @@
 ---
-title: "How to Remove Water Spots from Car Windshield: Easy & Effective Tips"
-description: "Water spots on your car windshield can be more than just an eyesore—they can block your view and make driving dangerous. If you’ve noticed those stubborn marks "
+title: 'How to Remove Water Spots from Car Windshield: Easy & Effective Tips'
+description: 'Water spots on your car windshield can be more than just an eyesore—they
+  can block your view and make driving dangerous. If you’ve noticed those stubborn
+  marks '
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-remove-water-spots-from-car-windshield&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Water Spot Removal
+heroImage: https://tse1.mm.bing.net/th?q=how-to-remove-water-spots-from-car-windshield&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Water spots on your car windshield can be more than just an eyesore—they can block your view and make driving dangerous. If you’ve noticed those stubborn marks that won’t wash away with regular cleaning, you’re not alone.**

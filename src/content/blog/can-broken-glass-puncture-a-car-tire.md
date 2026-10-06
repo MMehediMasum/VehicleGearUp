@@ -1,10 +1,14 @@
 ---
-title: "Can Broken Glass Puncture a Car Tire? Shocking Truth Revealed!"
-description: "Have you ever wondered if stepping on broken glass could actually cause a flat tire? It’s a common fear for many drivers, especially after a long trip or a nigh"
+title: Can Broken Glass Puncture a Car Tire? Shocking Truth Revealed!
+description: Have you ever wondered if stepping on broken glass could actually cause
+  a flat tire? It’s a common fear for many drivers, especially after a long trip or
+  a nigh
 pubDate: 2025-12-16
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-broken-glass-puncture-a-car-tire&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tire Age Pressure and Size
+heroImage: https://tse1.mm.bing.net/th?q=can-broken-glass-puncture-a-car-tire&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Have you ever wondered if stepping on broken glass could actually cause a flat tire? It’s a common fear for many drivers, especially after a long trip or a night out.**

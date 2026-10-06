@@ -1,10 +1,14 @@
 ---
-title: "Best Motorcycle Boots for Street Riding: Top Durable and Stylish Picks"
-description: "Choosing the best motorcycle boots for street riding ensures safety and comfort on every ride. Proper boots protect your feet and improve control while riding. "
+title: 'Best Motorcycle Boots for Street Riding: Top Durable and Stylish Picks'
+description: 'Choosing the best motorcycle boots for street riding ensures safety
+  and comfort on every ride. Proper boots protect your feet and improve control while
+  riding. '
 pubDate: 2026-01-13
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-motorcycle-boots-for-street-riding&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Helmets and Boots
+heroImage: https://tse1.mm.bing.net/th?q=best-motorcycle-boots-for-street-riding&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best motorcycle boots for street riding ensures safety and comfort on every ride. Proper boots protect your feet and improve control while riding.**

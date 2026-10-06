@@ -1,10 +1,14 @@
 ---
-title: "Best Soap And Wax for Cars: Top Picks for Ultimate Shine and Protection"
-description: "Choosing the best soap and wax keeps your car clean and shiny longer. Quality products protect your paint and make washing easier. Car care requires the right s"
+title: 'Best Soap And Wax for Cars: Top Picks for Ultimate Shine and Protection'
+description: Choosing the best soap and wax keeps your car clean and shiny longer.
+  Quality products protect your paint and make washing easier. Car care requires the
+  right s
 pubDate: 2026-07-04
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-soap-and-wax-for-cars&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wash Soap Picks
+heroImage: https://tse1.mm.bing.net/th?q=best-soap-and-wax-for-cars&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best soap and wax keeps your car clean and shiny longer. Quality products protect your paint and make washing easier.**

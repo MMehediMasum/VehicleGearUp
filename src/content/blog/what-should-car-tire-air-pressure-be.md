@@ -1,10 +1,14 @@
 ---
-title: "What Should Car Tire Air Pressure Be: Essential Guide for Safety & Efficiency"
-description: "Have you ever wondered if your car’s tire air pressure is just right? Getting it wrong can lead to poor fuel efficiency, uneven tire wear, or even unsafe drivin"
+title: 'What Should Car Tire Air Pressure Be: Essential Guide for Safety & Efficiency'
+description: Have you ever wondered if your car’s tire air pressure is just right?
+  Getting it wrong can lead to poor fuel efficiency, uneven tire wear, or even unsafe
+  drivin
 pubDate: 2025-09-04
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-should-car-tire-air-pressure-be&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tire Age Pressure and Size
+heroImage: https://tse1.mm.bing.net/th?q=what-should-car-tire-air-pressure-be&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Have you ever wondered if your car’s tire air pressure is just right? Getting it wrong can lead to poor fuel efficiency, uneven tire wear, or even unsafe driving conditions.**

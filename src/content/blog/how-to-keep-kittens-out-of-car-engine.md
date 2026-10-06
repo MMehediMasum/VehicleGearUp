@@ -1,10 +1,14 @@
 ---
-title: "How to Keep Kittens Out of Car Engine: Effective Safety Tips"
-description: "Have you ever heard a strange noise under your car hood, only to discover a tiny kitten curled up inside? It’s a surprising and heartwarming sight, but it can a"
+title: 'How to Keep Kittens Out of Car Engine: Effective Safety Tips'
+description: Have you ever heard a strange noise under your car hood, only to discover
+  a tiny kitten curled up inside? It’s a surprising and heartwarming sight, but it
+  can a
 pubDate: 2026-05-08
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-keep-kittens-out-of-car-engine&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Keeping Pests Out of Engines
+heroImage: https://tse1.mm.bing.net/th?q=how-to-keep-kittens-out-of-car-engine&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever heard a strange noise under your car hood, only to discover a tiny kitten curled up inside? It’s a surprising and heartwarming sight, but it can also be dangerous for both the kitten and your vehicle.**

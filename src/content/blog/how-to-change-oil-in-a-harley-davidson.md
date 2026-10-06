@@ -1,10 +1,14 @@
 ---
-title: "How to Change Oil in a Harley Davidson: Easy Step-by-Step Guide"
-description: "Changing the oil in your Harley Davidson is one of the best ways to keep it running smoothly and extend its life. You might think it’s a tough job, but with the"
+title: 'How to Change Oil in a Harley Davidson: Easy Step-by-Step Guide'
+description: Changing the oil in your Harley Davidson is one of the best ways to keep
+  it running smoothly and extend its life. You might think it’s a tough job, but with
+  the
 pubDate: 2026-05-15
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-oil-in-a-harley-davidson&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Fuel and Exhaust
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-oil-in-a-harley-davidson&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Changing the oil in your Harley Davidson is one of the best ways to keep it running smoothly and extend its life. You might think it’s a tough job, but with the right steps, you can do it yourself quickly and confidently.**

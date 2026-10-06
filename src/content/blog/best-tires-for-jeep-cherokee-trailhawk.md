@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Jeep Cherokee Trailhawk: Top Picks for Ultimate Performance"
-description: "Finding the best tires for your Jeep Cherokee Trailhawk boosts safety and performance. Choosing the right set improves handling on and off-road. The Jeep Cherok"
+title: 'Best Tires for Jeep Cherokee Trailhawk: Top Picks for Ultimate Performance'
+description: Finding the best tires for your Jeep Cherokee Trailhawk boosts safety
+  and performance. Choosing the right set improves handling on and off-road. The Jeep
+  Cherok
 pubDate: 2025-12-23
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-jeep-cherokee-trailhawk&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jeep Cherokee and Gladiator Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-jeep-cherokee-trailhawk&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Finding the best tires for your Jeep Cherokee Trailhawk boosts safety and performance. Choosing the right set improves handling on and off-road.**

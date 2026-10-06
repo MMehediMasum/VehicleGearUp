@@ -1,10 +1,14 @@
 ---
-title: "How to Keep Car Battery Terminals from Corroding: Easy Tips"
-description: "Your car battery is the heart of your vehicle’s electrical system. But if the terminals start to corrode, your car might struggle to start or even fail complete"
+title: 'How to Keep Car Battery Terminals from Corroding: Easy Tips'
+description: Your car battery is the heart of your vehicle’s electrical system. But
+  if the terminals start to corrode, your car might struggle to start or even fail
+  complete
 pubDate: 2026-04-03
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-keep-car-battery-terminals-from-corroding&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Terminal Care
+heroImage: https://tse1.mm.bing.net/th?q=how-to-keep-car-battery-terminals-from-corroding&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Your car battery is the heart of your vehicle’s electrical system. But if the terminals start to corrode, your car might struggle to start or even fail completely.**

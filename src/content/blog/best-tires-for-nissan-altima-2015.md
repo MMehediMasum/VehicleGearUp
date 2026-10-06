@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Nissan Altima 2015: Top All-Season Picks Reviewed"
-description: "Choosing the best tires for your 2015 Nissan Altima improves safety and driving comfort. The right tires fit perfectly and handle well in different weather cond"
+title: 'Best Tires for Nissan Altima 2015: Top All-Season Picks Reviewed'
+description: Choosing the best tires for your 2015 Nissan Altima improves safety and
+  driving comfort. The right tires fit perfectly and handle well in different weather
+  cond
 pubDate: 2025-12-25
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-nissan-altima-2015&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Mud Street and RV Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-nissan-altima-2015&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your 2015 Nissan Altima improves safety and driving comfort. The right tires fit perfectly and handle well in different weather conditions.**

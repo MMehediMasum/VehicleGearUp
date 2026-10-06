@@ -1,10 +1,14 @@
 ---
-title: "How to Look Up a Car License Plate: Quick & Easy Guide"
-description: "Have you ever seen a car and wondered who it belongs to? Maybe you need to check a license plate for safety reasons, or you're curious about a vehicle involved "
+title: 'How to Look Up a Car License Plate: Quick & Easy Guide'
+description: 'Have you ever seen a car and wondered who it belongs to? Maybe you need
+  to check a license plate for safety reasons, or you''re curious about a vehicle
+  involved '
 pubDate: 2026-01-22
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-look-up-a-car-license-plate&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- License Plate Questions
+heroImage: https://tse1.mm.bing.net/th?q=how-to-look-up-a-car-license-plate&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Have you ever seen a car and wondered who it belongs to? Maybe you need to check a license plate for safety reasons, or you're curious about a vehicle involved in an incident.**

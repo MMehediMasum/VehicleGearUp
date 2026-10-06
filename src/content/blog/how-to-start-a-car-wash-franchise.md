@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Start a Car Wash Franchise: Ultimate Guide for Success"
 description: "Thinking about starting a car wash franchise? You’re about to discover a smart way to build a steady income with a proven business model. But how do you begin? "
 pubDate: 2026-03-18

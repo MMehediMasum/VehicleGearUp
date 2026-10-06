@@ -1,10 +1,14 @@
 ---
-title: "How to Change Time on Honda Civic: Quick & Easy Steps Guide"
-description: "Looking to change the time on your Honda Civic but not sure where to start? You’re not alone. Adjusting your car’s clock might seem tricky at first, but it’s ac"
+title: 'How to Change Time on Honda Civic: Quick & Easy Steps Guide'
+description: Looking to change the time on your Honda Civic but not sure where to
+  start? You’re not alone. Adjusting your car’s clock might seem tricky at first,
+  but it’s ac
 pubDate: 2026-02-20
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-time-on-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Setting the Time on Cars
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-time-on-honda-civic&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Looking to change the time on your Honda Civic but not sure where to start? You’re not alone.**

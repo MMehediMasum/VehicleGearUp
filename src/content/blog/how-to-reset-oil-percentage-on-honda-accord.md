@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Percentage on Honda Accord: Quick & Easy Guide"
-description: "Are you wondering how to reset the oil percentage on your Honda Accord? Keeping track of your oil life is crucial for your car’s health and performance. If your"
+title: 'How to Reset Oil Percentage on Honda Accord: Quick & Easy Guide'
+description: Are you wondering how to reset the oil percentage on your Honda Accord?
+  Keeping track of your oil life is crucial for your car’s health and performance.
+  If your
 pubDate: 2026-04-26
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-percentage-on-honda-accord&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Oil Gauge Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-percentage-on-honda-accord&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Are you wondering how to reset the oil percentage on your Honda Accord? Keeping track of your oil life is crucial for your car’s health and performance.**

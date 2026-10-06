@@ -1,10 +1,14 @@
 ---
-title: "What to Do After Changing Car Battery: Essential Steps for Safety"
-description: "You just changed your car battery—great job! But what comes next? If you think the hard part is over, think again. What you do right after installing a new batt"
+title: 'What to Do After Changing Car Battery: Essential Steps for Safety'
+description: You just changed your car battery—great job! But what comes next? If
+  you think the hard part is over, think again. What you do right after installing
+  a new batt
 pubDate: 2026-04-27
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-do-after-changing-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Price and Installation
+heroImage: https://tse1.mm.bing.net/th?q=what-to-do-after-changing-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **You just changed your car battery—great job! But what comes next?**

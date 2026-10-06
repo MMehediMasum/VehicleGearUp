@@ -1,10 +1,14 @@
 ---
-title: "Best All Season Tires for Honda Civic: Top Picks for Performance & Durability"
-description: "Choosing the right all-season tires for your Honda Civic improves safety and driving comfort all year. This guide reviews top tire options that fit Honda Civic "
+title: 'Best All Season Tires for Honda Civic: Top Picks for Performance & Durability'
+description: 'Choosing the right all-season tires for your Honda Civic improves safety
+  and driving comfort all year. This guide reviews top tire options that fit Honda
+  Civic '
 pubDate: 2026-01-09
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-all-season-tires-for-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- All Season SUV Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-all-season-tires-for-honda-civic&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the right all-season tires for your Honda Civic improves safety and driving comfort all year. This guide reviews top tire options that fit Honda Civic models perfectly.**

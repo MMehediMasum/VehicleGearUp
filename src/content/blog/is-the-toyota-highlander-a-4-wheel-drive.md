@@ -1,10 +1,14 @@
 ---
-title: "Is the Toyota Highlander a 4 Wheel Drive: Ultimate Off-Road Guide"
-description: "Are you thinking about getting a Toyota Highlander but wondering if it comes with 4-wheel drive? Whether you need extra grip for snowy roads or better control o"
+title: 'Is the Toyota Highlander a 4 Wheel Drive: Ultimate Off-Road Guide'
+description: Are you thinking about getting a Toyota Highlander but wondering if it
+  comes with 4-wheel drive? Whether you need extra grip for snowy roads or better
+  control o
 pubDate: 2025-09-21
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-the-toyota-highlander-a-4-wheel-drive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota 4WD Questions
+heroImage: https://tse1.mm.bing.net/th?q=is-the-toyota-highlander-a-4-wheel-drive&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you thinking about getting a Toyota Highlander but wondering if it comes with 4-wheel drive? Whether you need extra grip for snowy roads or better control off the beaten path, knowing if this SUV offers 4WD can make all the difference.**

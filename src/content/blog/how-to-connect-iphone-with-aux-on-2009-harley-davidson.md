@@ -1,10 +1,14 @@
 ---
-title: "How to Connect Iphone With Aux on 2009 Harley Davidson: Easy Guide"
-description: "If you’re riding your 2009 Harley Davidson and want to enjoy your favorite tunes, connecting your iPhone to the bike’s aux input is a game-changer. Imagine the "
+title: 'How to Connect Iphone With Aux on 2009 Harley Davidson: Easy Guide'
+description: 'If you’re riding your 2009 Harley Davidson and want to enjoy your favorite
+  tunes, connecting your iPhone to the bike’s aux input is a game-changer. Imagine
+  the '
 pubDate: 2025-12-16
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-connect-iphone-with-aux-on-2009-harley-davidson&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Maintenance Basics
+heroImage: https://tse1.mm.bing.net/th?q=how-to-connect-iphone-with-aux-on-2009-harley-davidson&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **If you’re riding your 2009 Harley Davidson and want to enjoy your favorite tunes, connecting your iPhone to the bike’s aux input is a game-changer. Imagine the freedom of controlling your playlist while cruising down the road, without complicated setups or distractions.**

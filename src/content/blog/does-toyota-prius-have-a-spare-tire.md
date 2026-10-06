@@ -1,10 +1,14 @@
 ---
-title: "Does Toyota Prius Have a Spare Tire: Essential Facts Revealed"
-description: "Have you ever wondered if your Toyota Prius comes with a spare tire? Imagine being on the road and suddenly facing a flat tire—would you be prepared? Knowing wh"
+title: 'Does Toyota Prius Have a Spare Tire: Essential Facts Revealed'
+description: Have you ever wondered if your Toyota Prius comes with a spare tire?
+  Imagine being on the road and suddenly facing a flat tire—would you be prepared?
+  Knowing wh
 pubDate: 2025-09-23
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-toyota-prius-have-a-spare-tire&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Hybrid Tires
+heroImage: https://tse1.mm.bing.net/th?q=does-toyota-prius-have-a-spare-tire&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Have you ever wondered if your Toyota Prius comes with a spare tire? Imagine being on the road and suddenly facing a flat tire—would you be prepared?**

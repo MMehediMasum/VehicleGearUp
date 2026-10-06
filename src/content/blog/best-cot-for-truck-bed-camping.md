@@ -1,10 +1,14 @@
 ---
-title: "Best Cot for Truck Bed Camping: Top Durable & Comfortable Picks"
-description: "Finding the best cot for truck bed camping ensures a good night's sleep on the road. A quality cot fits well, offers comfort, and supports your weight safely. C"
+title: 'Best Cot for Truck Bed Camping: Top Durable & Comfortable Picks'
+description: Finding the best cot for truck bed camping ensures a good night's sleep
+  on the road. A quality cot fits well, offers comfort, and supports your weight safely.
+  C
 pubDate: 2026-06-22
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cot-for-truck-bed-camping&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Truck Bed Gear
+heroImage: https://tse1.mm.bing.net/th?q=best-cot-for-truck-bed-camping&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Finding the best cot for truck bed camping ensures a good night's sleep on the road. A quality cot fits well, offers comfort, and supports your weight safely.**

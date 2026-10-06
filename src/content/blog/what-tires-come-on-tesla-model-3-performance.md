@@ -1,10 +1,14 @@
 ---
-title: "What Tires Come on Tesla Model 3 Performance: Ultimate Guide"
-description: "Are you curious about the tires that come standard on your Tesla Model 3 Performance? The right tires do more than just keep your car on the road—they impact yo"
+title: 'What Tires Come on Tesla Model 3 Performance: Ultimate Guide'
+description: Are you curious about the tires that come standard on your Tesla Model
+  3 Performance? The right tires do more than just keep your car on the road—they
+  impact yo
 pubDate: 2025-11-13
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-tires-come-on-tesla-model-3-performance&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Summon and Dog Mode
+heroImage: https://tse1.mm.bing.net/th?q=what-tires-come-on-tesla-model-3-performance&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you curious about the tires that come standard on your Tesla Model 3 Performance? The right tires do more than just keep your car on the road—they impact your driving experience, safety, and even your car’s efficiency.**

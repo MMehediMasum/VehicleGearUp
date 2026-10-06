@@ -1,10 +1,14 @@
 ---
-title: "How to Lower Spare Tire on F150: Easy Steps for Quick Access"
-description: "Have you ever needed to change your spare tire on your Ford F150 but didn’t know how to lower it safely? If your spare is stuck or you’re unsure where to start,"
+title: 'How to Lower Spare Tire on F150: Easy Steps for Quick Access'
+description: Have you ever needed to change your spare tire on your Ford F150 but
+  didn’t know how to lower it safely? If your spare is stuck or you’re unsure where
+  to start,
 pubDate: 2026-02-02
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-lower-spare-tire-on-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spare Tires and Tire Changing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-lower-spare-tire-on-f150&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Have you ever needed to change your spare tire on your Ford F150 but didn’t know how to lower it safely? If your spare is stuck or you’re unsure where to start, you’re not alone.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Open Fuel Door on Ford Explorer: Easy Step-by-Step Guide"
-description: "Have you ever stood by your Ford Explorer, ready to fill up the tank, only to wonder how to open the fuel door? It’s a small step, but without the right know-ho"
+title: 'How to Open Fuel Door on Ford Explorer: Easy Step-by-Step Guide'
+description: Have you ever stood by your Ford Explorer, ready to fill up the tank,
+  only to wonder how to open the fuel door? It’s a small step, but without the right
+  know-ho
 pubDate: 2025-12-08
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-open-fuel-door-on-ford-explorer&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Opening Ford Gas Tanks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-open-fuel-door-on-ford-explorer&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Have you ever stood by your Ford Explorer, ready to fill up the tank, only to wonder how to open the fuel door? It’s a small step, but without the right know-how, it can slow you down and cause unnecessary frustration.**

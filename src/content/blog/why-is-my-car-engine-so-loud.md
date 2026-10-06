@@ -1,10 +1,14 @@
 ---
-title: "Why is My Car Engine So Loud: Top Causes & Quick Fixes"
-description: "Have you ever wondered, “Why is my car engine so loud?” That sudden roar under your hood can be unsettling and confusing. You might worry it means something ser"
+title: 'Why is My Car Engine So Loud: Top Causes & Quick Fixes'
+description: Have you ever wondered, “Why is my car engine so loud?” That sudden roar
+  under your hood can be unsettling and confusing. You might worry it means something
+  ser
 pubDate: 2025-11-04
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-is-my-car-engine-so-loud&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Engine Noise and Heat
+heroImage: https://tse1.mm.bing.net/th?q=why-is-my-car-engine-so-loud&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you ever wondered, “Why is my car engine so loud?” That sudden roar under your hood can be unsettling and confusing. You might worry it means something serious or fear costly repairs.**

@@ -1,10 +1,14 @@
 ---
-title: "How Often Do You Rotate Car Tires: Essential Tips for Longevity"
-description: "Have you ever wondered how often you should rotate your car tires? You might think it’s just another routine, but the truth is, tire rotation plays a big role i"
+title: 'How Often Do You Rotate Car Tires: Essential Tips for Longevity'
+description: Have you ever wondered how often you should rotate your car tires? You
+  might think it’s just another routine, but the truth is, tire rotation plays a big
+  role i
 pubDate: 2025-12-16
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-often-do-you-rotate-car-tires&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tire Construction and Origin
+heroImage: https://tse1.mm.bing.net/th?q=how-often-do-you-rotate-car-tires&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Have you ever wondered how often you should rotate your car tires? You might think it’s just another routine, but the truth is, tire rotation plays a big role in your safety and the lifespan of your tires.**

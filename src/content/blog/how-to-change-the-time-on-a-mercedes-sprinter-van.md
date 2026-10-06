@@ -1,10 +1,14 @@
 ---
-title: "How to Change the Time on a Mercedes Sprinter Van: Quick Guide"
-description: "If you own a Mercedes Sprinter van, you know how important it is to keep everything running smoothly—including the clock. But what if your van’s time is off? Wh"
+title: 'How to Change the Time on a Mercedes Sprinter Van: Quick Guide'
+description: If you own a Mercedes Sprinter van, you know how important it is to keep
+  everything running smoothly—including the clock. But what if your van’s time is
+  off? Wh
 pubDate: 2026-01-25
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-the-time-on-a-mercedes-sprinter-van&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Setting the Time on Cars
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-the-time-on-a-mercedes-sprinter-van&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If you own a Mercedes Sprinter van, you know how important it is to keep everything running smoothly—including the clock. But what if your van’s time is off?**

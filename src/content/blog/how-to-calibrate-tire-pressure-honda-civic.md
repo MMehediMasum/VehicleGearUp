@@ -1,10 +1,14 @@
 ---
-title: "How to Calibrate Tire Pressure Honda Civic: Easy Step-by-Step Guide"
-description: "Are you sure your Honda Civic’s tires have the right pressure? Proper tire pressure is key to your safety, fuel efficiency, and tire life. But how do you know i"
+title: 'How to Calibrate Tire Pressure Honda Civic: Easy Step-by-Step Guide'
+description: Are you sure your Honda Civic’s tires have the right pressure? Proper
+  tire pressure is key to your safety, fuel efficiency, and tire life. But how do
+  you know i
 pubDate: 2026-02-27
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-calibrate-tire-pressure-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Checking Tire Pressure
+heroImage: https://tse1.mm.bing.net/th?q=how-to-calibrate-tire-pressure-honda-civic&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Are you sure your Honda Civic’s tires have the right pressure? Proper tire pressure is key to your safety, fuel efficiency, and tire life.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Put Hyundai Palisade in Neutral With Dead Battery: Easy Steps"
-description: "Have you ever found yourself stuck, wondering how to put your Hyundai Palisade in neutral when the battery is dead? It’s a frustrating situation that can leave "
+title: 'How to Put Hyundai Palisade in Neutral With Dead Battery: Easy Steps'
+description: 'Have you ever found yourself stuck, wondering how to put your Hyundai
+  Palisade in neutral when the battery is dead? It’s a frustrating situation that
+  can leave '
 pubDate: 2026-03-28
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-put-hyundai-palisade-in-neutral-with-dead-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Neutral With Dead Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-put-hyundai-palisade-in-neutral-with-dead-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever found yourself stuck, wondering how to put your Hyundai Palisade in neutral when the battery is dead? It’s a frustrating situation that can leave you feeling helpless, especially if you need to move your vehicle quickly.**

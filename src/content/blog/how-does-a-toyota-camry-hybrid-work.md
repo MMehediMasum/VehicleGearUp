@@ -1,10 +1,14 @@
 ---
-title: "How Does a Toyota Camry Hybrid Work: Unveiling Smart Efficiency"
-description: "Have you ever wondered what makes the Toyota Camry Hybrid so special? You might know it’s great on gas, but how does it actually work? Understanding how this ca"
+title: 'How Does a Toyota Camry Hybrid Work: Unveiling Smart Efficiency'
+description: Have you ever wondered what makes the Toyota Camry Hybrid so special?
+  You might know it’s great on gas, but how does it actually work? Understanding how
+  this ca
 pubDate: 2026-03-02
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-does-a-toyota-camry-hybrid-work&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- How Hybrids Work
+heroImage: https://tse1.mm.bing.net/th?q=how-does-a-toyota-camry-hybrid-work&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Have you ever wondered what makes the Toyota Camry Hybrid so special? You might know it’s great on gas, but how does it actually work?**

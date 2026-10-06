@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for Nissan Titan to Boost Power and Performance"
-description: "Choosing the best cold air intake for your Nissan Titan can boost engine power and improve fuel efficiency. This guide reviews top models that fit various Titan"
+title: Best Cold Air Intake for Nissan Titan to Boost Power and Performance
+description: Choosing the best cold air intake for your Nissan Titan can boost engine
+  power and improve fuel efficiency. This guide reviews top models that fit various
+  Titan
 pubDate: 2026-06-08
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-nissan-titan&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Engine Specific Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-nissan-titan&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best cold air intake for your Nissan Titan can boost engine power and improve fuel efficiency. This guide reviews top models that fit various Titan years and trims.**

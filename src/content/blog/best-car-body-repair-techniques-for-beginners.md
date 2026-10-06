@@ -1,10 +1,14 @@
 ---
-title: "Best Car Body Repair Techniques for Beginners: Essential Tools and Tips"
-description: "Car body repair can seem hard for beginners. Simple techniques make the process easier and more fun. This guide covers the best car body repair methods for begi"
+title: 'Best Car Body Repair Techniques for Beginners: Essential Tools and Tips'
+description: Car body repair can seem hard for beginners. Simple techniques make the
+  process easier and more fun. This guide covers the best car body repair methods
+  for begi
 pubDate: 2026-07-13
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-body-repair-techniques-for-beginners&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Vinyl Wraps and Body Work
+heroImage: https://tse1.mm.bing.net/th?q=best-car-body-repair-techniques-for-beginners&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Car body repair can seem hard for beginners. Simple techniques make the process easier and more fun.**

@@ -1,10 +1,14 @@
 ---
-title: "What Glue to Use to Fix Car Bumper: Expert Tips for Strong Repair"
-description: "Is your car bumper cracked or loose? Choosing the right glue can make all the difference between a quick fix and a costly repair. You want a solution that’s str"
+title: 'What Glue to Use to Fix Car Bumper: Expert Tips for Strong Repair'
+description: Is your car bumper cracked or loose? Choosing the right glue can make
+  all the difference between a quick fix and a costly repair. You want a solution
+  that’s str
 pubDate: 2026-05-18
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-glue-to-use-to-fix-car-bumper&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Bumper Dent and Scratch Repair
+heroImage: https://tse1.mm.bing.net/th?q=what-glue-to-use-to-fix-car-bumper&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Is your car bumper cracked or loose? Choosing the right glue can make all the difference between a quick fix and a costly repair.**

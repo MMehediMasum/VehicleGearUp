@@ -1,10 +1,14 @@
 ---
-title: "Which Car Battery Terminal Do You Connect First: Expert Guide"
-description: "When you need to replace or jump-start your car battery, one question often trips people up: which battery terminal should you connect first? It might seem like"
+title: 'Which Car Battery Terminal Do You Connect First: Expert Guide'
+description: 'When you need to replace or jump-start your car battery, one question
+  often trips people up: which battery terminal should you connect first? It might
+  seem like'
 pubDate: 2026-03-29
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=which-car-battery-terminal-do-you-connect-first&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Disconnect Order
+heroImage: https://tse1.mm.bing.net/th?q=which-car-battery-terminal-do-you-connect-first&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **When you need to replace or jump-start your car battery, one question often trips people up: which battery terminal should you connect first? It might seem like a small detail, but getting it wrong can lead to sparks, damage, or even injury.**

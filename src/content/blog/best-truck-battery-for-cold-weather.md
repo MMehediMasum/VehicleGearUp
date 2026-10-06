@@ -1,10 +1,14 @@
 ---
-title: "Best Truck Battery for Cold Weather: Top Reliable Picks for Harsh Winters"
-description: "Choosing the best truck battery for cold weather ensures reliable starts and strong performance. Cold temperatures drain battery power quickly and cause many fa"
+title: 'Best Truck Battery for Cold Weather: Top Reliable Picks for Harsh Winters'
+description: Choosing the best truck battery for cold weather ensures reliable starts
+  and strong performance. Cold temperatures drain battery power quickly and cause
+  many fa
 pubDate: 2026-07-10
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-truck-battery-for-cold-weather&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Cold Weather Battery Drain
+heroImage: https://tse1.mm.bing.net/th?q=best-truck-battery-for-cold-weather&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Choosing the best truck battery for cold weather ensures reliable starts and strong performance. Cold temperatures drain battery power quickly and cause many failures.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Change the Time on a Nissan Altima: Quick & Easy Guide"
-description: "Have you ever glanced at your Nissan Altima’s clock and noticed it’s off? Maybe daylight saving time just changed, or you recently traveled across time zones. W"
+title: 'How to Change the Time on a Nissan Altima: Quick & Easy Guide'
+description: Have you ever glanced at your Nissan Altima’s clock and noticed it’s
+  off? Maybe daylight saving time just changed, or you recently traveled across time
+  zones. W
 pubDate: 2026-02-08
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-the-time-on-a-nissan-altima&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Setting the Time on Cars
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-the-time-on-a-nissan-altima&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Have you ever glanced at your Nissan Altima’s clock and noticed it’s off? Maybe daylight saving time just changed, or you recently traveled across time zones.**

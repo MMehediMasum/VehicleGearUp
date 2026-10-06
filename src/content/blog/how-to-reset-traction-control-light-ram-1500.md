@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Traction Control Light Ram 1500: Quick & Easy Guide"
-description: "Is your Ram 1500’s traction control light suddenly on, leaving you worried about what it means and how to fix it? You’re not alone. That little warning light ca"
+title: 'How to Reset Traction Control Light Ram 1500: Quick & Easy Guide'
+description: Is your Ram 1500’s traction control light suddenly on, leaving you worried
+  about what it means and how to fix it? You’re not alone. That little warning light
+  ca
 pubDate: 2026-05-26
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-traction-control-light-ram-1500&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ram Throttle and Computer Resets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-traction-control-light-ram-1500&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your Ram 1500’s traction control light suddenly on, leaving you worried about what it means and how to fix it? You’re not alone.**

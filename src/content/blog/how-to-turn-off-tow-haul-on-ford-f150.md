@@ -1,10 +1,14 @@
 ---
-title: "How to Turn off Tow Haul on Ford F150: Easy Steps to Follow"
-description: "If you drive a Ford F150, you’ve probably noticed the Tow Haul mode. It’s great when you’re towing heavy loads, but sometimes you just want to switch it off for"
+title: 'How to Turn off Tow Haul on Ford F150: Easy Steps to Follow'
+description: If you drive a Ford F150, you’ve probably noticed the Tow Haul mode.
+  It’s great when you’re towing heavy loads, but sometimes you just want to switch
+  it off for
 pubDate: 2025-09-03
-author: "herbertlangham"
-categories: ["Towing & Hauling"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-tow-haul-on-ford-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford F150 Towing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-tow-haul-on-ford-f150&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **If you drive a Ford F150, you’ve probably noticed the Tow Haul mode. It’s great when you’re towing heavy loads, but sometimes you just want to switch it off for a smoother ride.**

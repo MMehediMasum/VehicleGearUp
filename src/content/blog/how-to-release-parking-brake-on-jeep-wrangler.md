@@ -1,10 +1,14 @@
 ---
-title: "How to Release Parking Brake on Jeep Wrangler: Easy Step-by-Step Guide"
-description: "If you own a Jeep Wrangler, knowing how to release the parking brake quickly and safely is a must. Imagine being ready to hit the road, but your Jeep won’t move"
+title: 'How to Release Parking Brake on Jeep Wrangler: Easy Step-by-Step Guide'
+description: If you own a Jeep Wrangler, knowing how to release the parking brake
+  quickly and safely is a must. Imagine being ready to hit the road, but your Jeep
+  won’t move
 pubDate: 2026-05-06
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-release-parking-brake-on-jeep-wrangler&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Parking Brake Help
+heroImage: https://tse1.mm.bing.net/th?q=how-to-release-parking-brake-on-jeep-wrangler&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a Jeep Wrangler, knowing how to release the parking brake quickly and safely is a must. Imagine being ready to hit the road, but your Jeep won’t move because the parking brake is still on.**

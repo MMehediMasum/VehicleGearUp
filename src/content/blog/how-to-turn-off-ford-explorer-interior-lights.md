@@ -1,10 +1,14 @@
 ---
-title: "How to Turn off Ford Explorer Interior Lights: Easy Step-by-Step Guide"
-description: "Are your Ford Explorer’s interior lights staying on longer than you want? Those bright lights can drain your battery or disturb your peace, especially at night."
+title: 'How to Turn off Ford Explorer Interior Lights: Easy Step-by-Step Guide'
+description: Are your Ford Explorer’s interior lights staying on longer than you want?
+  Those bright lights can drain your battery or disturb your peace, especially at
+  night.
 pubDate: 2026-05-23
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-ford-explorer-interior-lights&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Interior Light Settings
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-ford-explorer-interior-lights&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are your Ford Explorer’s interior lights staying on longer than you want? Those bright lights can drain your battery or disturb your peace, especially at night.**

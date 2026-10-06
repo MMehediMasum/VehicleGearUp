@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Hyundai Santa Fe: Top Spare Tire Kit Options Reviewed"
-description: "Choosing the best tires for your 2020 Hyundai Santa Fe ensures safety and smooth driving. This guide helps you find reliable, compatible tire options. The 2020 "
+title: 'Best Tires for Hyundai Santa Fe: Top Spare Tire Kit Options Reviewed'
+description: 'Choosing the best tires for your 2020 Hyundai Santa Fe ensures safety
+  and smooth driving. This guide helps you find reliable, compatible tire options.
+  The 2020 '
 pubDate: 2026-01-09
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-2020-hyundai-santa-fe&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hyundai and Kia Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-2020-hyundai-santa-fe&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your 2020 Hyundai Santa Fe ensures safety and smooth driving. This guide helps you find reliable, compatible tire options.**

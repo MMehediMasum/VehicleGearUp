@@ -1,10 +1,14 @@
 ---
-title: "How to Remove a Scratch from a Car Windshield: Easy DIY Fixes"
-description: "A scratch on your car windshield can be more than just an eyesore—it can block your view and distract you while driving. You might be wondering if you need to r"
+title: 'How to Remove a Scratch from a Car Windshield: Easy DIY Fixes'
+description: A scratch on your car windshield can be more than just an eyesore—it
+  can block your view and distract you while driving. You might be wondering if you
+  need to r
 pubDate: 2025-10-24
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-remove-a-scratch-from-a-car-windshield&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Windshield Sap and Scratches
+heroImage: https://tse1.mm.bing.net/th?q=how-to-remove-a-scratch-from-a-car-windshield&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **A scratch on your car windshield can be more than just an eyesore—it can block your view and distract you while driving. You might be wondering if you need to replace the whole windshield or if there’s an easy fix.**

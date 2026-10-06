@@ -1,10 +1,14 @@
 ---
-title: "Do You Loosen Lug Nuts before Jacking Car Up: Essential Safety Tips"
-description: "Are you about to change a tire or work under your car? One question that often puzzles many is whether you should loosen the lug nuts before jacking your car up"
+title: 'Do You Loosen Lug Nuts before Jacking Car Up: Essential Safety Tips'
+description: Are you about to change a tire or work under your car? One question that
+  often puzzles many is whether you should loosen the lug nuts before jacking your
+  car up
 pubDate: 2026-01-19
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-you-loosen-lug-nuts-before-jacking-car-up&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spare Tires and Tire Changing
+heroImage: https://tse1.mm.bing.net/th?q=do-you-loosen-lug-nuts-before-jacking-car-up&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Are you about to change a tire or work under your car? One question that often puzzles many is whether you should loosen the lug nuts before jacking your car up.**

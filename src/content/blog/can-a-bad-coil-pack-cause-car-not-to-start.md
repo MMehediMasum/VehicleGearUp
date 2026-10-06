@@ -1,10 +1,14 @@
 ---
-title: "Can a Bad Coil Pack Cause Car Not to Start: Shocking Truth Revealed"
-description: "Have you ever turned your key, only to hear silence or a weak crank from your car? It’s frustrating and can leave you wondering what’s wrong. One common culprit"
+title: 'Can a Bad Coil Pack Cause Car Not to Start: Shocking Truth Revealed'
+description: Have you ever turned your key, only to hear silence or a weak crank from
+  your car? It’s frustrating and can leave you wondering what’s wrong. One common
+  culprit
 pubDate: 2026-05-13
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-a-bad-coil-pack-cause-car-not-to-start&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spark Plug Misfire Symptoms
+heroImage: https://tse1.mm.bing.net/th?q=can-a-bad-coil-pack-cause-car-not-to-start&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you ever turned your key, only to hear silence or a weak crank from your car? It’s frustrating and can leave you wondering what’s wrong.**

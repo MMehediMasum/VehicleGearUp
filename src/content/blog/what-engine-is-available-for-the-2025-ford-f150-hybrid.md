@@ -1,10 +1,14 @@
 ---
-title: "What Engine is Available for the 2025 Ford F150 Hybrid: Unveiled Power"
-description: "Are you curious about the engine that powers the 2025 Ford F150 Hybrid? If you want a truck that combines strength with smarter fuel use, knowing what’s under t"
+title: 'What Engine is Available for the 2025 Ford F150 Hybrid: Unveiled Power'
+description: Are you curious about the engine that powers the 2025 Ford F150 Hybrid?
+  If you want a truck that combines strength with smarter fuel use, knowing what’s
+  under t
 pubDate: 2026-05-01
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-engine-is-available-for-the-2025-ford-f150-hybrid&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hybrid Battery and Braking
+heroImage: https://tse1.mm.bing.net/th?q=what-engine-is-available-for-the-2025-ford-f150-hybrid&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you curious about the engine that powers the 2025 Ford F150 Hybrid? If you want a truck that combines strength with smarter fuel use, knowing what’s under the hood is key.**

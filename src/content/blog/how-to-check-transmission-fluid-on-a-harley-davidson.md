@@ -1,10 +1,14 @@
 ---
-title: "How to Check Transmission Fluid on a Harley Davidson: Easy Steps"
-description: "If you ride a Harley Davidson, keeping your bike’s transmission in top shape is key to smooth gear shifts and a longer engine life. But do you know how to check"
+title: 'How to Check Transmission Fluid on a Harley Davidson: Easy Steps'
+description: If you ride a Harley Davidson, keeping your bike’s transmission in top
+  shape is key to smooth gear shifts and a longer engine life. But do you know how
+  to check
 pubDate: 2026-05-06
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-check-transmission-fluid-on-a-harley-davidson&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Fuel and Exhaust
+heroImage: https://tse1.mm.bing.net/th?q=how-to-check-transmission-fluid-on-a-harley-davidson&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **If you ride a Harley Davidson, keeping your bike’s transmission in top shape is key to smooth gear shifts and a longer engine life. But do you know how to check your transmission fluid the right way?**

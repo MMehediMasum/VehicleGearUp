@@ -1,10 +1,14 @@
 ---
-title: "Best Protection for New Car Paint: Top Ceramic Sealants for Ultimate Shine"
-description: "Protecting new car paint keeps your vehicle looking fresh and shiny for years. Choosing the right product prevents damage from sun, dirt, and water. New car pai"
+title: 'Best Protection for New Car Paint: Top Ceramic Sealants for Ultimate Shine'
+description: Protecting new car paint keeps your vehicle looking fresh and shiny for
+  years. Choosing the right product prevents damage from sun, dirt, and water. New
+  car pai
 pubDate: 2026-07-02
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-protection-for-new-car-paint&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spray Paint and Scratch Repair
+heroImage: https://tse1.mm.bing.net/th?q=best-protection-for-new-car-paint&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Protecting new car paint keeps your vehicle looking fresh and shiny for years. Choosing the right product prevents damage from sun, dirt, and water.**

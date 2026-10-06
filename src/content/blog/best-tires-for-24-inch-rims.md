@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for 24 Inch Rims: Top All-Season and Performance Picks"
-description: "Choosing the best tires for 24-inch rims ensures safety, comfort, and performance on the road. This guide highlights top tire options designed for these rims. S"
+title: 'Best Tires for 24 Inch Rims: Top All-Season and Performance Picks'
+description: Choosing the best tires for 24-inch rims ensures safety, comfort, and
+  performance on the road. This guide highlights top tire options designed for these
+  rims. S
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-24-inch-rims&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jeep Wheels and Rims
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-24-inch-rims&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for 24-inch rims ensures safety, comfort, and performance on the road. This guide highlights top tire options designed for these rims.**

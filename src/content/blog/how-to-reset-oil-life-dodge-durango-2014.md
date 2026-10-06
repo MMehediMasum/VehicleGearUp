@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Life Dodge Durango 2014: Quick & Easy Guide"
-description: "If you own a 2014 Dodge Durango, knowing how to reset the oil life indicator is a simple but important skill. This little reset keeps your dashboard accurate an"
+title: 'How to Reset Oil Life Dodge Durango 2014: Quick & Easy Guide'
+description: If you own a 2014 Dodge Durango, knowing how to reset the oil life indicator
+  is a simple but important skill. This little reset keeps your dashboard accurate
+  an
 pubDate: 2026-04-22
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-life-dodge-durango-2014&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ram and Dodge Oil Life
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-life-dodge-durango-2014&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a 2014 Dodge Durango, knowing how to reset the oil life indicator is a simple but important skill. This little reset keeps your dashboard accurate and helps you stay on top of your vehicle’s maintenance.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Smoke Odor Eliminator for Cars: Top Products to Banish Smoke Smell"
-description: "Smoke odors in cars can be tough to remove and unpleasant to live with. Choosing the best smoke odor eliminator helps keep your vehicle fresh and clean. Smoke l"
+title: 'Best Smoke Odor Eliminator for Cars: Top Products to Banish Smoke Smell'
+description: Smoke odors in cars can be tough to remove and unpleasant to live with.
+  Choosing the best smoke odor eliminator helps keep your vehicle fresh and clean.
+  Smoke l
 pubDate: 2026-06-21
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-smoke-odor-eliminator-for-cars&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Air Fresheners and Odors
+heroImage: https://tse1.mm.bing.net/th?q=best-smoke-odor-eliminator-for-cars&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Smoke odors in cars can be tough to remove and unpleasant to live with. Choosing the best smoke odor eliminator helps keep your vehicle fresh and clean.**

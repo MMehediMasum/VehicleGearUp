@@ -1,10 +1,13 @@
 ---
-title: "Best Spark Plugs for Genesis Coupe 2.0 T: Top Picks for Performance"
-description: "Choosing the best spark plugs for your Genesis Coupe 2.0 T improves engine performance and fuel efficiency. Quality spark plugs ensure smooth starts and reliabl"
+title: 'Best Spark Plugs for Genesis Coupe 2.0 T: Top Picks for Performance'
+description: Choosing the best spark plugs for your Genesis Coupe 2.0 T improves engine
+  performance and fuel efficiency. Quality spark plugs ensure smooth starts and reliabl
 pubDate: 2026-06-08
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-spark-plugs-for-genesis-coupe-20-t&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spark Plug Maintenance
+heroImage: https://tse1.mm.bing.net/th?q=best-spark-plugs-for-genesis-coupe-20-t&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best spark plugs for your Genesis Coupe 2.0 T improves engine performance and fuel efficiency. Quality spark plugs ensure smooth starts and reliable power delivery.**

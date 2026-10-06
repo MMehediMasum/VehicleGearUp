@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Fuel Economy on Trucks: Top Picks for Efficiency and Durability"
-description: "Choosing the best tires for fuel economy on trucks can save money and reduce trips to the pump. Fuel-efficient tires improve mileage without sacrificing safety "
+title: 'Best Tires for Fuel Economy on Trucks: Top Picks for Efficiency and Durability'
+description: 'Choosing the best tires for fuel economy on trucks can save money and
+  reduce trips to the pump. Fuel-efficient tires improve mileage without sacrificing
+  safety '
 pubDate: 2026-01-05
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-fuel-economy-on-trucks&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Mud Street and RV Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-fuel-economy-on-trucks&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for fuel economy on trucks can save money and reduce trips to the pump. Fuel-efficient tires improve mileage without sacrificing safety or performance.**

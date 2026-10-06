@@ -1,10 +1,14 @@
 ---
-title: "Best Anti Seize for Spark Plugs: Top Lubricants to Prevent Corrosion"
-description: "Choosing the best anti-seize for spark plugs protects threads from rust and makes future removal easy. Proper lubrication prevents damage and seizing caused by "
+title: 'Best Anti Seize for Spark Plugs: Top Lubricants to Prevent Corrosion'
+description: 'Choosing the best anti-seize for spark plugs protects threads from rust
+  and makes future removal easy. Proper lubrication prevents damage and seizing caused
+  by '
 pubDate: 2026-06-19
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-anti-seize-for-spark-plugs&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spark Plug Maintenance
+heroImage: https://tse1.mm.bing.net/th?q=best-anti-seize-for-spark-plugs&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best anti-seize for spark plugs protects threads from rust and makes future removal easy. Proper lubrication prevents damage and seizing caused by heat and corrosion.**

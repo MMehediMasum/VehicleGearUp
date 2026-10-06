@@ -1,10 +1,14 @@
 ---
-title: "Best Tonneau Cover for GMC Canyon: Top Durable and Stylish Picks"
-description: "Finding the best tonneau cover for your GMC Canyon protects your truck bed and gear. It also improves fuel efficiency and gives a sleek look. Choosing the right"
+title: 'Best Tonneau Cover for GMC Canyon: Top Durable and Stylish Picks'
+description: Finding the best tonneau cover for your GMC Canyon protects your truck
+  bed and gear. It also improves fuel efficiency and gives a sleek look. Choosing
+  the right
 pubDate: 2026-07-23
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tonneau-cover-for-gmc-canyon&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tonneau Covers
+heroImage: https://tse1.mm.bing.net/th?q=best-tonneau-cover-for-gmc-canyon&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Finding the best tonneau cover for your GMC Canyon protects your truck bed and gear. It also improves fuel efficiency and gives a sleek look.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Program Jeep Grand Cherokee Garage Door Opener: Easy Step-by-Step Guide"
-description: "If you own a Jeep Grand Cherokee, you know how handy it is to open your garage door without leaving the driver’s seat. But setting up the garage door opener in "
+title: 'How to Program Jeep Grand Cherokee Garage Door Opener: Easy Step-by-Step Guide'
+description: 'If you own a Jeep Grand Cherokee, you know how handy it is to open your
+  garage door without leaving the driver’s seat. But setting up the garage door opener
+  in '
 pubDate: 2025-11-05
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-program-jeep-grand-cherokee-garage-door-opener&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Garage Door Opener Programming
+heroImage: https://tse1.mm.bing.net/th?q=how-to-program-jeep-grand-cherokee-garage-door-opener&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If you own a Jeep Grand Cherokee, you know how handy it is to open your garage door without leaving the driver’s seat. But setting up the garage door opener in your Jeep can seem tricky at first.**

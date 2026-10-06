@@ -1,10 +1,14 @@
 ---
-title: "Best Car Seat for Extended Cab Truck: Top Dog Back Seat Extenders"
-description: "Choosing the best car seat for an extended cab truck ensures comfort and safety for your pet. A good seat cover protects your truck’s backseat and gives your do"
+title: 'Best Car Seat for Extended Cab Truck: Top Dog Back Seat Extenders'
+description: Choosing the best car seat for an extended cab truck ensures comfort
+  and safety for your pet. A good seat cover protects your truck’s backseat and gives
+  your do
 pubDate: 2026-07-19
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-seat-for-extended-cab-truck&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Choosing Child Car Seats
+heroImage: https://tse1.mm.bing.net/th?q=best-car-seat-for-extended-cab-truck&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best car seat for an extended cab truck ensures comfort and safety for your pet. A good seat cover protects your truck’s backseat and gives your dog space to relax.**

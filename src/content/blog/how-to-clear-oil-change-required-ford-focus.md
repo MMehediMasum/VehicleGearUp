@@ -1,10 +1,14 @@
 ---
-title: "How to Clear Oil Change Required Ford Focus: Easy Step-by-Step Guide"
-description: "Your Ford Focus just displayed that “Oil Change Required” message, and now you’re wondering how to clear it quickly and safely. You might feel a bit stuck, unsu"
+title: 'How to Clear Oil Change Required Ford Focus: Easy Step-by-Step Guide'
+description: Your Ford Focus just displayed that “Oil Change Required” message, and
+  now you’re wondering how to clear it quickly and safely. You might feel a bit stuck,
+  unsu
 pubDate: 2026-05-01
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clear-oil-change-required-ford-focus&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Oil Change Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clear-oil-change-required-ford-focus&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Your Ford Focus just displayed that “Oil Change Required” message, and now you’re wondering how to clear it quickly and safely. You might feel a bit stuck, unsure if you need special tools or if skipping this step could harm your car.**

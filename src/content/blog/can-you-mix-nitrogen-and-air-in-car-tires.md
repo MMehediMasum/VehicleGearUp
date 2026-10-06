@@ -1,10 +1,14 @@
 ---
-title: "Can You Mix Nitrogen And Air in Car Tires: Essential Facts Revealed"
-description: "Have you ever wondered if you can mix nitrogen and regular air in your car tires? You might think it’s a simple yes or no question, but the answer can impact yo"
+title: 'Can You Mix Nitrogen And Air in Car Tires: Essential Facts Revealed'
+description: Have you ever wondered if you can mix nitrogen and regular air in your
+  car tires? You might think it’s a simple yes or no question, but the answer can
+  impact yo
 pubDate: 2025-10-17
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-mix-nitrogen-and-air-in-car-tires&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tire Inflators and Compressors
+heroImage: https://tse1.mm.bing.net/th?q=can-you-mix-nitrogen-and-air-in-car-tires&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Have you ever wondered if you can mix nitrogen and regular air in your car tires? You might think it’s a simple yes or no question, but the answer can impact your tire’s performance, safety, and even your wallet.**

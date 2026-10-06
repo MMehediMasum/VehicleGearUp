@@ -1,10 +1,14 @@
 ---
-title: "How to Replace F150 Side Mirror Glass: Easy Step-by-Step Guide"
-description: "Your Ford F150’s side mirror glass is cracked or broken, and you’re wondering how to fix it quickly without spending a fortune. Replacing the side mirror glass "
+title: 'How to Replace F150 Side Mirror Glass: Easy Step-by-Step Guide'
+description: 'Your Ford F150’s side mirror glass is cracked or broken, and you’re
+  wondering how to fix it quickly without spending a fortune. Replacing the side mirror
+  glass '
 pubDate: 2026-05-04
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-replace-f150-side-mirror-glass&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Windshield and Mirror Repair
+heroImage: https://tse1.mm.bing.net/th?q=how-to-replace-f150-side-mirror-glass&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Your Ford F150’s side mirror glass is cracked or broken, and you’re wondering how to fix it quickly without spending a fortune. Replacing the side mirror glass might seem tricky, but with the right steps, you can do it yourself and save time and money.**

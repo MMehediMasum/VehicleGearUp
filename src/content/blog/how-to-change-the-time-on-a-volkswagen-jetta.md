@@ -1,10 +1,14 @@
 ---
-title: "How to Change the Time on a Volkswagen Jetta: Quick & Easy Guide"
-description: "Is your Volkswagen Jetta showing the wrong time? It’s a small detail, but having the correct clock in your car can make a big difference. Whether you’re running"
+title: 'How to Change the Time on a Volkswagen Jetta: Quick & Easy Guide'
+description: Is your Volkswagen Jetta showing the wrong time? It’s a small detail,
+  but having the correct clock in your car can make a big difference. Whether you’re
+  running
 pubDate: 2026-02-13
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-the-time-on-a-volkswagen-jetta&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Setting the Time on Cars
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-the-time-on-a-volkswagen-jetta&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your Volkswagen Jetta showing the wrong time? It’s a small detail, but having the correct clock in your car can make a big difference.**

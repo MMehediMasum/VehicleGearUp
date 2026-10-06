@@ -1,10 +1,14 @@
 ---
-title: "What Do the Numbers on Car Tires Mean: Decode Your Tires Fast"
-description: "Have you ever looked at the numbers on your car tires and wondered what they actually mean? Those numbers are more than just random digits—they hold important i"
+title: 'What Do the Numbers on Car Tires Mean: Decode Your Tires Fast'
+description: Have you ever looked at the numbers on your car tires and wondered what
+  they actually mean? Those numbers are more than just random digits—they hold important
+  i
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-do-the-numbers-on-car-tires-mean&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tire Construction and Origin
+heroImage: https://tse1.mm.bing.net/th?q=what-do-the-numbers-on-car-tires-mean&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Have you ever looked at the numbers on your car tires and wondered what they actually mean? Those numbers are more than just random digits—they hold important information about your tire’s size, performance, and safety.**

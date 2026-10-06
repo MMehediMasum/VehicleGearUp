@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Toyota Sienna Minivan: Ultimate Guide for Smooth Rides"
-description: "Choosing the best tires for your Toyota Sienna minivan ensures safety and smooth driving. The right tires improve handling and comfort on all roads. Toyota Sien"
+title: 'Best Tires for Toyota Sienna Minivan: Ultimate Guide for Smooth Rides'
+description: Choosing the best tires for your Toyota Sienna minivan ensures safety
+  and smooth driving. The right tires improve handling and comfort on all roads. Toyota
+  Sien
 pubDate: 2025-11-11
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-toyota-sienna-minivan&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-toyota-sienna-minivan&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your Toyota Sienna minivan ensures safety and smooth driving. The right tires improve handling and comfort on all roads.**

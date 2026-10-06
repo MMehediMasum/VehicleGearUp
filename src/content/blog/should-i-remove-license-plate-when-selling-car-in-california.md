@@ -1,10 +1,14 @@
 ---
-title: "Should I Remove License Plate When Selling Car in California? Essential Guide"
-description: "Are you getting ready to sell your car in California and wondering what to do with your license plates? It’s a question many sellers face, and the answer might "
+title: Should I Remove License Plate When Selling Car in California? Essential Guide
+description: 'Are you getting ready to sell your car in California and wondering what
+  to do with your license plates? It’s a question many sellers face, and the answer
+  might '
 pubDate: 2025-10-04
-author: "herbertlangham"
-categories: ["Car Buying & Ownership"]
-heroImage: "https://tse1.mm.bing.net/th?q=should-i-remove-license-plate-when-selling-car-in-california&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- License Plate Questions
+heroImage: https://tse1.mm.bing.net/th?q=should-i-remove-license-plate-when-selling-car-in-california&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you getting ready to sell your car in California and wondering what to do with your license plates? It’s a question many sellers face, and the answer might surprise you.**

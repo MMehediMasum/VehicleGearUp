@@ -1,10 +1,14 @@
 ---
-title: "Does the 2015 Ford Focus Have Brake Assist? Essential Safety Facts"
-description: "Are you curious if your 2015 Ford Focus has brake assist? Knowing this could make a big difference in your safety on the road. Brake assist helps you stop faste"
+title: Does the 2015 Ford Focus Have Brake Assist? Essential Safety Facts
+description: Are you curious if your 2015 Ford Focus has brake assist? Knowing this
+  could make a big difference in your safety on the road. Brake assist helps you stop
+  faste
 pubDate: 2026-04-30
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-the-2015-ford-focus-have-brake-assist&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hill Start and Brake Assist
+heroImage: https://tse1.mm.bing.net/th?q=does-the-2015-ford-focus-have-brake-assist&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Are you curious if your 2015 Ford Focus has brake assist? Knowing this could make a big difference in your safety on the road.**

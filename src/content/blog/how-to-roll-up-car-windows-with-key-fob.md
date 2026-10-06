@@ -1,10 +1,14 @@
 ---
-title: "How to Roll Up Car Windows With Key Fob: Easy Step-by-Step Guide"
-description: "Have you ever stepped away from your car only to realize you forgot to roll up the windows? It’s a common mistake that can leave your vehicle vulnerable to weat"
+title: 'How to Roll Up Car Windows With Key Fob: Easy Step-by-Step Guide'
+description: Have you ever stepped away from your car only to realize you forgot to
+  roll up the windows? It’s a common mistake that can leave your vehicle vulnerable
+  to weat
 pubDate: 2026-01-31
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-roll-up-car-windows-with-key-fob&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Key Fob Problems
+heroImage: https://tse1.mm.bing.net/th?q=how-to-roll-up-car-windows-with-key-fob&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **Have you ever stepped away from your car only to realize you forgot to roll up the windows? It’s a common mistake that can leave your vehicle vulnerable to weather or security risks.**

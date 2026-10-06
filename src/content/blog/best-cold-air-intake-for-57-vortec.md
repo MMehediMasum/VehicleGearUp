@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for 5.7 Vortec to Boost Power and Efficiency"
-description: "Finding the best cold air intake for your 5.7 Vortec engine can boost its power and efficiency. This guide highlights top kits that fit various Chevrolet, GMC, "
+title: Best Cold Air Intake for 5.7 Vortec to Boost Power and Efficiency
+description: 'Finding the best cold air intake for your 5.7 Vortec engine can boost
+  its power and efficiency. This guide highlights top kits that fit various Chevrolet,
+  GMC, '
 pubDate: 2026-06-06
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-57-vortec&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- GM Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-57-vortec&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Finding the best cold air intake for your 5.7 Vortec engine can boost its power and efficiency. This guide highlights top kits that fit various Chevrolet, GMC, and Ram models.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Driving on the Beach: Top Sand and Off-Road Wheels"
-description: "Driving on the beach needs special tires to handle sand and rough surfaces. Choosing the right tire keeps your vehicle safe and moves smoothly on soft sand. Bea"
+title: 'Best Tires for Driving on the Beach: Top Sand and Off-Road Wheels'
+description: Driving on the beach needs special tires to handle sand and rough surfaces.
+  Choosing the right tire keeps your vehicle safe and moves smoothly on soft sand.
+  Bea
 pubDate: 2026-01-07
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-driving-on-the-beach&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Mud Street and RV Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-driving-on-the-beach&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Driving on the beach needs special tires to handle sand and rough surfaces. Choosing the right tire keeps your vehicle safe and moves smoothly on soft sand.**

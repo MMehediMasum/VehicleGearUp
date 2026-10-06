@@ -1,10 +1,13 @@
 ---
-title: "What Amp Should I Charge My Car Battery: Expert Charging Tips"
-description: "Are you wondering what amp rating you should use to charge your car battery safely and effectively? Choosing the right amp charger is key to keeping your batter"
+title: 'What Amp Should I Charge My Car Battery: Expert Charging Tips'
+description: Are you wondering what amp rating you should use to charge your car battery
+  safely and effectively? Choosing the right amp charger is key to keeping your batter
 pubDate: 2025-09-25
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-amp-should-i-charge-my-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Charging a Car Battery
+heroImage: https://tse1.mm.bing.net/th?q=what-amp-should-i-charge-my-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you wondering what amp rating you should use to charge your car battery safely and effectively? Choosing the right amp charger is key to keeping your battery healthy and avoiding damage.**

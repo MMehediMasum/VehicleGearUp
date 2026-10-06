@@ -1,10 +1,14 @@
 ---
-title: "What Causes Car Battery Corrosion on Positive Terminal: Top Reasons Explained"
-description: "Have you ever noticed a white, powdery buildup on your car’s battery, especially around the positive terminal? This annoying corrosion can cause serious problem"
+title: 'What Causes Car Battery Corrosion on Positive Terminal: Top Reasons Explained'
+description: Have you ever noticed a white, powdery buildup on your car’s battery,
+  especially around the positive terminal? This annoying corrosion can cause serious
+  problem
 pubDate: 2025-10-12
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-causes-car-battery-corrosion-on-positive-terminal&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Polarity and Acid
+heroImage: https://tse1.mm.bing.net/th?q=what-causes-car-battery-corrosion-on-positive-terminal&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever noticed a white, powdery buildup on your car’s battery, especially around the positive terminal? This annoying corrosion can cause serious problems, from making your car hard to start to damaging your battery over time.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Light Honda Pilot: Easy Step-by-Step Guide"
-description: "Is your Honda Pilot’s oil light flashing and you’re not sure what to do next? You’re in the right place. That little warning can feel alarming, but resetting it"
+title: 'How to Reset Oil Light Honda Pilot: Easy Step-by-Step Guide'
+description: Is your Honda Pilot’s oil light flashing and you’re not sure what to
+  do next? You’re in the right place. That little warning can feel alarming, but resetting
+  it
 pubDate: 2026-05-12
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-light-honda-pilot&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Oil Light Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-light-honda-pilot&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your Honda Pilot’s oil light flashing and you’re not sure what to do next? You’re in the right place.**

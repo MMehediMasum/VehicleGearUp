@@ -1,10 +1,14 @@
 ---
-title: "Why Does My Car Heater Smell Like Gas: Causes & Quick Fixes"
-description: "Have you ever turned on your car heater and caught a strong smell of gas inside your vehicle? That unsettling odor isn’t just annoying—it could be a sign of a s"
+title: 'Why Does My Car Heater Smell Like Gas: Causes & Quick Fixes'
+description: Have you ever turned on your car heater and caught a strong smell of
+  gas inside your vehicle? That unsettling odor isn’t just annoying—it could be a
+  sign of a s
 pubDate: 2026-03-05
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-does-my-car-heater-smell-like-gas&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Heater Not Working
+heroImage: https://tse1.mm.bing.net/th?q=why-does-my-car-heater-smell-like-gas&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever turned on your car heater and caught a strong smell of gas inside your vehicle? That unsettling odor isn’t just annoying—it could be a sign of a serious problem.**

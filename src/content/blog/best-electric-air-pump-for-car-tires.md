@@ -1,10 +1,14 @@
 ---
-title: "Best Electric Air Pump for Car Tires: Top Portable Inflators Reviewed"
-description: "Finding the best electric air pump for car tires saves time and effort during inflation. A reliable pump keeps your tires properly inflated and improves safety."
+title: 'Best Electric Air Pump for Car Tires: Top Portable Inflators Reviewed'
+description: Finding the best electric air pump for car tires saves time and effort
+  during inflation. A reliable pump keeps your tires properly inflated and improves
+  safety.
 pubDate: 2026-01-08
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-electric-air-pump-for-car-tires&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tire Inflators and Compressors
+heroImage: https://tse1.mm.bing.net/th?q=best-electric-air-pump-for-car-tires&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Finding the best electric air pump for car tires saves time and effort during inflation. A reliable pump keeps your tires properly inflated and improves safety.**

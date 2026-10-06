@@ -1,10 +1,14 @@
 ---
-title: "Can am Spyder Vs Harley Davidson Trike: Ultimate Ride Showdown"
-description: "Are you torn between the Can-Am Spyder and the Harley Davidson Trike? Choosing the right three-wheeled ride can change the way you experience the open road. Bot"
+title: 'Can am Spyder Vs Harley Davidson Trike: Ultimate Ride Showdown'
+description: Are you torn between the Can-Am Spyder and the Harley Davidson Trike?
+  Choosing the right three-wheeled ride can change the way you experience the open
+  road. Bot
 pubDate: 2025-08-30
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-am-spyder-vs-harley-davidson-trike&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Ownership Questions
+heroImage: https://tse1.mm.bing.net/th?q=can-am-spyder-vs-harley-davidson-trike&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you torn between the Can-Am Spyder and the Harley Davidson Trike? Choosing the right three-wheeled ride can change the way you experience the open road.**

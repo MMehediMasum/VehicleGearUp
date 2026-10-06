@@ -1,10 +1,14 @@
 ---
-title: "How to Get a Dent Out of a Car Hood: Easy DIY Repair Tips"
-description: "Got a dent on your car hood that’s driving you crazy? You’re not alone, and fixing it might be easier than you think. Whether it’s from a stray shopping cart or"
+title: 'How to Get a Dent Out of a Car Hood: Easy DIY Repair Tips'
+description: Got a dent on your car hood that’s driving you crazy? You’re not alone,
+  and fixing it might be easier than you think. Whether it’s from a stray shopping
+  cart or
 pubDate: 2026-02-08
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-get-a-dent-out-of-a-car-hood&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hood Dents and Chips
+heroImage: https://tse1.mm.bing.net/th?q=how-to-get-a-dent-out-of-a-car-hood&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Got a dent on your car hood that’s driving you crazy? You’re not alone, and fixing it might be easier than you think.**

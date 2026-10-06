@@ -1,10 +1,14 @@
 ---
-title: "Best Portable Jump Starter for Diesel Trucks: Top Powerful Picks"
-description: "Diesel trucks need reliable power sources for quick starts. Portable jump starters offer fast, easy solutions on the go. Choosing the best portable jump starter"
+title: 'Best Portable Jump Starter for Diesel Trucks: Top Powerful Picks'
+description: Diesel trucks need reliable power sources for quick starts. Portable
+  jump starters offer fast, easy solutions on the go. Choosing the best portable jump
+  starter
 pubDate: 2025-09-08
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-portable-jump-starter-for-diesel-trucks&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jump Starting Special Cases
+heroImage: https://tse1.mm.bing.net/th?q=best-portable-jump-starter-for-diesel-trucks&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Diesel trucks need reliable power sources for quick starts. Portable jump starters offer fast, easy solutions on the go.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Tune C5 Corvette for Max Hp: Ultimate Performance Guide"
-description: "If you own a C5 Corvette, you already know it’s a powerful machine with serious potential. But what if you could unlock even more horsepower and make your ride "
+title: 'How to Tune C5 Corvette for Max Hp: Ultimate Performance Guide'
+description: 'If you own a C5 Corvette, you already know it’s a powerful machine with
+  serious potential. But what if you could unlock even more horsepower and make your
+  ride '
 pubDate: 2026-02-27
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-tune-c5-corvette-for-max-hp&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Chevy Engine Tuning
+heroImage: https://tse1.mm.bing.net/th?q=how-to-tune-c5-corvette-for-max-hp&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **If you own a C5 Corvette, you already know it’s a powerful machine with serious potential. But what if you could unlock even more horsepower and make your ride truly unstoppable?**

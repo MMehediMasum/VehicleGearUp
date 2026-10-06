@@ -1,10 +1,14 @@
 ---
-title: "Best 265 50R20 Tires for Jeep Grand Cherokee: Top All-Season Picks"
-description: "Choosing the best 265 50R20 tires for your Jeep Grand Cherokee ensures safety and performance on all roads. This guide highlights top tire options that fit perf"
+title: 'Best 265 50R20 Tires for Jeep Grand Cherokee: Top All-Season Picks'
+description: Choosing the best 265 50R20 tires for your Jeep Grand Cherokee ensures
+  safety and performance on all roads. This guide highlights top tire options that
+  fit perf
 pubDate: 2026-01-10
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-265-50r20-tires-for-jeep-grand-cherokee&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jeep Off Road Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-265-50r20-tires-for-jeep-grand-cherokee&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best 265 50R20 tires for your Jeep Grand Cherokee ensures safety and performance on all roads. This guide highlights top tire options that fit perfectly and drive smoothly.**

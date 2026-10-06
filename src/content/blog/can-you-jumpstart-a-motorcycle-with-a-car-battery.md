@@ -1,10 +1,14 @@
 ---
-title: "Can You Jumpstart a Motorcycle With a Car Battery: Quick Guide"
-description: "Have you ever found yourself stuck with a dead motorcycle battery and wondered if your car battery could save the day? Jumpstarting a motorcycle with a car batt"
+title: 'Can You Jumpstart a Motorcycle With a Car Battery: Quick Guide'
+description: Have you ever found yourself stuck with a dead motorcycle battery and
+  wondered if your car battery could save the day? Jumpstarting a motorcycle with
+  a car batt
 pubDate: 2026-04-16
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-jumpstart-a-motorcycle-with-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Batteries and Brakes
+heroImage: https://tse1.mm.bing.net/th?q=can-you-jumpstart-a-motorcycle-with-a-car-battery&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Have you ever found yourself stuck with a dead motorcycle battery and wondered if your car battery could save the day? Jumpstarting a motorcycle with a car battery might seem like a quick fix, but is it really safe or effective?**

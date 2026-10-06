@@ -1,10 +1,14 @@
 ---
-title: "Best Subwoofer for under Truck Seat: Powerful Slim 10 Bass Boost"
-description: "Choosing the best subwoofer for under truck seat boosts your vehicle’s sound without taking extra space. These compact, powerful subwoofers fit neatly and deliv"
+title: 'Best Subwoofer for under Truck Seat: Powerful Slim 10 Bass Boost'
+description: Choosing the best subwoofer for under truck seat boosts your vehicle’s
+  sound without taking extra space. These compact, powerful subwoofers fit neatly
+  and deliv
 pubDate: 2026-07-20
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-subwoofer-for-under-truck-seat&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Entertainment Systems
+heroImage: https://tse1.mm.bing.net/th?q=best-subwoofer-for-under-truck-seat&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Choosing the best subwoofer for under truck seat boosts your vehicle’s sound without taking extra space. These compact, powerful subwoofers fit neatly and deliver deep bass.**

@@ -1,10 +1,14 @@
 ---
-title: "How Do Self Serve Car Washes Work: Ultimate Guide to DIY Clean Cars"
-description: "Have you ever wondered how self-serve car washes actually work? You might have driven past one and thought it looked simple, but there’s more behind the scenes "
+title: 'How Do Self Serve Car Washes Work: Ultimate Guide to DIY Clean Cars'
+description: 'Have you ever wondered how self-serve car washes actually work? You
+  might have driven past one and thought it looked simple, but there’s more behind
+  the scenes '
 pubDate: 2026-03-22
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-self-serve-car-washes-work&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Do Car Washes Damage Paint
+heroImage: https://tse1.mm.bing.net/th?q=how-do-self-serve-car-washes-work&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever wondered how self-serve car washes actually work? You might have driven past one and thought it looked simple, but there’s more behind the scenes than just spraying water.**

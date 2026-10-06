@@ -1,10 +1,14 @@
 ---
-title: "Why Did Toyota Quit Making the Fj Cruiser: Shocking Reasons Revealed"
-description: "Have you ever wondered why Toyota suddenly stopped making the FJ Cruiser? If you own one or have been dreaming of getting one, this might feel like a big myster"
+title: 'Why Did Toyota Quit Making the Fj Cruiser: Shocking Reasons Revealed'
+description: Have you ever wondered why Toyota suddenly stopped making the FJ Cruiser?
+  If you own one or have been dreaming of getting one, this might feel like a big
+  myster
 pubDate: 2026-02-03
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-did-toyota-quit-making-the-fj-cruiser&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Model Availability and Value
+heroImage: https://tse1.mm.bing.net/th?q=why-did-toyota-quit-making-the-fj-cruiser&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Have you ever wondered why Toyota suddenly stopped making the FJ Cruiser? If you own one or have been dreaming of getting one, this might feel like a big mystery.**

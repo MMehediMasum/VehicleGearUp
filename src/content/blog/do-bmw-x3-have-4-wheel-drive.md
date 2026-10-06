@@ -1,10 +1,13 @@
 ---
-title: "Do Bmw X3 Have 4 Wheel Drive: Ultimate Traction Explained"
-description: "Are you wondering if the BMW X3 comes with 4-wheel drive? Whether you’re planning to tackle rough roads or just want extra control on slippery streets, knowing "
+title: 'Do Bmw X3 Have 4 Wheel Drive: Ultimate Traction Explained'
+description: 'Are you wondering if the BMW X3 comes with 4-wheel drive? Whether you’re
+  planning to tackle rough roads or just want extra control on slippery streets, knowing '
 pubDate: 2025-09-13
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-bmw-x3-have-4-wheel-drive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota 4WD Questions
+heroImage: https://tse1.mm.bing.net/th?q=do-bmw-x3-have-4-wheel-drive&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you wondering if the BMW X3 comes with 4-wheel drive? Whether you’re planning to tackle rough roads or just want extra control on slippery streets, knowing how the X3 handles power can make all the difference.**

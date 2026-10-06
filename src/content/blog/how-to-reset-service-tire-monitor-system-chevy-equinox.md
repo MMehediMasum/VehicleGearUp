@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Service Tire Monitor System Chevy Equinox: Easy Steps"
-description: "Is your Chevy Equinox showing the dreaded “Service Tire Monitor System” warning? It can be confusing and even a bit worrying. But don’t panic—you can fix this y"
+title: 'How to Reset Service Tire Monitor System Chevy Equinox: Easy Steps'
+description: Is your Chevy Equinox showing the dreaded “Service Tire Monitor System”
+  warning? It can be confusing and even a bit worrying. But don’t panic—you can fix
+  this y
 pubDate: 2026-03-05
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-service-tire-monitor-system-chevy-equinox&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Checking Tire Pressure
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-service-tire-monitor-system-chevy-equinox&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Is your Chevy Equinox showing the dreaded “Service Tire Monitor System” warning? It can be confusing and even a bit worrying.**

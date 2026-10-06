@@ -1,10 +1,14 @@
 ---
-title: "How to Recondition Car Batteries at Home: Easy DIY Guide"
-description: "Is your car battery losing power faster than usual? You don’t have to rush out and buy a new one just yet. What if you could bring your old battery back to life"
+title: 'How to Recondition Car Batteries at Home: Easy DIY Guide'
+description: Is your car battery losing power faster than usual? You don’t have to
+  rush out and buy a new one just yet. What if you could bring your old battery back
+  to life
 pubDate: 2026-03-05
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-recondition-car-batteries-at-home&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Reviving a Dead Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-recondition-car-batteries-at-home&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your car battery losing power faster than usual? You don’t have to rush out and buy a new one just yet.**

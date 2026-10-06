@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for 2022 Nissan Frontier: Top Durable and Reliable Picks"
-description: "Choosing the best tires for your 2022 Nissan Frontier ensures safety and performance on all roads. Proper tires improve handling, fuel efficiency, and ride comf"
+title: 'Best Tires for 2022 Nissan Frontier: Top Durable and Reliable Picks'
+description: Choosing the best tires for your 2022 Nissan Frontier ensures safety
+  and performance on all roads. Proper tires improve handling, fuel efficiency, and
+  ride comf
 pubDate: 2025-12-25
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-2022-nissan-frontier&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Mud Street and RV Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-2022-nissan-frontier&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your 2022 Nissan Frontier ensures safety and performance on all roads. Proper tires improve handling, fuel efficiency, and ride comfort.**

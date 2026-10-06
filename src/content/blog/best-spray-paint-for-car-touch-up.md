@@ -1,10 +1,14 @@
 ---
-title: "Best Spray Paint for Car Touch Up: Top Durable and Color-Accurate Picks"
-description: "Choosing the best spray paint for car touch-up improves your vehicle’s look and protects it from damage. Quality spray paint ensures a smooth, lasting finish th"
+title: 'Best Spray Paint for Car Touch Up: Top Durable and Color-Accurate Picks'
+description: Choosing the best spray paint for car touch-up improves your vehicle’s
+  look and protects it from damage. Quality spray paint ensures a smooth, lasting
+  finish th
 pubDate: 2026-07-06
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-spray-paint-for-car-touch-up&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spray Paint and Scratch Repair
+heroImage: https://tse1.mm.bing.net/th?q=best-spray-paint-for-car-touch-up&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best spray paint for car touch-up improves your vehicle’s look and protects it from damage. Quality spray paint ensures a smooth, lasting finish that matches your car’s color.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Check Transmission Fluid Honda Civic 2014: Easy Step-by-Step Guide"
-description: "If you own a 2014 Honda Civic, keeping your car’s transmission fluid at the right level is key to smooth driving and avoiding costly repairs. But do you know ho"
+title: 'How to Check Transmission Fluid Honda Civic 2014: Easy Step-by-Step Guide'
+description: If you own a 2014 Honda Civic, keeping your car’s transmission fluid
+  at the right level is key to smooth driving and avoiding costly repairs. But do
+  you know ho
 pubDate: 2026-05-05
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-check-transmission-fluid-honda-civic-2014&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Transmission Fluid Checks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-check-transmission-fluid-honda-civic-2014&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a 2014 Honda Civic, keeping your car’s transmission fluid at the right level is key to smooth driving and avoiding costly repairs. But do you know how to check it properly?**

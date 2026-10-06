@@ -1,10 +1,14 @@
 ---
-title: "Is a Honda Civic a Front Wheel Drive: Ultimate Guide Revealed"
-description: "Are you curious about how your Honda Civic handles the road? Knowing whether your car is front wheel drive can change the way you drive and maintain it. It affe"
+title: 'Is a Honda Civic a Front Wheel Drive: Ultimate Guide Revealed'
+description: Are you curious about how your Honda Civic handles the road? Knowing
+  whether your car is front wheel drive can change the way you drive and maintain
+  it. It affe
 pubDate: 2025-08-30
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-a-honda-civic-a-front-wheel-drive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota 4WD Questions
+heroImage: https://tse1.mm.bing.net/th?q=is-a-honda-civic-a-front-wheel-drive&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you curious about how your Honda Civic handles the road? Knowing whether your car is front wheel drive can change the way you drive and maintain it.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Leather Cleaner And Conditioner for Cars: Top Picks for Ultimate Care"
-description: "Keeping your car’s leather seats clean and soft extends their life and maintains their look. Choosing the right leather cleaner and conditioner makes a big diff"
+title: 'Best Leather Cleaner And Conditioner for Cars: Top Picks for Ultimate Care'
+description: Keeping your car’s leather seats clean and soft extends their life and
+  maintains their look. Choosing the right leather cleaner and conditioner makes a
+  big diff
 pubDate: 2025-10-04
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-leather-cleaner-and-conditioner-for-cars&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Leather and Dashboard Care
+heroImage: https://tse1.mm.bing.net/th?q=best-leather-cleaner-and-conditioner-for-cars&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Keeping your car’s leather seats clean and soft extends their life and maintains their look. Choosing the right leather cleaner and conditioner makes a big difference.**

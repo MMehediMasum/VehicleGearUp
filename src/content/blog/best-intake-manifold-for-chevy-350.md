@@ -1,10 +1,14 @@
 ---
-title: "Best Intake Manifold for Chevy 350: Top Aluminum Dual Plane Picks"
-description: "Finding the best intake manifold for a Chevy 350 can improve engine power and efficiency. Choosing the right model matters for performance and reliability. The "
+title: 'Best Intake Manifold for Chevy 350: Top Aluminum Dual Plane Picks'
+description: 'Finding the best intake manifold for a Chevy 350 can improve engine
+  power and efficiency. Choosing the right model matters for performance and reliability.
+  The '
 pubDate: 2026-06-20
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-intake-manifold-for-chevy-350&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Intake Manifolds
+heroImage: https://tse1.mm.bing.net/th?q=best-intake-manifold-for-chevy-350&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Finding the best intake manifold for a Chevy 350 can improve engine power and efficiency. Choosing the right model matters for performance and reliability.**

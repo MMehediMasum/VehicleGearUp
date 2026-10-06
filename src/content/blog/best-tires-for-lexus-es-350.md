@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Lexus ES 350: Top All-Season High Performance Picks"
-description: "Choosing the best tires for your Lexus ES 350 ensures safety and smooth driving. Quality tires improve handling, comfort, and fuel efficiency. The Lexus ES 350 "
+title: 'Best Tires for Lexus ES 350: Top All-Season High Performance Picks'
+description: 'Choosing the best tires for your Lexus ES 350 ensures safety and smooth
+  driving. Quality tires improve handling, comfort, and fuel efficiency. The Lexus
+  ES 350 '
 pubDate: 2025-12-25
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-lexus-es-350&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Trim Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-lexus-es-350&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your Lexus ES 350 ensures safety and smooth driving. Quality tires improve handling, comfort, and fuel efficiency.**

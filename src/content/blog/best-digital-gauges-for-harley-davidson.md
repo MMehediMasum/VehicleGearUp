@@ -1,10 +1,14 @@
 ---
-title: "Best Digital Gauges for Harley Davidson: Top Picks for Precision and Style"
-description: "Digital gauges enhance Harley Davidson motorcycles by offering clear, accurate readings and a modern look. Choosing the right set improves your ride’s performan"
+title: 'Best Digital Gauges for Harley Davidson: Top Picks for Precision and Style'
+description: Digital gauges enhance Harley Davidson motorcycles by offering clear,
+  accurate readings and a modern look. Choosing the right set improves your ride’s
+  performan
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-digital-gauges-for-harley-davidson&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Ownership Questions
+heroImage: https://tse1.mm.bing.net/th?q=best-digital-gauges-for-harley-davidson&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Digital gauges enhance Harley Davidson motorcycles by offering clear, accurate readings and a modern look. Choosing the right set improves your ride’s performance and safety.**

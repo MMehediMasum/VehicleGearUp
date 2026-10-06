@@ -1,10 +1,14 @@
 ---
-title: "How to Tell If Your Car Alternator is Going Bad: Key Warning Signs"
-description: "Have you noticed your car’s lights flickering or your battery warning light turning on? These could be signs that your alternator is starting to fail. Your alte"
+title: 'How to Tell If Your Car Alternator is Going Bad: Key Warning Signs'
+description: Have you noticed your car’s lights flickering or your battery warning
+  light turning on? These could be signs that your alternator is starting to fail.
+  Your alte
 pubDate: 2026-04-13
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-tell-if-your-car-alternator-is-going-bad&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Charging While Idling
+heroImage: https://tse1.mm.bing.net/th?q=how-to-tell-if-your-car-alternator-is-going-bad&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you noticed your car’s lights flickering or your battery warning light turning on? These could be signs that your alternator is starting to fail.**

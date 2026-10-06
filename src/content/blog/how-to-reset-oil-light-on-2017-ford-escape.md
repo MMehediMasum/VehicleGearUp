@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Light on 2017 Ford Escape: Quick & Easy Steps"
-description: "You just changed the oil in your 2017 Ford Escape, but that stubborn oil light on your dashboard won’t turn off. It’s frustrating, right? If you don’t reset the"
+title: 'How to Reset Oil Light on 2017 Ford Escape: Quick & Easy Steps'
+description: You just changed the oil in your 2017 Ford Escape, but that stubborn
+  oil light on your dashboard won’t turn off. It’s frustrating, right? If you don’t
+  reset the
 pubDate: 2026-05-18
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-light-on-2017-ford-escape&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Oil Light Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-light-on-2017-ford-escape&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **You just changed the oil in your 2017 Ford Escape, but that stubborn oil light on your dashboard won’t turn off. It’s frustrating, right?**

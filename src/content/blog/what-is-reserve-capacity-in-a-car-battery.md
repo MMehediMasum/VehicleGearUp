@@ -1,10 +1,14 @@
 ---
-title: "What is Reserve Capacity in a Car Battery: Essential Guide Explained"
-description: "Have you ever wondered how long your car battery can keep your vehicle running if the alternator fails? That’s where reserve capacity comes into play. Understan"
+title: 'What is Reserve Capacity in a Car Battery: Essential Guide Explained'
+description: Have you ever wondered how long your car battery can keep your vehicle
+  running if the alternator fails? That’s where reserve capacity comes into play.
+  Understan
 pubDate: 2026-05-31
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-reserve-capacity-in-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Ratings Explained
+heroImage: https://tse1.mm.bing.net/th?q=what-is-reserve-capacity-in-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered how long your car battery can keep your vehicle running if the alternator fails? That’s where reserve capacity comes into play.**

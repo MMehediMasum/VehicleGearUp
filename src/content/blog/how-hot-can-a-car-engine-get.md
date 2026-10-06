@@ -1,10 +1,14 @@
 ---
-title: "How Hot Can a Car Engine Get: Shocking Temperatures Revealed"
-description: "Have you ever wondered just how hot your car’s engine can get? Knowing this can help you protect your vehicle and avoid costly repairs. Your engine works hard e"
+title: 'How Hot Can a Car Engine Get: Shocking Temperatures Revealed'
+description: Have you ever wondered just how hot your car’s engine can get? Knowing
+  this can help you protect your vehicle and avoid costly repairs. Your engine works
+  hard e
 pubDate: 2026-05-12
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-hot-can-a-car-engine-get&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- How Car Engines Work
+heroImage: https://tse1.mm.bing.net/th?q=how-hot-can-a-car-engine-get&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you ever wondered just how hot your car’s engine can get? Knowing this can help you protect your vehicle and avoid costly repairs.**

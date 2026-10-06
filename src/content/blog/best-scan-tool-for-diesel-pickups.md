@@ -1,10 +1,13 @@
 ---
-title: "Best Scan Tool for Diesel Pickups: Top Heavy Duty Diagnostic Solutions"
-description: "Finding the best scan tool for diesel pickups helps keep your truck running smoothly. These tools read and clear engine codes fast. Diesel pickups need reliable"
+title: 'Best Scan Tool for Diesel Pickups: Top Heavy Duty Diagnostic Solutions'
+description: Finding the best scan tool for diesel pickups helps keep your truck running
+  smoothly. These tools read and clear engine codes fast. Diesel pickups need reliable
 pubDate: 2026-06-10
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-scan-tool-for-diesel-pickups&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Scan Tools and Code Readers
+heroImage: https://tse1.mm.bing.net/th?q=best-scan-tool-for-diesel-pickups&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Finding the best scan tool for diesel pickups helps keep your truck running smoothly. These tools read and clear engine codes fast.**

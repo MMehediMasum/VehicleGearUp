@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for 2012 Ford Fusion: Top All-Season Radial Picks Reviewed"
-description: "Choosing the best tires for a 2012 Ford Fusion improves safety and driving comfort. Quality tires suit your driving style and weather conditions. The 2012 Ford "
+title: 'Best Tires for 2012 Ford Fusion: Top All-Season Radial Picks Reviewed'
+description: 'Choosing the best tires for a 2012 Ford Fusion improves safety and driving
+  comfort. Quality tires suit your driving style and weather conditions. The 2012
+  Ford '
 pubDate: 2025-12-25
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-2012-ford-fusion&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Car and Truck Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-2012-ford-fusion&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for a 2012 Ford Fusion improves safety and driving comfort. Quality tires suit your driving style and weather conditions.**

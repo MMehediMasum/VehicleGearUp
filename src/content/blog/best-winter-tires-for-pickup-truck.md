@@ -1,10 +1,14 @@
 ---
-title: "Best Winter Tires for Pickup Truck: Top Traction and Safety Picks"
-description: "Choosing the best winter tires for your pickup truck improves safety and performance in snow and ice. Quality tires and chains help maintain control on slippery"
+title: 'Best Winter Tires for Pickup Truck: Top Traction and Safety Picks'
+description: Choosing the best winter tires for your pickup truck improves safety
+  and performance in snow and ice. Quality tires and chains help maintain control
+  on slippery
 pubDate: 2025-12-27
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-winter-tires-for-pickup-truck&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Mud and Highway Truck Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-winter-tires-for-pickup-truck&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best winter tires for your pickup truck improves safety and performance in snow and ice. Quality tires and chains help maintain control on slippery roads.**

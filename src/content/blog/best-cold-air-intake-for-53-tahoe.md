@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for 5.3 Tahoe to Boost Power and Efficiency"
-description: "Choosing the best cold air intake for your 5.3 Tahoe boosts engine power and fuel efficiency. This guide covers top options for reliable performance and fit. Co"
+title: Best Cold Air Intake for 5.3 Tahoe to Boost Power and Efficiency
+description: Choosing the best cold air intake for your 5.3 Tahoe boosts engine power
+  and fuel efficiency. This guide covers top options for reliable performance and
+  fit. Co
 pubDate: 2026-06-07
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-53-tahoe&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- GM Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-53-tahoe&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best cold air intake for your 5.3 Tahoe boosts engine power and fuel efficiency. This guide covers top options for reliable performance and fit.**

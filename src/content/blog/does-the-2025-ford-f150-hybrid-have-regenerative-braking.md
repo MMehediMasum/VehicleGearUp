@@ -1,10 +1,14 @@
 ---
-title: "Does the 2025 Ford F150 Hybrid Have Regenerative Braking? Key Facts"
-description: "Are you curious about how the 2025 Ford F150 Hybrid saves energy while you drive? One feature that can make a big difference is regenerative braking. It helps r"
+title: Does the 2025 Ford F150 Hybrid Have Regenerative Braking? Key Facts
+description: Are you curious about how the 2025 Ford F150 Hybrid saves energy while
+  you drive? One feature that can make a big difference is regenerative braking. It
+  helps r
 pubDate: 2026-03-07
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-the-2025-ford-f150-hybrid-have-regenerative-braking&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hybrid Battery and Braking
+heroImage: https://tse1.mm.bing.net/th?q=does-the-2025-ford-f150-hybrid-have-regenerative-braking&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you curious about how the 2025 Ford F150 Hybrid saves energy while you drive? One feature that can make a big difference is regenerative braking.**

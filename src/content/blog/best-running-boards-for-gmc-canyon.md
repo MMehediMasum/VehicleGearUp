@@ -1,10 +1,14 @@
 ---
-title: "Best Running Boards for GMC Canyon: Top Side Steps for Easy Access"
-description: "Finding the best running boards for your GMC Canyon improves both style and convenience. Running boards make getting in and out of your truck easier and protect"
+title: 'Best Running Boards for GMC Canyon: Top Side Steps for Easy Access'
+description: Finding the best running boards for your GMC Canyon improves both style
+  and convenience. Running boards make getting in and out of your truck easier and
+  protect
 pubDate: 2026-06-12
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-running-boards-for-gmc-canyon&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Running Boards
+heroImage: https://tse1.mm.bing.net/th?q=best-running-boards-for-gmc-canyon&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Finding the best running boards for your GMC Canyon improves both style and convenience. Running boards make getting in and out of your truck easier and protect its sides from dirt and debris.**

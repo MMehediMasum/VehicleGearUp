@@ -1,10 +1,14 @@
 ---
-title: "What is the Size of Toyota Camry Tire: Ultimate Guide 2025"
-description: "Are you curious about the exact size of the tires on your Toyota Camry? Knowing your tire size is more important than you might think. It affects your car’s saf"
+title: 'What is the Size of Toyota Camry Tire: Ultimate Guide 2025'
+description: Are you curious about the exact size of the tires on your Toyota Camry?
+  Knowing your tire size is more important than you might think. It affects your car’s
+  saf
 pubDate: 2026-03-04
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-size-of-toyota-camry-tire&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tire Age Pressure and Size
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-size-of-toyota-camry-tire&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Are you curious about the exact size of the tires on your Toyota Camry? Knowing your tire size is more important than you might think.**

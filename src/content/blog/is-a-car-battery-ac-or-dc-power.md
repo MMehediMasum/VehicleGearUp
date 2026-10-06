@@ -1,10 +1,14 @@
 ---
-title: "Is a Car Battery Ac Or Dc Power: Essential Facts You Must Know"
-description: "Have you ever wondered if the power running your car battery is AC or DC? Understanding this can help you take better care of your vehicle and avoid common mist"
+title: 'Is a Car Battery Ac Or Dc Power: Essential Facts You Must Know'
+description: Have you ever wondered if the power running your car battery is AC or
+  DC? Understanding this can help you take better care of your vehicle and avoid common
+  mist
 pubDate: 2026-04-13
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-a-car-battery-ac-or-dc-power&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Types and Specs
+heroImage: https://tse1.mm.bing.net/th?q=is-a-car-battery-ac-or-dc-power&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if the power running your car battery is AC or DC? Understanding this can help you take better care of your vehicle and avoid common mistakes.**

@@ -1,10 +1,14 @@
 ---
-title: "What Setting on Multimeter to Test Car Battery: Easy Step-by-Step Guide"
-description: "Are you wondering how to check if your car battery is still good or needs a replacement? Using a multimeter is one of the easiest and most accurate ways to test"
+title: 'What Setting on Multimeter to Test Car Battery: Easy Step-by-Step Guide'
+description: Are you wondering how to check if your car battery is still good or needs
+  a replacement? Using a multimeter is one of the easiest and most accurate ways to
+  test
 pubDate: 2026-04-10
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-setting-on-multimeter-to-test-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Testing Battery With Multimeter
+heroImage: https://tse1.mm.bing.net/th?q=what-setting-on-multimeter-to-test-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you wondering how to check if your car battery is still good or needs a replacement? Using a multimeter is one of the easiest and most accurate ways to test your battery’s health.**

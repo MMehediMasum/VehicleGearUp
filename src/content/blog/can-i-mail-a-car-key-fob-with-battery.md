@@ -1,10 +1,14 @@
 ---
-title: "Can I Mail a Car Key Fob With Battery? Essential Shipping Tips"
-description: "Have you ever wondered if you can safely mail a car key fob with its battery inside? Maybe you need to send a spare key to a friend or get a replacement deliver"
+title: Can I Mail a Car Key Fob With Battery? Essential Shipping Tips
+description: Have you ever wondered if you can safely mail a car key fob with its
+  battery inside? Maybe you need to send a spare key to a friend or get a replacement
+  deliver
 pubDate: 2026-04-05
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-i-mail-a-car-key-fob-with-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Key Fob Battery Replacement
+heroImage: https://tse1.mm.bing.net/th?q=can-i-mail-a-car-key-fob-with-battery&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **Have you ever wondered if you can safely mail a car key fob with its battery inside? Maybe you need to send a spare key to a friend or get a replacement delivered to your home.**

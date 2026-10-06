@@ -1,10 +1,14 @@
 ---
-title: "Best Battery for RV Dry Camping: Top Reliable Deep Cycle Picks"
-description: "Choosing the best battery for RV dry camping ensures reliable power without hookups. A quality battery keeps your devices running and your trip comfortable. Dry"
+title: 'Best Battery for RV Dry Camping: Top Reliable Deep Cycle Picks'
+description: Choosing the best battery for RV dry camping ensures reliable power without
+  hookups. A quality battery keeps your devices running and your trip comfortable.
+  Dry
 pubDate: 2026-07-09
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-battery-for-rv-dry-camping&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Best Truck and SUV Batteries
+heroImage: https://tse1.mm.bing.net/th?q=best-battery-for-rv-dry-camping&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Choosing the best battery for RV dry camping ensures reliable power without hookups. A quality battery keeps your devices running and your trip comfortable.**

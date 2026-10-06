@@ -1,10 +1,14 @@
 ---
-title: "Best Windshield Sun Shade for Ford F150 to Beat Heat and UV Rays"
-description: "Protecting your Ford F150 from harsh sun rays keeps the interior cool and prevents damage. A good windshield sun shade blocks UV rays and lowers temperature ins"
+title: Best Windshield Sun Shade for Ford F150 to Beat Heat and UV Rays
+description: Protecting your Ford F150 from harsh sun rays keeps the interior cool
+  and prevents damage. A good windshield sun shade blocks UV rays and lowers temperature
+  ins
 pubDate: 2026-07-08
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-windshield-sun-shade-for-ford-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Sun Shades and Visors
+heroImage: https://tse1.mm.bing.net/th?q=best-windshield-sun-shade-for-ford-f150&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Protecting your Ford F150 from harsh sun rays keeps the interior cool and prevents damage. A good windshield sun shade blocks UV rays and lowers temperature inside.**

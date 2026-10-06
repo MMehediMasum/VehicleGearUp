@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Mountain Bike on Road: Top Durable MTB Tire Picks"
-description: "Choosing the best tires for a mountain bike on road rides improves comfort and control. Not all mountain bike tires suit paved surfaces well. Mountain bike tire"
+title: 'Best Tires for Mountain Bike on Road: Top Durable MTB Tire Picks'
+description: Choosing the best tires for a mountain bike on road rides improves comfort
+  and control. Not all mountain bike tires suit paved surfaces well. Mountain bike
+  tire
 pubDate: 2026-01-06
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-mountain-bike-on-road&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Bike Tires and Pumps
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-mountain-bike-on-road&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best tires for a mountain bike on road rides improves comfort and control. Not all mountain bike tires suit paved surfaces well.**

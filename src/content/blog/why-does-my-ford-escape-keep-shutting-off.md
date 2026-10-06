@@ -1,10 +1,13 @@
 ---
-title: "Why Does My Ford Escape Keep Shutting Off: Top Causes Explained"
-description: "Are you frustrated because your Ford Escape keeps shutting off unexpectedly? You’re not alone, and this problem can be both confusing and dangerous. Understandi"
+title: 'Why Does My Ford Escape Keep Shutting Off: Top Causes Explained'
+description: Are you frustrated because your Ford Escape keeps shutting off unexpectedly?
+  You’re not alone, and this problem can be both confusing and dangerous. Understandi
 pubDate: 2026-03-10
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-does-my-ford-escape-keep-shutting-off&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Not Starting Causes
+heroImage: https://tse1.mm.bing.net/th?q=why-does-my-ford-escape-keep-shutting-off&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are you frustrated because your Ford Escape keeps shutting off unexpectedly? You’re not alone, and this problem can be both confusing and dangerous.**

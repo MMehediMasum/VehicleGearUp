@@ -1,10 +1,14 @@
 ---
-title: "Best Grease for Tie Rod Ends: Top Durable and High-Performance Picks"
-description: "Choosing the best grease for tie rod ends ensures smooth steering and longer part life. Proper lubrication protects against wear, dirt, and rust. Tie rod ends c"
+title: 'Best Grease for Tie Rod Ends: Top Durable and High-Performance Picks'
+description: Choosing the best grease for tie rod ends ensures smooth steering and
+  longer part life. Proper lubrication protects against wear, dirt, and rust. Tie
+  rod ends c
 pubDate: 2026-06-21
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-grease-for-tie-rod-ends&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Truck Suspension Upgrades
+heroImage: https://tse1.mm.bing.net/th?q=best-grease-for-tie-rod-ends&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Choosing the best grease for tie rod ends ensures smooth steering and longer part life. Proper lubrication protects against wear, dirt, and rust.**

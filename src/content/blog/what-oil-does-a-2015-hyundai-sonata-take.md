@@ -1,10 +1,14 @@
 ---
-title: "What Oil Does a 2015 Hyundai Sonata Take: Essential Guide"
-description: "If you own a 2015 Hyundai Sonata, you know how important it is to keep your car running smoothly. One key part of that is using the right oil. But what oil does"
+title: 'What Oil Does a 2015 Hyundai Sonata Take: Essential Guide'
+description: If you own a 2015 Hyundai Sonata, you know how important it is to keep
+  your car running smoothly. One key part of that is using the right oil. But what
+  oil does
 pubDate: 2026-05-07
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-oil-does-a-2015-hyundai-sonata-take&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- What Oil to Use
+heroImage: https://tse1.mm.bing.net/th?q=what-oil-does-a-2015-hyundai-sonata-take&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a 2015 Hyundai Sonata, you know how important it is to keep your car running smoothly. One key part of that is using the right oil.**

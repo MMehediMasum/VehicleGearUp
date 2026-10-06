@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for 3Rd Gen 4Runner: Top Picks for Off-Road Performance"
-description: "Choosing the best tires for a 3rd Gen 4Runner improves driving safety and off-road performance. Tires must fit well and handle different terrains. The 3rd Gen T"
+title: 'Best Tires for 3Rd Gen 4Runner: Top Picks for Off-Road Performance'
+description: Choosing the best tires for a 3rd Gen 4Runner improves driving safety
+  and off-road performance. Tires must fit well and handle different terrains. The
+  3rd Gen T
 pubDate: 2025-12-30
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-3rd-gen-4runner&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Trim Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-3rd-gen-4runner&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for a 3rd Gen 4Runner improves driving safety and off-road performance. Tires must fit well and handle different terrains.**

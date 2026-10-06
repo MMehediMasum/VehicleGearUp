@@ -1,10 +1,14 @@
 ---
-title: "How to Check Transmission Fluid in Jeep Cherokee: Easy Step-by-Step Guide"
-description: "If you own a Jeep Cherokee, keeping your transmission fluid at the right level is key to smooth driving and avoiding costly repairs. But do you know how to chec"
+title: 'How to Check Transmission Fluid in Jeep Cherokee: Easy Step-by-Step Guide'
+description: If you own a Jeep Cherokee, keeping your transmission fluid at the right
+  level is key to smooth driving and avoiding costly repairs. But do you know how
+  to chec
 pubDate: 2025-11-12
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-check-transmission-fluid-in-jeep-cherokee&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Transmission Fluid Checks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-check-transmission-fluid-in-jeep-cherokee&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a Jeep Cherokee, keeping your transmission fluid at the right level is key to smooth driving and avoiding costly repairs. But do you know how to check it properly?**

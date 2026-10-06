@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Change Light on 2008 Honda Civic: Easy Steps"
-description: "If you’ve just changed the oil on your 2008 Honda Civic but the oil change light is still on, you’re probably wondering what to do next. That little light can b"
+title: 'How to Reset Oil Change Light on 2008 Honda Civic: Easy Steps'
+description: If you’ve just changed the oil on your 2008 Honda Civic but the oil change
+  light is still on, you’re probably wondering what to do next. That little light
+  can b
 pubDate: 2025-09-02
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-change-light-on-2008-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Oil Change Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-change-light-on-2008-honda-civic&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you’ve just changed the oil on your 2008 Honda Civic but the oil change light is still on, you’re probably wondering what to do next. That little light can be annoying and distracting, but resetting it is easier than you might think.**

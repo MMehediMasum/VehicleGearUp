@@ -1,10 +1,13 @@
 ---
-title: "Does Mister Car Wash Have Free Vacuums? Discover the Truth!"
-description: "Are you wondering if Mister Car Wash offers free vacuums for your vehicle? You want a clean car inside and out without paying extra or dealing with complicated "
+title: Does Mister Car Wash Have Free Vacuums? Discover the Truth!
+description: 'Are you wondering if Mister Car Wash offers free vacuums for your vehicle?
+  You want a clean car inside and out without paying extra or dealing with complicated '
 pubDate: 2026-05-30
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-mister-car-wash-have-free-vacuums&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wash Costs and Etiquette
+heroImage: https://tse1.mm.bing.net/th?q=does-mister-car-wash-have-free-vacuums&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Are you wondering if Mister Car Wash offers free vacuums for your vehicle? You want a clean car inside and out without paying extra or dealing with complicated details.**

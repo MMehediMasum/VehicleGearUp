@@ -1,10 +1,13 @@
 ---
-title: "How to Turn off Hill Descent Control Ford Focus: Easy Steps Guide"
-description: "If you drive a Ford Focus, you might have noticed the Hill Descent Control feature. It helps you stay safe on steep slopes by controlling your speed automatical"
+title: 'How to Turn off Hill Descent Control Ford Focus: Easy Steps Guide'
+description: If you drive a Ford Focus, you might have noticed the Hill Descent Control
+  feature. It helps you stay safe on steep slopes by controlling your speed automatical
 pubDate: 2026-03-09
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-hill-descent-control-ford-focus&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Turning Off Dash Beeps
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-hill-descent-control-ford-focus&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If you drive a Ford Focus, you might have noticed the Hill Descent Control feature. It helps you stay safe on steep slopes by controlling your speed automatically.**

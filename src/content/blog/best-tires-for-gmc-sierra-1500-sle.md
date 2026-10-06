@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for GMC Sierra 1500 SLE: Top All-Terrain Picks Reviewed"
-description: "Choosing the best tires for your GMC Sierra 1500 SLE improves safety, performance, and comfort. The right tires handle different roads and weather well. This gu"
+title: 'Best Tires for GMC Sierra 1500 SLE: Top All-Terrain Picks Reviewed'
+description: Choosing the best tires for your GMC Sierra 1500 SLE improves safety,
+  performance, and comfort. The right tires handle different roads and weather well.
+  This gu
 pubDate: 2026-01-10
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-gmc-sierra-1500-sle&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Chevy and GMC Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-gmc-sierra-1500-sle&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your GMC Sierra 1500 SLE improves safety, performance, and comfort. The right tires handle different roads and weather well.**

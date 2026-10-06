@@ -1,10 +1,14 @@
 ---
-title: "Do It Yourself Bike Rack for Truck Bed: Easy, Affordable & Durable"
-description: "If you love taking your bike on every adventure, you know how tricky it can be to find the perfect way to carry it in your truck bed. Buying a bike rack can be "
+title: 'Do It Yourself Bike Rack for Truck Bed: Easy, Affordable & Durable'
+description: 'If you love taking your bike on every adventure, you know how tricky
+  it can be to find the perfect way to carry it in your truck bed. Buying a bike rack
+  can be '
 pubDate: 2025-09-02
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-it-yourself-bike-rack-for-truck-bed&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Truck Bed Gear
+heroImage: https://tse1.mm.bing.net/th?q=do-it-yourself-bike-rack-for-truck-bed&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **If you love taking your bike on every adventure, you know how tricky it can be to find the perfect way to carry it in your truck bed. Buying a bike rack can be expensive and may not fit your exact needs.**

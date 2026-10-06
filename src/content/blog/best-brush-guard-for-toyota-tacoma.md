@@ -1,10 +1,14 @@
 ---
-title: "Best Brush Guard for Toyota Tacoma: Top Durable Front Bumper Protectors"
-description: "Protect your Toyota Tacoma with a durable brush guard designed to shield the front bumper from damage. The right brush guard adds toughness and style to your tr"
+title: 'Best Brush Guard for Toyota Tacoma: Top Durable Front Bumper Protectors'
+description: Protect your Toyota Tacoma with a durable brush guard designed to shield
+  the front bumper from damage. The right brush guard adds toughness and style to
+  your tr
 pubDate: 2026-06-22
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-brush-guard-for-toyota-tacoma&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Mirrors and Trim Adhesives
+heroImage: https://tse1.mm.bing.net/th?q=best-brush-guard-for-toyota-tacoma&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Protect your Toyota Tacoma with a durable brush guard designed to shield the front bumper from damage. The right brush guard adds toughness and style to your truck.**

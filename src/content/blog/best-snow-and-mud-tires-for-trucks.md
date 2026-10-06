@@ -1,10 +1,13 @@
 ---
-title: "Best Snow And Mud Tires for Trucks: Top Durable Off-Road Picks"
-description: "Choosing the right snow and mud tires keeps your truck safe and steady on tough roads. Good tires improve grip and help avoid getting stuck in harsh conditions."
+title: 'Best Snow And Mud Tires for Trucks: Top Durable Off-Road Picks'
+description: Choosing the right snow and mud tires keeps your truck safe and steady
+  on tough roads. Good tires improve grip and help avoid getting stuck in harsh conditions.
 pubDate: 2025-10-30
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-snow-and-mud-tires-for-trucks&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Snow Tires for Trucks
+heroImage: https://tse1.mm.bing.net/th?q=best-snow-and-mud-tires-for-trucks&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the right snow and mud tires keeps your truck safe and steady on tough roads. Good tires improve grip and help avoid getting stuck in harsh conditions.**

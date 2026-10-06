@@ -1,10 +1,14 @@
 ---
-title: "Who to Call for Dead Car Battery: Quick Help You Can Trust"
-description: "Imagine this: you’re all set to head out, but your car won’t start. The reason? A dead battery. It’s frustrating, stressful, and often happens at the worst time"
+title: 'Who to Call for Dead Car Battery: Quick Help You Can Trust'
+description: 'Imagine this: you’re all set to head out, but your car won’t start.
+  The reason? A dead battery. It’s frustrating, stressful, and often happens at the
+  worst time'
 pubDate: 2025-09-16
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=who-to-call-for-dead-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Reviving a Dead Battery
+heroImage: https://tse1.mm.bing.net/th?q=who-to-call-for-dead-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Imagine this: you’re all set to head out, but your car won’t start. The reason?**

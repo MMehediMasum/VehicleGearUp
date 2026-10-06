@@ -1,10 +1,14 @@
 ---
-title: "Best All Weather Tires for Honda Civic: Top Picks for Ultimate Traction"
-description: "Choosing the best all-weather tires for your Honda Civic ensures safe driving in rain, snow, and dry conditions. Reliable tires improve grip and comfort year-ro"
+title: 'Best All Weather Tires for Honda Civic: Top Picks for Ultimate Traction'
+description: Choosing the best all-weather tires for your Honda Civic ensures safe
+  driving in rain, snow, and dry conditions. Reliable tires improve grip and comfort
+  year-ro
 pubDate: 2025-10-21
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-all-weather-tires-for-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- All Season SUV Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-all-weather-tires-for-honda-civic&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best all-weather tires for your Honda Civic ensures safe driving in rain, snow, and dry conditions. Reliable tires improve grip and comfort year-round.**

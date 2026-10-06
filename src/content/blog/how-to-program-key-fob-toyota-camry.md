@@ -1,10 +1,14 @@
 ---
-title: "How to Program Key Fob Toyota Camry: Easy Steps to Save Time"
-description: "Losing or replacing your Toyota Camry key fob can be frustrating, especially if you don’t know how to program it yourself. But what if you could save time and m"
+title: 'How to Program Key Fob Toyota Camry: Easy Steps to Save Time'
+description: Losing or replacing your Toyota Camry key fob can be frustrating, especially
+  if you don’t know how to program it yourself. But what if you could save time and
+  m
 pubDate: 2025-12-20
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-program-key-fob-toyota-camry&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Programming Key Fobs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-program-key-fob-toyota-camry&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **Losing or replacing your Toyota Camry key fob can be frustrating, especially if you don’t know how to program it yourself. But what if you could save time and money by doing it right at home?**

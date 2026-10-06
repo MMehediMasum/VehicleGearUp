@@ -1,10 +1,14 @@
 ---
-title: "Why is My Dodge Durango Not Starting: Top Causes & Quick Fixes"
-description: "Is your Dodge Durango refusing to start right when you need it most? It’s frustrating, confusing, and can leave you feeling stuck. You might wonder what’s going"
+title: 'Why is My Dodge Durango Not Starting: Top Causes & Quick Fixes'
+description: Is your Dodge Durango refusing to start right when you need it most?
+  It’s frustrating, confusing, and can leave you feeling stuck. You might wonder what’s
+  going
 pubDate: 2026-02-04
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-is-my-dodge-durango-not-starting&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Not Starting Causes
+heroImage: https://tse1.mm.bing.net/th?q=why-is-my-dodge-durango-not-starting&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your Dodge Durango refusing to start right when you need it most? It’s frustrating, confusing, and can leave you feeling stuck.**

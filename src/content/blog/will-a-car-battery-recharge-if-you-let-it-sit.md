@@ -1,10 +1,13 @@
 ---
-title: "Will a Car Battery Recharge If You Let It Sit? Shocking Truth!"
-description: "Have you ever wondered if your car battery will recharge just by letting your vehicle sit for a while? If you’ve faced a dead battery, you know how frustrating "
+title: Will a Car Battery Recharge If You Let It Sit? Shocking Truth!
+description: 'Have you ever wondered if your car battery will recharge just by letting
+  your vehicle sit for a while? If you’ve faced a dead battery, you know how frustrating '
 pubDate: 2026-03-26
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=will-a-car-battery-recharge-if-you-let-it-sit&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Charging While Idling
+heroImage: https://tse1.mm.bing.net/th?q=will-a-car-battery-recharge-if-you-let-it-sit&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if your car battery will recharge just by letting your vehicle sit for a while? If you’ve faced a dead battery, you know how frustrating it can be.**

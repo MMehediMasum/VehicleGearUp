@@ -1,10 +1,14 @@
 ---
-title: "How Far Can a Car Drive Without the Key Fob: Surprising Limits Revealed"
-description: "Have you ever wondered what happens if you lose your car key fob or if it suddenly stops working? Can your car still drive, and if so, how far? Understanding ho"
+title: 'How Far Can a Car Drive Without the Key Fob: Surprising Limits Revealed'
+description: Have you ever wondered what happens if you lose your car key fob or if
+  it suddenly stops working? Can your car still drive, and if so, how far? Understanding
+  ho
 pubDate: 2026-02-11
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-far-can-a-car-drive-without-the-key-fob&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Driving Without a Key Fob
+heroImage: https://tse1.mm.bing.net/th?q=how-far-can-a-car-drive-without-the-key-fob&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **Have you ever wondered what happens if you lose your car key fob or if it suddenly stops working? Can your car still drive, and if so, how far?**

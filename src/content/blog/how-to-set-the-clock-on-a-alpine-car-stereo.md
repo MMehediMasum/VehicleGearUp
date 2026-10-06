@@ -1,10 +1,14 @@
 ---
-title: "How to Set the Clock on a Alpine Car Stereo: Quick & Easy Guide"
-description: "Is your Alpine car stereo showing the wrong time? It can be frustrating when your clock is off, especially if you rely on it daily. But don’t worry—setting the "
+title: 'How to Set the Clock on a Alpine Car Stereo: Quick & Easy Guide'
+description: 'Is your Alpine car stereo showing the wrong time? It can be frustrating
+  when your clock is off, especially if you rely on it daily. But don’t worry—setting
+  the '
 pubDate: 2026-05-29
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-set-the-clock-on-a-alpine-car-stereo&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Setting Stereo Clocks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-set-the-clock-on-a-alpine-car-stereo&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your Alpine car stereo showing the wrong time? It can be frustrating when your clock is off, especially if you rely on it daily.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Spark Plugs for Harley Davidson 103: Top Picks for Ultimate Performance"
-description: "Choosing the best spark plugs for your Harley Davidson 103 boosts engine performance and reliability. Proper spark plugs ensure smooth starts and better fuel ef"
+title: 'Best Spark Plugs for Harley Davidson 103: Top Picks for Ultimate Performance'
+description: Choosing the best spark plugs for your Harley Davidson 103 boosts engine
+  performance and reliability. Proper spark plugs ensure smooth starts and better
+  fuel ef
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-spark-plugs-for-harley-davidson-103&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Maintenance Basics
+heroImage: https://tse1.mm.bing.net/th?q=best-spark-plugs-for-harley-davidson-103&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best spark plugs for your Harley Davidson 103 boosts engine performance and reliability. Proper spark plugs ensure smooth starts and better fuel efficiency.**

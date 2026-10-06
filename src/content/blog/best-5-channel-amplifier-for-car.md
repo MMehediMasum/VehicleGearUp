@@ -1,10 +1,14 @@
 ---
-title: "Best 5 Channel Amplifier for Car: Top Powerful Models Reviewed"
-description: "Choosing the best 5 channel amplifier for your car can greatly improve your audio experience. These amplifiers power multiple speakers and a subwoofer simultane"
+title: 'Best 5 Channel Amplifier for Car: Top Powerful Models Reviewed'
+description: Choosing the best 5 channel amplifier for your car can greatly improve
+  your audio experience. These amplifiers power multiple speakers and a subwoofer
+  simultane
 pubDate: 2026-06-12
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-5-channel-amplifier-for-car&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Speakers and Amplifiers
+heroImage: https://tse1.mm.bing.net/th?q=best-5-channel-amplifier-for-car&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Choosing the best 5 channel amplifier for your car can greatly improve your audio experience. These amplifiers power multiple speakers and a subwoofer simultaneously.**

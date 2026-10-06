@@ -1,10 +1,13 @@
 ---
-title: "Where Can I Get My Car Headlight Replaced: Top Trusted Shops"
-description: "Is your car headlight flickering or completely out? You might be wondering, “Where can I get my car headlight replaced quickly and affordably?” A broken headlig"
+title: 'Where Can I Get My Car Headlight Replaced: Top Trusted Shops'
+description: Is your car headlight flickering or completely out? You might be wondering,
+  “Where can I get my car headlight replaced quickly and affordably?” A broken headlig
 pubDate: 2025-11-04
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-get-my-car-headlight-replaced&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Headlight Bulbs
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-get-my-car-headlight-replaced&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your car headlight flickering or completely out? You might be wondering, “Where can I get my car headlight replaced quickly and affordably?” A broken headlight isn’t just annoying—it can put your safety at risk and even lead to fines.**

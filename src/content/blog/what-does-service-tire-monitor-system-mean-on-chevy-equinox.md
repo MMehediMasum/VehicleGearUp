@@ -1,10 +1,14 @@
 ---
-title: "What Does Service Tire Monitor System Mean on Chevy Equinox: Explained"
-description: "Have you ever seen the message \"Service Tire Monitor System\" pop up on your Chevy Equinox dashboard? It can be confusing and even a bit alarming. But don’t worr"
+title: 'What Does Service Tire Monitor System Mean on Chevy Equinox: Explained'
+description: Have you ever seen the message "Service Tire Monitor System" pop up on
+  your Chevy Equinox dashboard? It can be confusing and even a bit alarming. But don’t
+  worr
 pubDate: 2025-09-09
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-does-service-tire-monitor-system-mean-on-chevy-equinox&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Checking Tire Pressure
+heroImage: https://tse1.mm.bing.net/th?q=what-does-service-tire-monitor-system-mean-on-chevy-equinox&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Have you ever seen the message "Service Tire Monitor System" pop up on your Chevy Equinox dashboard? It can be confusing and even a bit alarming.**

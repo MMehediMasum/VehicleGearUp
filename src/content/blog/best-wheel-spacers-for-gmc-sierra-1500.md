@@ -1,10 +1,14 @@
 ---
-title: "Best Wheel Spacers for GMC Sierra 1500 to Enhance Performance and Style"
-description: "Upgrading your GMC Sierra 1500’s wheels? Choosing the right wheel spacers improves stability and appearance. This guide covers top wheel spacers designed specif"
+title: Best Wheel Spacers for GMC Sierra 1500 to Enhance Performance and Style
+description: Upgrading your GMC Sierra 1500’s wheels? Choosing the right wheel spacers
+  improves stability and appearance. This guide covers top wheel spacers designed
+  specif
 pubDate: 2026-01-10
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-wheel-spacers-for-gmc-sierra-1500&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Steering Wheel Problems and Covers
+heroImage: https://tse1.mm.bing.net/th?q=best-wheel-spacers-for-gmc-sierra-1500&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Upgrading your GMC Sierra 1500’s wheels? Choosing the right wheel spacers improves stability and appearance.**

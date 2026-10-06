@@ -1,10 +1,14 @@
 ---
-title: "Best Car Wax for Gray Color: Top Polishes to Restore Shine & Protect"
-description: "Choosing the best car wax for gray color protects your vehicle’s paint and keeps it looking fresh. Gray cars need wax that enhances shine and hides scratches ef"
+title: 'Best Car Wax for Gray Color: Top Polishes to Restore Shine & Protect'
+description: Choosing the best car wax for gray color protects your vehicle’s paint
+  and keeps it looking fresh. Gray cars need wax that enhances shine and hides scratches
+  ef
 pubDate: 2026-07-02
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-wax-for-gray-color&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wax by Paint Color
+heroImage: https://tse1.mm.bing.net/th?q=best-car-wax-for-gray-color&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best car wax for gray color protects your vehicle’s paint and keeps it looking fresh. Gray cars need wax that enhances shine and hides scratches effectively.**

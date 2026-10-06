@@ -1,10 +1,14 @@
 ---
-title: "Best Car Wash Soap for Pressure Washer: Top Picks for Sparkling Shine"
-description: "Choosing the best car wash soap for a pressure washer makes cleaning easier and protects your vehicle’s paint. The right soap creates thick foam, lifts dirt, an"
+title: 'Best Car Wash Soap for Pressure Washer: Top Picks for Sparkling Shine'
+description: Choosing the best car wash soap for a pressure washer makes cleaning
+  easier and protects your vehicle’s paint. The right soap creates thick foam, lifts
+  dirt, an
 pubDate: 2026-07-06
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-wash-soap-for-pressure-washer&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wash Soap Picks
+heroImage: https://tse1.mm.bing.net/th?q=best-car-wash-soap-for-pressure-washer&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best car wash soap for a pressure washer makes cleaning easier and protects your vehicle’s paint. The right soap creates thick foam, lifts dirt, and rinses off without leaving spots.**

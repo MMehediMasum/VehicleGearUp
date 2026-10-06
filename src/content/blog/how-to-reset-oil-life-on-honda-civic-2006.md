@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Life on Honda Civic 2006: Quick & Easy Steps"
-description: "Are you wondering how to reset the oil life on your 2006 Honda Civic? Keeping track of your oil life is crucial for your car’s health and performance. If the oi"
+title: 'How to Reset Oil Life on Honda Civic 2006: Quick & Easy Steps'
+description: Are you wondering how to reset the oil life on your 2006 Honda Civic?
+  Keeping track of your oil life is crucial for your car’s health and performance.
+  If the oi
 pubDate: 2026-05-18
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-life-on-honda-civic-2006&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Oil Life Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-life-on-honda-civic-2006&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Are you wondering how to reset the oil life on your 2006 Honda Civic? Keeping track of your oil life is crucial for your car’s health and performance.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Roof Rack for Ram 1500: Top Cargo Carriers with LED Lights"
-description: "Finding the best roof rack for your Ram 1500 boosts your truck’s cargo space and utility. A good roof rack holds gear securely and fits your truck model perfect"
+title: 'Best Roof Rack for Ram 1500: Top Cargo Carriers with LED Lights'
+description: Finding the best roof rack for your Ram 1500 boosts your truck’s cargo
+  space and utility. A good roof rack holds gear securely and fits your truck model
+  perfect
 pubDate: 2026-06-10
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-roof-rack-for-ram-1500&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Roof Racks and Tents
+heroImage: https://tse1.mm.bing.net/th?q=best-roof-rack-for-ram-1500&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Finding the best roof rack for your Ram 1500 boosts your truck’s cargo space and utility. A good roof rack holds gear securely and fits your truck model perfectly.**

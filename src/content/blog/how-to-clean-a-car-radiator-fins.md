@@ -1,10 +1,14 @@
 ---
-title: "How to Clean a Car Radiator Fins: Easy Steps for Peak Performance"
-description: "Your car’s radiator fins play a crucial role in keeping your engine cool and running smoothly. But over time, dirt, bugs, and debris can clog these delicate fin"
+title: 'How to Clean a Car Radiator Fins: Easy Steps for Peak Performance'
+description: Your car’s radiator fins play a crucial role in keeping your engine cool
+  and running smoothly. But over time, dirt, bugs, and debris can clog these delicate
+  fin
 pubDate: 2026-03-17
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-a-car-radiator-fins&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Coolant and AC Recharge
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-a-car-radiator-fins&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Your car’s radiator fins play a crucial role in keeping your engine cool and running smoothly. But over time, dirt, bugs, and debris can clog these delicate fins, reducing their efficiency and risking engine overheating.**

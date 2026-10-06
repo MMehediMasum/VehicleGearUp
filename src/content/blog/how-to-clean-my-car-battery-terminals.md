@@ -1,10 +1,14 @@
 ---
-title: "How to Clean My Car Battery Terminals: Easy Steps for Lasting Power"
-description: "Are you having trouble starting your car or noticing a weak electrical system? The problem might be right under the hood—your car battery terminals. Dirt, corro"
+title: 'How to Clean My Car Battery Terminals: Easy Steps for Lasting Power'
+description: Are you having trouble starting your car or noticing a weak electrical
+  system? The problem might be right under the hood—your car battery terminals. Dirt,
+  corro
 pubDate: 2026-04-20
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-my-car-battery-terminals&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Polarity and Acid
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-my-car-battery-terminals&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you having trouble starting your car or noticing a weak electrical system? The problem might be right under the hood—your car battery terminals.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Change Headlight Bulb Honda Civic: Easy Step-by-Step Guide"
-description: "Are your Honda Civic headlights dim or not working at all? Changing a headlight bulb might seem tricky, but you can do it yourself quickly and safely. Imagine s"
+title: 'How to Change Headlight Bulb Honda Civic: Easy Step-by-Step Guide'
+description: Are your Honda Civic headlights dim or not working at all? Changing a
+  headlight bulb might seem tricky, but you can do it yourself quickly and safely.
+  Imagine s
 pubDate: 2025-11-11
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-headlight-bulb-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Headlight Bulbs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-headlight-bulb-honda-civic&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are your Honda Civic headlights dim or not working at all? Changing a headlight bulb might seem tricky, but you can do it yourself quickly and safely.**

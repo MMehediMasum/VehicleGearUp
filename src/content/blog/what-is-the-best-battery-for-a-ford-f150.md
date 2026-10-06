@@ -1,10 +1,14 @@
 ---
-title: "What is the Best Battery for a Ford F150: Top Picks for Power & Durability"
-description: "If you drive a Ford F150, you know how important a reliable battery is. Your truck depends on it every day to start strong and keep running smoothly. But with s"
+title: 'What is the Best Battery for a Ford F150: Top Picks for Power & Durability'
+description: If you drive a Ford F150, you know how important a reliable battery is.
+  Your truck depends on it every day to start strong and keep running smoothly. But
+  with s
 pubDate: 2026-04-02
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-best-battery-for-a-ford-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Best Truck and SUV Batteries
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-best-battery-for-a-ford-f150&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **If you drive a Ford F150, you know how important a reliable battery is. Your truck depends on it every day to start strong and keep running smoothly.**

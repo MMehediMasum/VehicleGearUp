@@ -1,10 +1,14 @@
 ---
-title: "How to Fix Active Air Dam System Fault Ford F150: Quick Solutions"
-description: "Is your Ford F150 showing an Active Air Dam System fault? This problem can affect your truck’s performance and fuel efficiency, leaving you frustrated and unsur"
+title: 'How to Fix Active Air Dam System Fault Ford F150: Quick Solutions'
+description: Is your Ford F150 showing an Active Air Dam System fault? This problem
+  can affect your truck’s performance and fuel efficiency, leaving you frustrated
+  and unsur
 pubDate: 2026-05-15
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-active-air-dam-system-fault-ford-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Dashboard Lights and Noises
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-active-air-dam-system-fault-ford-f150&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your Ford F150 showing an Active Air Dam System fault? This problem can affect your truck’s performance and fuel efficiency, leaving you frustrated and unsure of what to do next.**

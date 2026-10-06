@@ -1,10 +1,14 @@
 ---
-title: "What Can Drain a Car Battery Instantly: Shocking Causes Revealed"
-description: "Have you ever been ready to hit the road, only to find your car won’t start? It’s frustrating and often surprising how quickly a car battery can lose power. You"
+title: 'What Can Drain a Car Battery Instantly: Shocking Causes Revealed'
+description: Have you ever been ready to hit the road, only to find your car won’t
+  start? It’s frustrating and often surprising how quickly a car battery can lose
+  power. You
 pubDate: 2026-04-05
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-can-drain-a-car-battery-instantly&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Cold Weather Battery Drain
+heroImage: https://tse1.mm.bing.net/th?q=what-can-drain-a-car-battery-instantly&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever been ready to hit the road, only to find your car won’t start? It’s frustrating and often surprising how quickly a car battery can lose power.**

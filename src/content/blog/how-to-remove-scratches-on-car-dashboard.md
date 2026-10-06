@@ -1,10 +1,14 @@
 ---
-title: "How to Remove Scratches on Car Dashboard: Easy and Effective Tips"
-description: "Have you noticed those annoying scratches on your car dashboard ruining its look? Scratches can make your car’s interior feel old and worn out, even if the rest"
+title: 'How to Remove Scratches on Car Dashboard: Easy and Effective Tips'
+description: Have you noticed those annoying scratches on your car dashboard ruining
+  its look? Scratches can make your car’s interior feel old and worn out, even if
+  the rest
 pubDate: 2025-11-12
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-remove-scratches-on-car-dashboard&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Leather and Dashboard Care
+heroImage: https://tse1.mm.bing.net/th?q=how-to-remove-scratches-on-car-dashboard&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you noticed those annoying scratches on your car dashboard ruining its look? Scratches can make your car’s interior feel old and worn out, even if the rest of your vehicle is spotless.**

@@ -1,10 +1,13 @@
 ---
-title: "How to Make Your Car Headlights Brighter: Ultimate Brightness Boost Tips"
-description: "Are your car headlights not shining as brightly as they used to? Driving at night or in bad weather can feel risky when your lights are dim. But don’t worry—you"
+title: 'How to Make Your Car Headlights Brighter: Ultimate Brightness Boost Tips'
+description: Are your car headlights not shining as brightly as they used to? Driving
+  at night or in bad weather can feel risky when your lights are dim. But don’t worry—you
 pubDate: 2026-05-25
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-your-car-headlights-brighter&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Headlight Cleaning and Upgrades
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-your-car-headlights-brighter&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are your car headlights not shining as brightly as they used to? Driving at night or in bad weather can feel risky when your lights are dim.**

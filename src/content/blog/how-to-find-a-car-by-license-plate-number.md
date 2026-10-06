@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Find a Car by License Plate Number: Quick & Easy Guide"
 description: "Have you ever spotted a car and wondered who it belongs to? Maybe you saw an accident or a suspicious vehicle and want to find out more. Knowing how to find a c"
 pubDate: 2026-02-18

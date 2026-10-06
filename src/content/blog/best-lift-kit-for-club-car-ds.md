@@ -1,10 +1,14 @@
 ---
-title: "Best Lift Kit for Club Car DS: Top Heavy Duty Double A-Arm Options"
-description: "Choosing the best lift kit for your Club Car DS enhances both style and performance. A good lift kit raises your golf cart, allowing bigger tires and better gro"
+title: 'Best Lift Kit for Club Car DS: Top Heavy Duty Double A-Arm Options'
+description: Choosing the best lift kit for your Club Car DS enhances both style and
+  performance. A good lift kit raises your golf cart, allowing bigger tires and better
+  gro
 pubDate: 2026-06-20
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lift-kit-for-club-car-ds&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Powersports Batteries
+heroImage: https://tse1.mm.bing.net/th?q=best-lift-kit-for-club-car-ds&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best lift kit for your Club Car DS enhances both style and performance. A good lift kit raises your golf cart, allowing bigger tires and better ground clearance.**

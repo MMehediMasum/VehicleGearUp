@@ -1,10 +1,14 @@
 ---
-title: "How to Test If Car Battery is Dead: Quick & Easy Steps"
-description: "Is your car struggling to start, or is it completely silent when you turn the key? You might be dealing with a dead battery. But how can you be sure before call"
+title: 'How to Test If Car Battery is Dead: Quick & Easy Steps'
+description: Is your car struggling to start, or is it completely silent when you
+  turn the key? You might be dealing with a dead battery. But how can you be sure
+  before call
 pubDate: 2026-04-06
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-test-if-car-battery-is-dead&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Signs of a Failing Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-test-if-car-battery-is-dead&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your car struggling to start, or is it completely silent when you turn the key? You might be dealing with a dead battery.**

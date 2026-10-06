@@ -1,10 +1,13 @@
 ---
-title: "Where to Add Transmission Fluid Ford F150: Easy Guide for Owners"
-description: "If you own a Ford F150, knowing where to add transmission fluid is crucial to keep your truck running smoothly. You might think it’s a simple task, but putting "
+title: 'Where to Add Transmission Fluid Ford F150: Easy Guide for Owners'
+description: 'If you own a Ford F150, knowing where to add transmission fluid is crucial
+  to keep your truck running smoothly. You might think it’s a simple task, but putting '
 pubDate: 2026-05-14
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-add-transmission-fluid-ford-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Adding Transmission Fluid
+heroImage: https://tse1.mm.bing.net/th?q=where-to-add-transmission-fluid-ford-f150&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a Ford F150, knowing where to add transmission fluid is crucial to keep your truck running smoothly. You might think it’s a simple task, but putting the fluid in the wrong place can cause serious damage.**

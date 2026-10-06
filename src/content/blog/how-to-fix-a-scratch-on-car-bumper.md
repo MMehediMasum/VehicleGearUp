@@ -1,10 +1,14 @@
 ---
-title: "How to Fix a Scratch on Car Bumper: Easy DIY Repair Tips"
-description: "A scratch on your car bumper can be frustrating to see every time you park or drive. It makes your car look less cared for and might even lower its value. But f"
+title: 'How to Fix a Scratch on Car Bumper: Easy DIY Repair Tips'
+description: A scratch on your car bumper can be frustrating to see every time you
+  park or drive. It makes your car look less cared for and might even lower its value.
+  But f
 pubDate: 2025-09-01
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-a-scratch-on-car-bumper&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Bumper Dent and Scratch Repair
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-a-scratch-on-car-bumper&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **A scratch on your car bumper can be frustrating to see every time you park or drive. It makes your car look less cared for and might even lower its value.**

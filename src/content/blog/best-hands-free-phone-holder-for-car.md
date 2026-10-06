@@ -1,10 +1,14 @@
 ---
-title: "Best Hands Free Phone Holder for Car: Top Universal Mounts Reviewed"
-description: "Driving safely means keeping your phone secure and hands free. The best hands free phone holders for cars offer stability, easy access, and safety. A good car p"
+title: 'Best Hands Free Phone Holder for Car: Top Universal Mounts Reviewed'
+description: Driving safely means keeping your phone secure and hands free. The best
+  hands free phone holders for cars offer stability, easy access, and safety. A good
+  car p
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-hands-free-phone-holder-for-car&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Phone Mounts and Adapters
+heroImage: https://tse1.mm.bing.net/th?q=best-hands-free-phone-holder-for-car&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Driving safely means keeping your phone secure and hands free. The best hands free phone holders for cars offer stability, easy access, and safety.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for a 2013 Ford Escape: Top All-Season SUV Picks"
-description: "Choosing the right tires for a 2013 Ford Escape improves safety and driving comfort. The best tires suit your driving style and road conditions. The 2013 Ford E"
+title: 'Best Tires for a 2013 Ford Escape: Top All-Season SUV Picks'
+description: Choosing the right tires for a 2013 Ford Escape improves safety and driving
+  comfort. The best tires suit your driving style and road conditions. The 2013 Ford
+  E
 pubDate: 2026-01-08
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-a-2013-ford-escape&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Car and Truck Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-a-2013-ford-escape&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the right tires for a 2013 Ford Escape improves safety and driving comfort. The best tires suit your driving style and road conditions.**

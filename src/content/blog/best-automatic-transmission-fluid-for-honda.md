@@ -1,10 +1,14 @@
 ---
-title: "Best Automatic Transmission Fluid for Honda: Top Picks for Smooth Shifts"
-description: "Choosing the right automatic transmission fluid (ATF) keeps your Honda running smoothly. The best ATF protects your transmission and improves performance. Honda"
+title: 'Best Automatic Transmission Fluid for Honda: Top Picks for Smooth Shifts'
+description: Choosing the right automatic transmission fluid (ATF) keeps your Honda
+  running smoothly. The best ATF protects your transmission and improves performance.
+  Honda
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-automatic-transmission-fluid-for-honda&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Transmission Fluid Checks
+heroImage: https://tse1.mm.bing.net/th?q=best-automatic-transmission-fluid-for-honda&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Choosing the right automatic transmission fluid (ATF) keeps your Honda running smoothly. The best ATF protects your transmission and improves performance.**

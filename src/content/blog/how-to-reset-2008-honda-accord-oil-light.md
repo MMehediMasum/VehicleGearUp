@@ -1,10 +1,14 @@
 ---
-title: "How to Reset 2008 Honda Accord Oil Light: Quick & Easy Steps"
-description: "Is your 2008 Honda Accord’s oil light on and you’re not sure what to do next? That little warning can be confusing, but you don’t have to worry. Knowing how to "
+title: 'How to Reset 2008 Honda Accord Oil Light: Quick & Easy Steps'
+description: 'Is your 2008 Honda Accord’s oil light on and you’re not sure what to
+  do next? That little warning can be confusing, but you don’t have to worry. Knowing
+  how to '
 pubDate: 2025-11-21
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-2008-honda-accord-oil-light&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Oil Light Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-2008-honda-accord-oil-light&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your 2008 Honda Accord’s oil light on and you’re not sure what to do next? That little warning can be confusing, but you don’t have to worry.**

@@ -1,10 +1,14 @@
 ---
-title: "Can You Charge Hyundai Ioniq 5 at Tesla Supercharger? Essential Facts"
-description: "Are you wondering if you can charge your Hyundai Ioniq 5 at a Tesla Supercharger? With so many electric vehicle options out there, charging convenience matters "
+title: Can You Charge Hyundai Ioniq 5 at Tesla Supercharger? Essential Facts
+description: 'Are you wondering if you can charge your Hyundai Ioniq 5 at a Tesla
+  Supercharger? With so many electric vehicle options out there, charging convenience
+  matters '
 pubDate: 2025-10-22
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-charge-hyundai-ioniq-5-at-tesla-supercharger&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Summon and Dog Mode
+heroImage: https://tse1.mm.bing.net/th?q=can-you-charge-hyundai-ioniq-5-at-tesla-supercharger&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you wondering if you can charge your Hyundai Ioniq 5 at a Tesla Supercharger? With so many electric vehicle options out there, charging convenience matters more than ever.**

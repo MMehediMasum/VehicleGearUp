@@ -1,10 +1,14 @@
 ---
-title: "Best Tar Remover for Car Paint: Top Safe and Effective Solutions Reviewed"
-description: "Tar stains on car paint can be stubborn and unsightly. Choosing the best tar remover helps protect your vehicle’s finish while cleaning effectively. Tar, sap, a"
+title: 'Best Tar Remover for Car Paint: Top Safe and Effective Solutions Reviewed'
+description: Tar stains on car paint can be stubborn and unsightly. Choosing the best
+  tar remover helps protect your vehicle’s finish while cleaning effectively. Tar,
+  sap, a
 pubDate: 2025-10-21
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tar-remover-for-car-paint&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spray Paint and Scratch Repair
+heroImage: https://tse1.mm.bing.net/th?q=best-tar-remover-for-car-paint&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Tar stains on car paint can be stubborn and unsightly. Choosing the best tar remover helps protect your vehicle’s finish while cleaning effectively.**

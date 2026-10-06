@@ -1,10 +1,13 @@
 ---
-title: "Best Light Truck Tires for Highway Driving: Top Durable All-Season Picks"
-description: "Choosing the best light truck tires for highway driving ensures safety, comfort, and durability on long trips. Quality tires improve handling and fuel efficienc"
+title: 'Best Light Truck Tires for Highway Driving: Top Durable All-Season Picks'
+description: Choosing the best light truck tires for highway driving ensures safety,
+  comfort, and durability on long trips. Quality tires improve handling and fuel efficienc
 pubDate: 2026-07-22
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-light-truck-tires-for-highway&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Mud and Highway Truck Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-light-truck-tires-for-highway&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best light truck tires for highway driving ensures safety, comfort, and durability on long trips. Quality tires improve handling and fuel efficiency on paved roads.**

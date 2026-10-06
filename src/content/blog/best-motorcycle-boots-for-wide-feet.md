@@ -1,10 +1,14 @@
 ---
-title: "Best Motorcycle Boots for Wide Feet: Top Comfortable, Durable Picks"
-description: "Finding the best motorcycle boots for wide feet can be challenging. Comfort and safety matter most for riders with wider feet. Wide feet need boots that fit wel"
+title: 'Best Motorcycle Boots for Wide Feet: Top Comfortable, Durable Picks'
+description: Finding the best motorcycle boots for wide feet can be challenging. Comfort
+  and safety matter most for riders with wider feet. Wide feet need boots that fit
+  wel
 pubDate: 2025-11-16
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-motorcycle-boots-for-wide-feet&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Helmets and Boots
+heroImage: https://tse1.mm.bing.net/th?q=best-motorcycle-boots-for-wide-feet&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Finding the best motorcycle boots for wide feet can be challenging. Comfort and safety matter most for riders with wider feet.**

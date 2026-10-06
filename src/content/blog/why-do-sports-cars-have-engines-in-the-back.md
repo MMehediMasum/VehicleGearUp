@@ -1,10 +1,14 @@
 ---
-title: "Why Do Sports Cars Have Engines in the Back: The Ultimate Advantage"
-description: "Have you ever wondered why so many sports cars have their engines placed right behind the seats? It’s not just a design choice—it changes everything about how t"
+title: 'Why Do Sports Cars Have Engines in the Back: The Ultimate Advantage'
+description: Have you ever wondered why so many sports cars have their engines placed
+  right behind the seats? It’s not just a design choice—it changes everything about
+  how t
 pubDate: 2026-04-26
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-do-sports-cars-have-engines-in-the-back&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Engine Noise and Heat
+heroImage: https://tse1.mm.bing.net/th?q=why-do-sports-cars-have-engines-in-the-back&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you ever wondered why so many sports cars have their engines placed right behind the seats? It’s not just a design choice—it changes everything about how the car feels and performs.**

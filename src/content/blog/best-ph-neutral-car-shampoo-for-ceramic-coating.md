@@ -1,10 +1,14 @@
 ---
-title: "Best Ph Neutral Car Shampoo for Ceramic Coating: Top Picks for Protection"
-description: "Choosing the best pH neutral car shampoo protects your ceramic coating while cleaning effectively. These shampoos maintain shine without damaging delicate surfa"
+title: 'Best Ph Neutral Car Shampoo for Ceramic Coating: Top Picks for Protection'
+description: Choosing the best pH neutral car shampoo protects your ceramic coating
+  while cleaning effectively. These shampoos maintain shine without damaging delicate
+  surfa
 pubDate: 2026-06-07
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-ph-neutral-car-shampoo-for-ceramic-coating&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Transmission Fluid Checks
+heroImage: https://tse1.mm.bing.net/th?q=best-ph-neutral-car-shampoo-for-ceramic-coating&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Choosing the best pH neutral car shampoo protects your ceramic coating while cleaning effectively. These shampoos maintain shine without damaging delicate surfaces.**

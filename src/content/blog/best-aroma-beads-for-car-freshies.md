@@ -1,10 +1,14 @@
 ---
-title: "Best Aroma Beads for Car Freshies: Top DIY Scented Bead Supplies"
-description: "Choosing the best aroma beads for car freshies can make your drive more pleasant. These beads offer lasting fragrance and easy customization. Aroma beads are sm"
+title: 'Best Aroma Beads for Car Freshies: Top DIY Scented Bead Supplies'
+description: Choosing the best aroma beads for car freshies can make your drive more
+  pleasant. These beads offer lasting fragrance and easy customization. Aroma beads
+  are sm
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-aroma-beads-for-car-freshies&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Air Fresheners and Odors
+heroImage: https://tse1.mm.bing.net/th?q=best-aroma-beads-for-car-freshies&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best aroma beads for car freshies can make your drive more pleasant. These beads offer lasting fragrance and easy customization.**

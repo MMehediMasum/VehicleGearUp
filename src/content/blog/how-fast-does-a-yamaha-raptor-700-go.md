@@ -1,10 +1,14 @@
 ---
-title: "How Fast Does a Yamaha Raptor 700 Go: Ultimate Speed Revealed!"
-description: "Are you curious about just how fast a Yamaha Raptor 700 can go? Whether you're thinking about buying one or you already own it, knowing its top speed can help y"
+title: 'How Fast Does a Yamaha Raptor 700 Go: Ultimate Speed Revealed!'
+description: Are you curious about just how fast a Yamaha Raptor 700 can go? Whether
+  you're thinking about buying one or you already own it, knowing its top speed can
+  help y
 pubDate: 2026-02-26
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-fast-does-a-yamaha-raptor-700-go&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- ATV Tires and Speed
+heroImage: https://tse1.mm.bing.net/th?q=how-fast-does-a-yamaha-raptor-700-go&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you curious about just how fast a Yamaha Raptor 700 can go? Whether you're thinking about buying one or you already own it, knowing its top speed can help you get the most out of your ride.**

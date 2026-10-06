@@ -1,10 +1,14 @@
 ---
-title: "Can You Top off Coolant Honda Civic: Essential Tips & Safety Guide"
-description: "If you own a Honda Civic, you know how important it is to keep your engine running smoothly. One key part of that is maintaining the right coolant level. But wh"
+title: 'Can You Top off Coolant Honda Civic: Essential Tips & Safety Guide'
+description: If you own a Honda Civic, you know how important it is to keep your engine
+  running smoothly. One key part of that is maintaining the right coolant level. But
+  wh
 pubDate: 2026-04-21
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-top-off-coolant-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Coolant and AC Recharge
+heroImage: https://tse1.mm.bing.net/th?q=can-you-top-off-coolant-honda-civic&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a Honda Civic, you know how important it is to keep your engine running smoothly. One key part of that is maintaining the right coolant level.**

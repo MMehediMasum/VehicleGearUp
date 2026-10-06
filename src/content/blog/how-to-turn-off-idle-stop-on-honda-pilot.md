@@ -1,10 +1,14 @@
 ---
-title: "How to Turn off Idle Stop on Honda Pilot: Easy Step-by-Step Guide"
-description: "Are you tired of your Honda Pilot’s engine shutting off every time you stop at a light? That automatic idle stop feature might feel more annoying than helpful. "
+title: 'How to Turn off Idle Stop on Honda Pilot: Easy Step-by-Step Guide'
+description: 'Are you tired of your Honda Pilot’s engine shutting off every time you
+  stop at a light? That automatic idle stop feature might feel more annoying than
+  helpful. '
 pubDate: 2025-09-12
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-idle-stop-on-honda-pilot&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Disabling Auto Start Stop
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-idle-stop-on-honda-pilot&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are you tired of your Honda Pilot’s engine shutting off every time you stop at a light? That automatic idle stop feature might feel more annoying than helpful.**

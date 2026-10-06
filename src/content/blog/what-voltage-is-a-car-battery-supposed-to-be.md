@@ -1,10 +1,14 @@
 ---
-title: "What Voltage is a Car Battery Supposed to Be: Essential Guide"
-description: "Have you ever wondered what voltage your car battery is supposed to be? Knowing this simple fact can save you from unexpected breakdowns and costly repairs. You"
+title: 'What Voltage is a Car Battery Supposed to Be: Essential Guide'
+description: Have you ever wondered what voltage your car battery is supposed to be?
+  Knowing this simple fact can save you from unexpected breakdowns and costly repairs.
+  You
 pubDate: 2026-05-10
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-voltage-is-a-car-battery-supposed-to-be&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Normal Battery Voltage
+heroImage: https://tse1.mm.bing.net/th?q=what-voltage-is-a-car-battery-supposed-to-be&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered what voltage your car battery is supposed to be? Knowing this simple fact can save you from unexpected breakdowns and costly repairs.**

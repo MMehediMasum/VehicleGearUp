@@ -1,10 +1,14 @@
 ---
-title: "Best Floor Mats for Lexus Rx350: Ultimate All-Weather Protection Guide"
-description: "Choosing the best floor mats protects your Lexus RX350’s interior from dirt, water, and wear. Quality mats fit perfectly and last long. Floor mats keep your Lex"
+title: 'Best Floor Mats for Lexus Rx350: Ultimate All-Weather Protection Guide'
+description: Choosing the best floor mats protects your Lexus RX350’s interior from
+  dirt, water, and wear. Quality mats fit perfectly and last long. Floor mats keep
+  your Lex
 pubDate: 2026-07-22
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-floor-mats-for-lexus-rx350&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Floor Mats and Cargo Liners
+heroImage: https://tse1.mm.bing.net/th?q=best-floor-mats-for-lexus-rx350&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best floor mats protects your Lexus RX350’s interior from dirt, water, and wear. Quality mats fit perfectly and last long.**

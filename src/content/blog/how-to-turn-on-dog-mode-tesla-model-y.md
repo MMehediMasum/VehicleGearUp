@@ -1,10 +1,14 @@
 ---
-title: "How to Turn on Dog Mode Tesla Model Y: Easy Steps to Keep Pets Safe"
-description: "If you own a Tesla Model Y and want to keep your furry friend safe and comfortable while you run errands, knowing how to turn on Dog Mode is a must. This featur"
+title: 'How to Turn on Dog Mode Tesla Model Y: Easy Steps to Keep Pets Safe'
+description: If you own a Tesla Model Y and want to keep your furry friend safe and
+  comfortable while you run errands, knowing how to turn on Dog Mode is a must. This
+  featur
 pubDate: 2026-02-02
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-on-dog-mode-tesla-model-y&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Summon and Dog Mode
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-on-dog-mode-tesla-model-y&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **If you own a Tesla Model Y and want to keep your furry friend safe and comfortable while you run errands, knowing how to turn on Dog Mode is a must. This feature helps maintain a cool temperature inside your car and lets passersby know your pet is safe.**

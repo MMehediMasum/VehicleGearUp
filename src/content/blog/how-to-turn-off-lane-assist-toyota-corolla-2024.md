@@ -1,10 +1,14 @@
 ---
-title: "How to Turn off Lane Assist Toyota Corolla 2025: Quick Guide"
-description: "If you’ve just started driving your 2024 Toyota Corolla, you might find the Lane Assist feature a bit too sensitive or distracting. Maybe it nudges you when you"
+title: 'How to Turn off Lane Assist Toyota Corolla 2025: Quick Guide'
+description: If you’ve just started driving your 2024 Toyota Corolla, you might find
+  the Lane Assist feature a bit too sensitive or distracting. Maybe it nudges you
+  when you
 pubDate: 2026-03-09
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-lane-assist-toyota-corolla-2024&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Driver Assist Settings
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-lane-assist-toyota-corolla-2024&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If you’ve just started driving your 2024 Toyota Corolla, you might find the Lane Assist feature a bit too sensitive or distracting. Maybe it nudges you when you don’t want it to, or you simply prefer to have full control on the road.**

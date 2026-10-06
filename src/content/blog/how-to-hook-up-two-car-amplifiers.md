@@ -1,10 +1,14 @@
 ---
-title: "How to Hook Up Two Car Amplifiers: Easy Step-by-Step Guide"
-description: "Are you ready to take your car’s sound system to the next level? Hooking up two car amplifiers can boost your audio power and clarity like never before. But if "
+title: 'How to Hook Up Two Car Amplifiers: Easy Step-by-Step Guide'
+description: 'Are you ready to take your car’s sound system to the next level? Hooking
+  up two car amplifiers can boost your audio power and clarity like never before.
+  But if '
 pubDate: 2026-03-14
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hook-up-two-car-amplifiers&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Stereo Installation Help
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hook-up-two-car-amplifiers&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are you ready to take your car’s sound system to the next level? Hooking up two car amplifiers can boost your audio power and clarity like never before.**

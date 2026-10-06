@@ -1,10 +1,13 @@
 ---
-title: "Is a Ford Fusion All Wheel Drive? Ultimate AWD Guide 2025"
-description: "Are you considering a Ford Fusion but wondering if it comes with all-wheel drive? You want a car that handles well in all kinds of weather and road conditions. "
+title: Is a Ford Fusion All Wheel Drive? Ultimate AWD Guide 2025
+description: 'Are you considering a Ford Fusion but wondering if it comes with all-wheel
+  drive? You want a car that handles well in all kinds of weather and road conditions. '
 pubDate: 2025-11-21
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-a-ford-fusion-all-wheel-drive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- All Wheel Drive Questions
+heroImage: https://tse1.mm.bing.net/th?q=is-a-ford-fusion-all-wheel-drive&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you considering a Ford Fusion but wondering if it comes with all-wheel drive? You want a car that handles well in all kinds of weather and road conditions.**

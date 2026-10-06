@@ -1,10 +1,13 @@
 ---
-title: "Best Power Inverter for Laptop in Car: Top Reliable Chargers Reviewed"
-description: "Power inverters let you use your laptop in a car by changing 12V DC power to 110V AC. Choosing the right inverter ensures safe and steady power for your devices"
+title: 'Best Power Inverter for Laptop in Car: Top Reliable Chargers Reviewed'
+description: Power inverters let you use your laptop in a car by changing 12V DC power
+  to 110V AC. Choosing the right inverter ensures safe and steady power for your devices
 pubDate: 2026-06-01
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-power-inverter-for-laptop-in-car&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Power Supplies and Inverters
+heroImage: https://tse1.mm.bing.net/th?q=best-power-inverter-for-laptop-in-car&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Power inverters let you use your laptop in a car by changing 12V DC power to 110V AC. Choosing the right inverter ensures safe and steady power for your devices on the road.**

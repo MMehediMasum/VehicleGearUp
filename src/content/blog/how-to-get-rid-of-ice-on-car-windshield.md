@@ -1,10 +1,14 @@
 ---
-title: "How to Get Rid of Ice on Car Windshield: Quick & Easy Tips"
-description: "Waking up to find your car windshield covered in ice can ruin your plans and waste your precious time. You want to get going quickly, but that stubborn ice won’"
+title: 'How to Get Rid of Ice on Car Windshield: Quick & Easy Tips'
+description: Waking up to find your car windshield covered in ice can ruin your plans
+  and waste your precious time. You want to get going quickly, but that stubborn ice
+  won’
 pubDate: 2026-03-18
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-get-rid-of-ice-on-car-windshield&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Windshield and Mirror Repair
+heroImage: https://tse1.mm.bing.net/th?q=how-to-get-rid-of-ice-on-car-windshield&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Waking up to find your car windshield covered in ice can ruin your plans and waste your precious time. You want to get going quickly, but that stubborn ice won’t budge.**

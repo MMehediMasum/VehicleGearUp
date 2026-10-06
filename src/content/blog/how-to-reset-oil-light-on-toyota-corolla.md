@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Light on Toyota Corolla: Quick & Easy Guide"
-description: "Your Toyota Corolla’s oil light just came on, and now you’re wondering what to do next. Don’t worry—resetting that oil light is easier than you might think. If "
+title: 'How to Reset Oil Light on Toyota Corolla: Quick & Easy Guide'
+description: 'Your Toyota Corolla’s oil light just came on, and now you’re wondering
+  what to do next. Don’t worry—resetting that oil light is easier than you might think.
+  If '
 pubDate: 2026-04-30
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-light-on-toyota-corolla&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Oil Light Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-light-on-toyota-corolla&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Your Toyota Corolla’s oil light just came on, and now you’re wondering what to do next. Don’t worry—resetting that oil light is easier than you might think.**

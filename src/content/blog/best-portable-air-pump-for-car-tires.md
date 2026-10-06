@@ -1,10 +1,14 @@
 ---
-title: "Best Portable Air Pump for Car Tires: Top Picks for Fast Inflation"
-description: "Choosing the best portable air pump for car tires ensures quick, easy inflation anytime. A reliable pump keeps your tires safe and saves you time on the road. P"
+title: 'Best Portable Air Pump for Car Tires: Top Picks for Fast Inflation'
+description: Choosing the best portable air pump for car tires ensures quick, easy
+  inflation anytime. A reliable pump keeps your tires safe and saves you time on the
+  road. P
 pubDate: 2026-01-05
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-portable-air-pump-for-car-tires&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tire Inflators and Compressors
+heroImage: https://tse1.mm.bing.net/th?q=best-portable-air-pump-for-car-tires&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best portable air pump for car tires ensures quick, easy inflation anytime. A reliable pump keeps your tires safe and saves you time on the road.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Find What is Draining My Car Battery: Quick Fixes Revealed"
-description: "Is your car battery dying faster than usual? You’re not alone. A draining battery can leave you stranded at the worst moments, turning a simple drive into a fru"
+title: 'How to Find What is Draining My Car Battery: Quick Fixes Revealed'
+description: Is your car battery dying faster than usual? You’re not alone. A draining
+  battery can leave you stranded at the worst moments, turning a simple drive into
+  a fru
 pubDate: 2026-03-26
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-find-what-is-draining-my-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Fixing Battery Drain
+heroImage: https://tse1.mm.bing.net/th?q=how-to-find-what-is-draining-my-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your car battery dying faster than usual? You’re not alone.**

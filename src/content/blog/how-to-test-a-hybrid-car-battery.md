@@ -1,10 +1,14 @@
 ---
-title: "How to Test a Hybrid Car Battery: Simple Steps for Accurate Results"
-description: "Your hybrid car battery is the heart of your vehicle’s performance. If it starts acting up, you might notice reduced fuel efficiency or strange warning lights. "
+title: 'How to Test a Hybrid Car Battery: Simple Steps for Accurate Results'
+description: 'Your hybrid car battery is the heart of your vehicle’s performance.
+  If it starts acting up, you might notice reduced fuel efficiency or strange warning
+  lights. '
 pubDate: 2026-04-20
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-test-a-hybrid-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- How Hybrids Work
+heroImage: https://tse1.mm.bing.net/th?q=how-to-test-a-hybrid-car-battery&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Your hybrid car battery is the heart of your vehicle’s performance. If it starts acting up, you might notice reduced fuel efficiency or strange warning lights.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Spark Plug Wires for Chevy 350: Top High Performance Sets Reviewed"
-description: "Choosing the best spark plug wires improves your Chevy 350 engine’s performance and reliability. Quality wires ensure strong spark delivery and smooth running. "
+title: 'Best Spark Plug Wires for Chevy 350: Top High Performance Sets Reviewed'
+description: 'Choosing the best spark plug wires improves your Chevy 350 engine’s
+  performance and reliability. Quality wires ensure strong spark delivery and smooth
+  running. '
 pubDate: 2026-06-27
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-spark-plug-wires-for-chevy-350&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Chevy and GMC Spark Plugs
+heroImage: https://tse1.mm.bing.net/th?q=best-spark-plug-wires-for-chevy-350&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best spark plug wires improves your Chevy 350 engine’s performance and reliability. Quality wires ensure strong spark delivery and smooth running.**

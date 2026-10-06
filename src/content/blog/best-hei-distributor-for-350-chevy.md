@@ -1,10 +1,14 @@
 ---
-title: "Best Hei Distributor for 350 Chevy: Top Performance and Reliability Picks"
-description: "Choosing the best HEI distributor for your 350 Chevy is key to reliable engine performance. A good distributor ensures smooth ignition and strong power delivery"
+title: 'Best Hei Distributor for 350 Chevy: Top Performance and Reliability Picks'
+description: Choosing the best HEI distributor for your 350 Chevy is key to reliable
+  engine performance. A good distributor ensures smooth ignition and strong power
+  delivery
 pubDate: 2026-06-22
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-hei-distributor-for-350-chevy&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Chevy Engine Tuning
+heroImage: https://tse1.mm.bing.net/th?q=best-hei-distributor-for-350-chevy&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best HEI distributor for your 350 Chevy is key to reliable engine performance. A good distributor ensures smooth ignition and strong power delivery.**

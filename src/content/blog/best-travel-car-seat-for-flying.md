@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Travel Car Seat for Flying: Top Durable Gate Check Bags Reviewed"
 description: "Finding the best travel car seat for flying helps keep your child safe and comfortable on planes. Choosing the right bag or carrier makes airport trips easier a"
 pubDate: 2026-07-25

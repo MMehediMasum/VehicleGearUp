@@ -1,10 +1,14 @@
 ---
-title: "How to Tell When a Car Battery is Fully Charged: Quick & Easy Tips"
-description: "Is your car battery acting up or leaving you stranded? Knowing exactly when your car battery is fully charged can save you from unexpected breakdowns and costly"
+title: 'How to Tell When a Car Battery is Fully Charged: Quick & Easy Tips'
+description: Is your car battery acting up or leaving you stranded? Knowing exactly
+  when your car battery is fully charged can save you from unexpected breakdowns and
+  costly
 pubDate: 2025-09-03
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-tell-when-a-car-battery-is-fully-charged&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Selling Old Car Batteries
+heroImage: https://tse1.mm.bing.net/th?q=how-to-tell-when-a-car-battery-is-fully-charged&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your car battery acting up or leaving you stranded? Knowing exactly when your car battery is fully charged can save you from unexpected breakdowns and costly repairs.**

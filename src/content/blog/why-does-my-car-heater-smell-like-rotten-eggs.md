@@ -1,10 +1,14 @@
 ---
-title: "Why Does My Car Heater Smell Like Rotten Eggs: Causes & Fixes"
-description: "Have you ever turned on your car heater and noticed a strange smell, like rotten eggs? It’s not just unpleasant—it can be a sign that something is wrong with yo"
+title: 'Why Does My Car Heater Smell Like Rotten Eggs: Causes & Fixes'
+description: Have you ever turned on your car heater and noticed a strange smell,
+  like rotten eggs? It’s not just unpleasant—it can be a sign that something is wrong
+  with yo
 pubDate: 2026-02-23
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-does-my-car-heater-smell-like-rotten-eggs&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Heater Not Working
+heroImage: https://tse1.mm.bing.net/th?q=why-does-my-car-heater-smell-like-rotten-eggs&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever turned on your car heater and noticed a strange smell, like rotten eggs? It’s not just unpleasant—it can be a sign that something is wrong with your vehicle.**

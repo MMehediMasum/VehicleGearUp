@@ -1,10 +1,14 @@
 ---
-title: "How to Schedule Charging Tesla Model Y: Easy Steps for Efficiency"
-description: "Charging your Tesla Model Y might seem simple, but did you know scheduling your charging can save you time and money? Imagine waking up every day with a fully c"
+title: 'How to Schedule Charging Tesla Model Y: Easy Steps for Efficiency'
+description: Charging your Tesla Model Y might seem simple, but did you know scheduling
+  your charging can save you time and money? Imagine waking up every day with a fully
+  c
 pubDate: 2026-01-19
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-schedule-charging-tesla-model-y&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Model Y Features
+heroImage: https://tse1.mm.bing.net/th?q=how-to-schedule-charging-tesla-model-y&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Charging your Tesla Model Y might seem simple, but did you know scheduling your charging can save you time and money? Imagine waking up every day with a fully charged car, ready to go without any hassle.**

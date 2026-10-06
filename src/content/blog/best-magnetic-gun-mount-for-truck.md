@@ -1,10 +1,14 @@
 ---
-title: "Best Magnetic Gun Mount for Truck: Secure, Concealed, and Easy Access Solutions"
-description: "Finding the best magnetic gun mount for your truck ensures safe and quick firearm access. A reliable mount holds your gun firmly while driving. Magnetic gun mou"
+title: 'Best Magnetic Gun Mount for Truck: Secure, Concealed, and Easy Access Solutions'
+description: Finding the best magnetic gun mount for your truck ensures safe and quick
+  firearm access. A reliable mount holds your gun firmly while driving. Magnetic gun
+  mou
 pubDate: 2026-06-04
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-magnetic-gun-mount-for-truck&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Mirrors and Trim Adhesives
+heroImage: https://tse1.mm.bing.net/th?q=best-magnetic-gun-mount-for-truck&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Finding the best magnetic gun mount for your truck ensures safe and quick firearm access. A reliable mount holds your gun firmly while driving.**

@@ -1,10 +1,14 @@
 ---
-title: "What Oil Does a Ford F150 Take: Ultimate Guide for Peak Performance"
-description: "If you own a Ford F150, you know how important it is to keep your truck running smoothly. One simple step that can save you from costly repairs is using the rig"
+title: 'What Oil Does a Ford F150 Take: Ultimate Guide for Peak Performance'
+description: If you own a Ford F150, you know how important it is to keep your truck
+  running smoothly. One simple step that can save you from costly repairs is using
+  the rig
 pubDate: 2026-04-27
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-oil-does-a-ford-f150-take&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- What Oil to Use
+heroImage: https://tse1.mm.bing.net/th?q=what-oil-does-a-ford-f150-take&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a Ford F150, you know how important it is to keep your truck running smoothly. One simple step that can save you from costly repairs is using the right oil.**

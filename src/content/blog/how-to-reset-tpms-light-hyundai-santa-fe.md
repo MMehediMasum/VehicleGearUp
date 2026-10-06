@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Tpms Light Hyundai Santa Fe: Quick & Easy Guide"
-description: "Is your Hyundai Santa Fe’s TPMS light glowing on the dashboard? That little warning can cause big worries, but you don’t have to stress. Knowing how to reset th"
+title: 'How to Reset Tpms Light Hyundai Santa Fe: Quick & Easy Guide'
+description: Is your Hyundai Santa Fe’s TPMS light glowing on the dashboard? That
+  little warning can cause big worries, but you don’t have to stress. Knowing how
+  to reset th
 pubDate: 2026-05-26
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-tpms-light-hyundai-santa-fe&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Resetting Honda TPMS
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-tpms-light-hyundai-santa-fe&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Is your Hyundai Santa Fe’s TPMS light glowing on the dashboard? That little warning can cause big worries, but you don’t have to stress.**

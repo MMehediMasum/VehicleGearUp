@@ -1,10 +1,14 @@
 ---
-title: "Best Fuel Injector Cleaner for Nissan Altima: Top Picks for Peak Performance"
-description: "Choosing the best fuel injector cleaner for your Nissan Altima helps keep the engine running smoothly. Clean fuel injectors improve performance and fuel efficie"
+title: 'Best Fuel Injector Cleaner for Nissan Altima: Top Picks for Peak Performance'
+description: Choosing the best fuel injector cleaner for your Nissan Altima helps
+  keep the engine running smoothly. Clean fuel injectors improve performance and fuel
+  efficie
 pubDate: 2026-07-06
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-fuel-injector-cleaner-for-nissan-altima&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Fuel Injector Cleaner Picks
+heroImage: https://tse1.mm.bing.net/th?q=best-fuel-injector-cleaner-for-nissan-altima&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best fuel injector cleaner for your Nissan Altima helps keep the engine running smoothly. Clean fuel injectors improve performance and fuel efficiency.**

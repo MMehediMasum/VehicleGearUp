@@ -1,10 +1,14 @@
 ---
-title: "Best Motorcycle Jacket for Cold Weather: Top Picks for Ultimate Warmth"
-description: "Riding a motorcycle in cold weather requires the right jacket to stay warm and safe. Choosing the best motorcycle jacket helps protect against wind, rain, and l"
+title: 'Best Motorcycle Jacket for Cold Weather: Top Picks for Ultimate Warmth'
+description: Riding a motorcycle in cold weather requires the right jacket to stay
+  warm and safe. Choosing the best motorcycle jacket helps protect against wind, rain,
+  and l
 pubDate: 2025-10-18
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-motorcycle-jacket-for-cold-weather&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Weather Gear
+heroImage: https://tse1.mm.bing.net/th?q=best-motorcycle-jacket-for-cold-weather&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Riding a motorcycle in cold weather requires the right jacket to stay warm and safe. Choosing the best motorcycle jacket helps protect against wind, rain, and low temperatures.**

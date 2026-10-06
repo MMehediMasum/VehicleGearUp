@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can You Have a Knife in Your Car Washington State: Legal Insights Revealed"
 description: "Are you wondering if you can keep a knife in your car while driving around Washington State? Whether you carry a pocket knife for work, camping, or everyday use"
 pubDate: 2025-11-14

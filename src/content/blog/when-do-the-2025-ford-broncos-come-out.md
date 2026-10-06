@@ -1,10 +1,14 @@
 ---
-title: "When Do the 2025 Ford Broncos Come Out: Release Date Revealed!"
-description: "Are you excited about the 2025 Ford Bronco but wondering exactly when it will hit the roads? You’re not alone. Many fans are eager to know the release date so t"
+title: 'When Do the 2025 Ford Broncos Come Out: Release Date Revealed!'
+description: Are you excited about the 2025 Ford Bronco but wondering exactly when
+  it will hit the roads? You’re not alone. Many fans are eager to know the release
+  date so t
 pubDate: 2026-01-15
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=when-do-the-2025-ford-broncos-come-out&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Model Availability and Value
+heroImage: https://tse1.mm.bing.net/th?q=when-do-the-2025-ford-broncos-come-out&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you excited about the 2025 Ford Bronco but wondering exactly when it will hit the roads? You’re not alone.**

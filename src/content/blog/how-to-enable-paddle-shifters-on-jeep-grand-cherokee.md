@@ -1,10 +1,14 @@
 ---
-title: "How to Enable Paddle Shifters on Jeep Grand Cherokee: Quick Guide"
-description: "Have you ever wanted more control over your Jeep Grand Cherokee’s driving experience? Enabling paddle shifters can give you that sporty edge, letting you shift "
+title: 'How to Enable Paddle Shifters on Jeep Grand Cherokee: Quick Guide'
+description: 'Have you ever wanted more control over your Jeep Grand Cherokee’s driving
+  experience? Enabling paddle shifters can give you that sporty edge, letting you
+  shift '
 pubDate: 2026-02-10
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-enable-paddle-shifters-on-jeep-grand-cherokee&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Drive Modes and Buttons
+heroImage: https://tse1.mm.bing.net/th?q=how-to-enable-paddle-shifters-on-jeep-grand-cherokee&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Have you ever wanted more control over your Jeep Grand Cherokee’s driving experience? Enabling paddle shifters can give you that sporty edge, letting you shift gears quickly without taking your hands off the wheel.**

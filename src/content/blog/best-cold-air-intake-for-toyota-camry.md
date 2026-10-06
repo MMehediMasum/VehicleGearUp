@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for Toyota Camry to Boost Performance and Power"
-description: "Choosing the best cold air intake can boost your Toyota Camry’s engine power and fuel efficiency. This guide covers top cold air intakes designed specifically f"
+title: Best Cold Air Intake for Toyota Camry to Boost Performance and Power
+description: Choosing the best cold air intake can boost your Toyota Camry’s engine
+  power and fuel efficiency. This guide covers top cold air intakes designed specifically
+  f
 pubDate: 2026-06-23
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-toyota-camry&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Engine Specific Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-toyota-camry&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best cold air intake can boost your Toyota Camry’s engine power and fuel efficiency. This guide covers top cold air intakes designed specifically for Camry models from various years.**

@@ -1,10 +1,14 @@
 ---
-title: "Can You Jump Start a Car With Bad Spark Plugs? Expert Tips"
-description: "Have you ever been stuck with a car that just won’t start, and you wonder if jump-starting it will fix the problem? Especially when you suspect your spark plugs"
+title: Can You Jump Start a Car With Bad Spark Plugs? Expert Tips
+description: Have you ever been stuck with a car that just won’t start, and you wonder
+  if jump-starting it will fix the problem? Especially when you suspect your spark
+  plugs
 pubDate: 2026-03-13
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-jump-start-a-car-with-bad-spark-plugs&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jump Starting by Model
+heroImage: https://tse1.mm.bing.net/th?q=can-you-jump-start-a-car-with-bad-spark-plugs&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever been stuck with a car that just won’t start, and you wonder if jump-starting it will fix the problem? Especially when you suspect your spark plugs might be the issue?**

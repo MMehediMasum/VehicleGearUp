@@ -1,10 +1,14 @@
 ---
-title: "Where Can I Get My Car Horn Fixed: Top Trusted Repair Spots"
-description: "Is your car horn not working when you need it most? You rely on your horn for safety and quick communication on the road, so a faulty horn can be frustrating an"
+title: 'Where Can I Get My Car Horn Fixed: Top Trusted Repair Spots'
+description: Is your car horn not working when you need it most? You rely on your
+  horn for safety and quick communication on the road, so a faulty horn can be frustrating
+  an
 pubDate: 2026-04-26
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-get-my-car-horn-fixed&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Horn Problems
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-get-my-car-horn-fixed&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your car horn not working when you need it most? You rely on your horn for safety and quick communication on the road, so a faulty horn can be frustrating and even dangerous.**

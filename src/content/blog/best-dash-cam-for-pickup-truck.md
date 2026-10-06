@@ -1,10 +1,14 @@
 ---
-title: "Best Dash Cam for Pickup Truck: Top 4K Dual Front and Rear Options"
-description: "Choosing the best dash cam for your pickup truck can protect you from accidents and theft. A reliable dash cam records clear footage day and night. Pickup truck"
+title: 'Best Dash Cam for Pickup Truck: Top 4K Dual Front and Rear Options'
+description: Choosing the best dash cam for your pickup truck can protect you from
+  accidents and theft. A reliable dash cam records clear footage day and night. Pickup
+  truck
 pubDate: 2026-07-27
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-dash-cam-for-pickup-truck&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Dash Cams and Backup Cameras
+heroImage: https://tse1.mm.bing.net/th?q=best-dash-cam-for-pickup-truck&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Choosing the best dash cam for your pickup truck can protect you from accidents and theft. A reliable dash cam records clear footage day and night.**

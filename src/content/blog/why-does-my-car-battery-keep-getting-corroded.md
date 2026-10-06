@@ -1,10 +1,14 @@
 ---
-title: "Why Does My Car Battery Keep Getting Corroded: Top Causes Explained"
-description: "Have you ever opened your car hood only to find a white, powdery buildup on your battery terminals? It’s frustrating, especially when your car won’t start, and "
+title: 'Why Does My Car Battery Keep Getting Corroded: Top Causes Explained'
+description: 'Have you ever opened your car hood only to find a white, powdery buildup
+  on your battery terminals? It’s frustrating, especially when your car won’t start,
+  and '
 pubDate: 2025-11-09
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-does-my-car-battery-keep-getting-corroded&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Terminal Care
+heroImage: https://tse1.mm.bing.net/th?q=why-does-my-car-battery-keep-getting-corroded&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever opened your car hood only to find a white, powdery buildup on your battery terminals? It’s frustrating, especially when your car won’t start, and you wonder, “Why does my car battery keep getting corroded?” You’re not alone.**

@@ -1,10 +1,14 @@
 ---
-title: "What Oil Does a Volkswagen Passat Take: Ultimate Guide 2025"
-description: "If you own a Volkswagen Passat, you probably want to keep it running smoothly and efficiently. One of the easiest ways to do that is by using the right oil for "
+title: 'What Oil Does a Volkswagen Passat Take: Ultimate Guide 2025'
+description: 'If you own a Volkswagen Passat, you probably want to keep it running
+  smoothly and efficiently. One of the easiest ways to do that is by using the right
+  oil for '
 pubDate: 2026-05-12
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-oil-does-a-volkswagen-passat-take&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- What Oil to Use
+heroImage: https://tse1.mm.bing.net/th?q=what-oil-does-a-volkswagen-passat-take&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a Volkswagen Passat, you probably want to keep it running smoothly and efficiently. One of the easiest ways to do that is by using the right oil for your engine.**

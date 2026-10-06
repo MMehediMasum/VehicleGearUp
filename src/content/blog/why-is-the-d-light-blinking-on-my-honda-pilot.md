@@ -1,10 +1,14 @@
 ---
-title: "Why is the D Light Blinking on My Honda Pilot: Causes & Fixes"
-description: "Have you noticed the D light blinking on your Honda Pilot and wondered what it means? That little warning can be confusing and even a bit alarming. You might be"
+title: 'Why is the D Light Blinking on My Honda Pilot: Causes & Fixes'
+description: Have you noticed the D light blinking on your Honda Pilot and wondered
+  what it means? That little warning can be confusing and even a bit alarming. You
+  might be
 pubDate: 2026-05-24
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-is-the-d-light-blinking-on-my-honda-pilot&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Dashboard Lights and Noises
+heroImage: https://tse1.mm.bing.net/th?q=why-is-the-d-light-blinking-on-my-honda-pilot&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Have you noticed the D light blinking on your Honda Pilot and wondered what it means? That little warning can be confusing and even a bit alarming.**

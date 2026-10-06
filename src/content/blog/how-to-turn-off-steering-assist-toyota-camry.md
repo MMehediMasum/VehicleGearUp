@@ -1,10 +1,14 @@
 ---
-title: "How to Turn off Steering Assist Toyota Camry: Easy Step-by-Step Guide"
-description: "If you own a Toyota Camry, you might have noticed the steering assist feature helping you stay on track. But what if you want to turn it off? Maybe you prefer f"
+title: 'How to Turn off Steering Assist Toyota Camry: Easy Step-by-Step Guide'
+description: If you own a Toyota Camry, you might have noticed the steering assist
+  feature helping you stay on track. But what if you want to turn it off? Maybe you
+  prefer f
 pubDate: 2026-02-24
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-steering-assist-toyota-camry&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Truck Suspension Upgrades
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-steering-assist-toyota-camry&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a Toyota Camry, you might have noticed the steering assist feature helping you stay on track. But what if you want to turn it off?**

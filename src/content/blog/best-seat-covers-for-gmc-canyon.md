@@ -1,10 +1,14 @@
 ---
-title: "Best Seat Covers for GMC Canyon: Top Durable and Stylish Picks"
-description: "Finding the best seat covers for your GMC Canyon can protect your seats and improve comfort. Quality covers also keep your truck’s interior looking fresh and cl"
+title: 'Best Seat Covers for GMC Canyon: Top Durable and Stylish Picks'
+description: Finding the best seat covers for your GMC Canyon can protect your seats
+  and improve comfort. Quality covers also keep your truck’s interior looking fresh
+  and cl
 pubDate: 2026-07-20
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-seat-covers-for-gmc-canyon&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Chevy and Ford Seat Covers
+heroImage: https://tse1.mm.bing.net/th?q=best-seat-covers-for-gmc-canyon&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Finding the best seat covers for your GMC Canyon can protect your seats and improve comfort. Quality covers also keep your truck’s interior looking fresh and clean.**

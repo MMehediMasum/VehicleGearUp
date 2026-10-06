@@ -1,10 +1,14 @@
 ---
-title: "When Your Car Battery Dies What Happens: Shocking Truth Revealed"
-description: "Imagine this: you’re all set to head out, but when you turn the key, nothing happens. Your car won’t start. What’s going on? Most likely, your car battery has d"
+title: 'When Your Car Battery Dies What Happens: Shocking Truth Revealed'
+description: 'Imagine this: you’re all set to head out, but when you turn the key,
+  nothing happens. Your car won’t start. What’s going on? Most likely, your car battery
+  has d'
 pubDate: 2026-03-25
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=when-your-car-battery-dies-what-happens&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- When to Replace a Battery
+heroImage: https://tse1.mm.bing.net/th?q=when-your-car-battery-dies-what-happens&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Imagine this: you’re all set to head out, but when you turn the key, nothing happens. Your car won’t start.**

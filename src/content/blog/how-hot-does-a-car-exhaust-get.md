@@ -1,10 +1,14 @@
 ---
-title: "How Hot Does a Car Exhaust Get: Shocking Temperatures Revealed"
-description: "Have you ever wondered just how hot your car’s exhaust gets? It’s more than just a pipe at the back of your vehicle—it’s a critical part that handles extreme he"
+title: 'How Hot Does a Car Exhaust Get: Shocking Temperatures Revealed'
+description: Have you ever wondered just how hot your car’s exhaust gets? It’s more
+  than just a pipe at the back of your vehicle—it’s a critical part that handles extreme
+  he
 pubDate: 2026-02-23
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-hot-does-a-car-exhaust-get&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Exhaust Systems
+heroImage: https://tse1.mm.bing.net/th?q=how-hot-does-a-car-exhaust-get&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you ever wondered just how hot your car’s exhaust gets? It’s more than just a pipe at the back of your vehicle—it’s a critical part that handles extreme heat every time you drive.**

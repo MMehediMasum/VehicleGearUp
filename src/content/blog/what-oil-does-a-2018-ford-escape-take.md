@@ -1,10 +1,14 @@
 ---
-title: "What Oil Does a 2018 Ford Escape Take: Expert Guide Revealed"
-description: "If you own a 2018 Ford Escape, you know how important it is to keep your engine running smoothly. But do you know exactly what oil your vehicle needs? Using the"
+title: 'What Oil Does a 2018 Ford Escape Take: Expert Guide Revealed'
+description: If you own a 2018 Ford Escape, you know how important it is to keep your
+  engine running smoothly. But do you know exactly what oil your vehicle needs? Using
+  the
 pubDate: 2026-05-01
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-oil-does-a-2018-ford-escape-take&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- What Oil to Use
+heroImage: https://tse1.mm.bing.net/th?q=what-oil-does-a-2018-ford-escape-take&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a 2018 Ford Escape, you know how important it is to keep your engine running smoothly. But do you know exactly what oil your vehicle needs?**

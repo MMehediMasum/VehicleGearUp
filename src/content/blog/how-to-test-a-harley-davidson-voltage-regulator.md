@@ -1,10 +1,14 @@
 ---
-title: "How to Test a Harley Davidson Voltage Regulator: Easy Step-by-Step Guide"
-description: "If your Harley Davidson’s electrical system isn’t working right, the voltage regulator might be the problem. Knowing how to test your Harley Davidson voltage re"
+title: 'How to Test a Harley Davidson Voltage Regulator: Easy Step-by-Step Guide'
+description: If your Harley Davidson’s electrical system isn’t working right, the
+  voltage regulator might be the problem. Knowing how to test your Harley Davidson
+  voltage re
 pubDate: 2026-04-12
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-test-a-harley-davidson-voltage-regulator&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Maintenance Basics
+heroImage: https://tse1.mm.bing.net/th?q=how-to-test-a-harley-davidson-voltage-regulator&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **If your Harley Davidson’s electrical system isn’t working right, the voltage regulator might be the problem. Knowing how to test your Harley Davidson voltage regulator can save you time, money, and frustration.**

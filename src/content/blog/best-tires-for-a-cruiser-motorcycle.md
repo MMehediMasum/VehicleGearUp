@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for a Cruiser Motorcycle: Top Durable and Reliable Picks"
-description: "Choosing the best tires for a cruiser motorcycle improves safety and ride comfort. Good tires provide better grip, stability, and longer life on the road. Cruis"
+title: 'Best Tires for a Cruiser Motorcycle: Top Durable and Reliable Picks'
+description: Choosing the best tires for a cruiser motorcycle improves safety and
+  ride comfort. Good tires provide better grip, stability, and longer life on the
+  road. Cruis
 pubDate: 2025-12-26
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-a-cruiser-motorcycle&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-a-cruiser-motorcycle&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best tires for a cruiser motorcycle improves safety and ride comfort. Good tires provide better grip, stability, and longer life on the road.**

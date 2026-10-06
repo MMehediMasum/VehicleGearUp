@@ -1,10 +1,14 @@
 ---
-title: "Why Did My Car Heater Stop Working: Quick Fixes You Need Now"
-description: "Have you ever turned on your car heater on a chilly day, only to find it blowing cold air instead? It’s frustrating and uncomfortable, especially when you rely "
+title: 'Why Did My Car Heater Stop Working: Quick Fixes You Need Now'
+description: 'Have you ever turned on your car heater on a chilly day, only to find
+  it blowing cold air instead? It’s frustrating and uncomfortable, especially when
+  you rely '
 pubDate: 2026-02-08
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-did-my-car-heater-stop-working&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Heater Not Working
+heroImage: https://tse1.mm.bing.net/th?q=why-did-my-car-heater-stop-working&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever turned on your car heater on a chilly day, only to find it blowing cold air instead? It’s frustrating and uncomfortable, especially when you rely on that warm breeze to get through winter drives.**

@@ -1,10 +1,14 @@
 ---
-title: "Why is My Car Battery Dying So Fast: Top Causes & Fixes"
-description: "Is your car battery dying faster than it used to? You’re not alone—and it’s more than just a minor annoyance. A battery that drains quickly can leave you strand"
+title: 'Why is My Car Battery Dying So Fast: Top Causes & Fixes'
+description: Is your car battery dying faster than it used to? You’re not alone—and
+  it’s more than just a minor annoyance. A battery that drains quickly can leave you
+  strand
 pubDate: 2025-10-28
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-is-my-car-battery-dying-so-fast&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Why Batteries Keep Dying
+heroImage: https://tse1.mm.bing.net/th?q=why-is-my-car-battery-dying-so-fast&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your car battery dying faster than it used to? You’re not alone—and it’s more than just a minor annoyance.**

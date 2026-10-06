@@ -1,10 +1,14 @@
 ---
-title: "Best Back Seat Air Mattress for Truck: Top Comfortable Travel Beds"
-description: "Finding the best back seat air mattress for your truck makes long trips more comfortable and restful. A quality air mattress fits perfectly in your truck’s back"
+title: 'Best Back Seat Air Mattress for Truck: Top Comfortable Travel Beds'
+description: Finding the best back seat air mattress for your truck makes long trips
+  more comfortable and restful. A quality air mattress fits perfectly in your truck’s
+  back
 pubDate: 2026-07-29
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-back-seat-air-mattress-for-truck&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Handy Car Gadgets
+heroImage: https://tse1.mm.bing.net/th?q=best-back-seat-air-mattress-for-truck&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Finding the best back seat air mattress for your truck makes long trips more comfortable and restful. A quality air mattress fits perfectly in your truck’s back seat, providing a soft, flat place to sleep.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Roof Rack for Toyota Highlander: Top Heavy Duty Cross Bars Reviewed"
-description: "Choosing the best roof rack for your Toyota Highlander can improve your vehicle’s storage and travel options. A good roof rack offers strength, security, and fi"
+title: 'Best Roof Rack for Toyota Highlander: Top Heavy Duty Cross Bars Reviewed'
+description: Choosing the best roof rack for your Toyota Highlander can improve your
+  vehicle’s storage and travel options. A good roof rack offers strength, security,
+  and fi
 pubDate: 2026-06-23
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-roof-rack-for-toyota-highlander&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Roof Racks and Tents
+heroImage: https://tse1.mm.bing.net/th?q=best-roof-rack-for-toyota-highlander&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Choosing the best roof rack for your Toyota Highlander can improve your vehicle’s storage and travel options. A good roof rack offers strength, security, and fits your model perfectly.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Change a Car Battery Honda Odyssey: Quick & Easy Guide"
-description: "Is your Honda Odyssey struggling to start? A dead or weak battery could be the cause. Changing your car battery might seem tricky, but with the right steps, you"
+title: 'How to Change a Car Battery Honda Odyssey: Quick & Easy Guide'
+description: Is your Honda Odyssey struggling to start? A dead or weak battery could
+  be the cause. Changing your car battery might seem tricky, but with the right steps,
+  you
 pubDate: 2026-04-16
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-a-car-battery-honda-odyssey&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing a Car Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-a-car-battery-honda-odyssey&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your Honda Odyssey struggling to start? A dead or weak battery could be the cause.**

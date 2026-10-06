@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Can Am Spyder: Top Picks for Ultimate Performance"
-description: "Choosing the best tires for your Can-Am Spyder improves safety and ride comfort. The right tires suit different road conditions and riding styles. Tires like th"
+title: 'Best Tires for Can Am Spyder: Top Picks for Ultimate Performance'
+description: Choosing the best tires for your Can-Am Spyder improves safety and ride
+  comfort. The right tires suit different road conditions and riding styles. Tires
+  like th
 pubDate: 2025-12-29
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-can-am-spyder&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- ATV Tires and Speed
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-can-am-spyder&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best tires for your Can-Am Spyder improves safety and ride comfort. The right tires suit different road conditions and riding styles.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Lexus Nx 300: Top Picks for Performance and Durability"
-description: "Choosing the best tires for your Lexus NX 300 improves safety and driving comfort. Good tires handle different road conditions and last longer. Tires are a key "
+title: 'Best Tires for Lexus Nx 300: Top Picks for Performance and Durability'
+description: 'Choosing the best tires for your Lexus NX 300 improves safety and driving
+  comfort. Good tires handle different road conditions and last longer. Tires are
+  a key '
 pubDate: 2025-12-21
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-lexus-nx-300&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-lexus-nx-300&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your Lexus NX 300 improves safety and driving comfort. Good tires handle different road conditions and last longer.**

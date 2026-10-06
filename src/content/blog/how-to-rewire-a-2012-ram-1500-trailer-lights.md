@@ -1,10 +1,14 @@
 ---
-title: "How to Rewire a 2012 Ram 1500 Trailer Lights: Easy Step-by-Step Guide"
-description: "If your 2012 Ram 1500 trailer lights aren’t working right, it can be frustrating and unsafe. You rely on those lights to signal turns, stops, and hazards when t"
+title: 'How to Rewire a 2012 Ram 1500 Trailer Lights: Easy Step-by-Step Guide'
+description: If your 2012 Ram 1500 trailer lights aren’t working right, it can be
+  frustrating and unsafe. You rely on those lights to signal turns, stops, and hazards
+  when t
 pubDate: 2026-05-24
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-rewire-a-2012-ram-1500-trailer-lights&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Best Trucks for Towing
+heroImage: https://tse1.mm.bing.net/th?q=how-to-rewire-a-2012-ram-1500-trailer-lights&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **If your 2012 Ram 1500 trailer lights aren’t working right, it can be frustrating and unsafe. You rely on those lights to signal turns, stops, and hazards when towing.**

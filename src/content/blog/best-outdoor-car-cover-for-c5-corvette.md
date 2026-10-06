@@ -1,10 +1,14 @@
 ---
-title: "Best Outdoor Car Cover for C5 Corvette: Ultimate Protection Guide"
-description: "Protect your C5 Corvette from weather damage with the best outdoor car covers. These covers fit perfectly and shield against sun, rain, dust, and snow. Keeping "
+title: 'Best Outdoor Car Cover for C5 Corvette: Ultimate Protection Guide'
+description: 'Protect your C5 Corvette from weather damage with the best outdoor car
+  covers. These covers fit perfectly and shield against sun, rain, dust, and snow.
+  Keeping '
 pubDate: 2026-07-26
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-outdoor-car-cover-for-c5-corvette&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Covers
+heroImage: https://tse1.mm.bing.net/th?q=best-outdoor-car-cover-for-c5-corvette&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Protect your C5 Corvette from weather damage with the best outdoor car covers. These covers fit perfectly and shield against sun, rain, dust, and snow.**

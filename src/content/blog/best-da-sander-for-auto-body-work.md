@@ -1,10 +1,14 @@
 ---
-title: "Best Da Sander for Auto Body Work: Top Tools for Smooth Finishes"
-description: "Choosing the best DA sander for auto body work improves your car’s finish and speeds up sanding tasks. A quality dual action sander offers control, smooth resul"
+title: 'Best Da Sander for Auto Body Work: Top Tools for Smooth Finishes'
+description: Choosing the best DA sander for auto body work improves your car’s finish
+  and speeds up sanding tasks. A quality dual action sander offers control, smooth
+  resul
 pubDate: 2025-10-08
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-da-sander-for-auto-body-work&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Vinyl Wraps and Body Work
+heroImage: https://tse1.mm.bing.net/th?q=best-da-sander-for-auto-body-work&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best DA sander for auto body work improves your car’s finish and speeds up sanding tasks. A quality dual action sander offers control, smooth results, and less vibration.**

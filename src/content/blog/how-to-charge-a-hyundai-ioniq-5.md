@@ -1,10 +1,14 @@
 ---
-title: "How to Charge a Hyundai Ioniq 5: Ultimate Fast Charging Guide"
-description: "If you own a Hyundai Ioniq 5, knowing how to charge it properly is key to getting the most out of your electric vehicle. You might wonder how to find the right "
+title: 'How to Charge a Hyundai Ioniq 5: Ultimate Fast Charging Guide'
+description: 'If you own a Hyundai Ioniq 5, knowing how to charge it properly is key
+  to getting the most out of your electric vehicle. You might wonder how to find the
+  right '
 pubDate: 2026-03-06
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-charge-a-hyundai-ioniq-5&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hybrid Battery and Braking
+heroImage: https://tse1.mm.bing.net/th?q=how-to-charge-a-hyundai-ioniq-5&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **If you own a Hyundai Ioniq 5, knowing how to charge it properly is key to getting the most out of your electric vehicle. You might wonder how to find the right charger, how long it takes, or what steps to follow to keep your battery healthy.**

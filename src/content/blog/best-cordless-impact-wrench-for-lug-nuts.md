@@ -1,10 +1,13 @@
 ---
-title: "Best Cordless Impact Wrench for Lug Nuts: Top High-Torque Picks"
-description: "Choosing the best cordless impact wrench for lug nuts makes tire changes faster and easier. These tools deliver strong torque without needing a cord. A cordless"
+title: 'Best Cordless Impact Wrench for Lug Nuts: Top High-Torque Picks'
+description: Choosing the best cordless impact wrench for lug nuts makes tire changes
+  faster and easier. These tools deliver strong torque without needing a cord. A cordless
 pubDate: 2025-11-09
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cordless-impact-wrench-for-lug-nuts&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spare Tires and Tire Changing
+heroImage: https://tse1.mm.bing.net/th?q=best-cordless-impact-wrench-for-lug-nuts&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best cordless impact wrench for lug nuts makes tire changes faster and easier. These tools deliver strong torque without needing a cord.**

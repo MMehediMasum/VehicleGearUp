@@ -1,10 +1,14 @@
 ---
-title: "Should You Fold Mirrors in Car Wash: Essential Safety Tips Revealed"
-description: "Have you ever wondered if you should fold your car’s mirrors before going through a car wash? It’s a simple step that many drivers overlook, but it can make a b"
+title: 'Should You Fold Mirrors in Car Wash: Essential Safety Tips Revealed'
+description: Have you ever wondered if you should fold your car’s mirrors before going
+  through a car wash? It’s a simple step that many drivers overlook, but it can make
+  a b
 pubDate: 2026-03-17
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=should-you-fold-mirrors-in-car-wash&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wash Costs and Etiquette
+heroImage: https://tse1.mm.bing.net/th?q=should-you-fold-mirrors-in-car-wash&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever wondered if you should fold your car’s mirrors before going through a car wash? It’s a simple step that many drivers overlook, but it can make a big difference.**

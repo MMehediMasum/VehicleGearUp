@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for 6.2 Escalade to Boost Power and Performance"
-description: "Choosing the best cold air intake for your 6.2 Escalade can boost engine power and improve fuel efficiency. A quality intake system helps your engine breathe co"
+title: Best Cold Air Intake for 6.2 Escalade to Boost Power and Performance
+description: Choosing the best cold air intake for your 6.2 Escalade can boost engine
+  power and improve fuel efficiency. A quality intake system helps your engine breathe
+  co
 pubDate: 2026-06-08
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-62-escalade&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- GM Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-62-escalade&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best cold air intake for your 6.2 Escalade can boost engine power and improve fuel efficiency. A quality intake system helps your engine breathe cooler, denser air for better performance.**

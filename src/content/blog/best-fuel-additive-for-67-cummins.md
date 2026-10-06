@@ -1,10 +1,13 @@
 ---
-title: "Best Fuel Additive for 6.7 Cummins to Boost Engine Performance"
-description: "Choosing the best fuel additive for your 6.7 Cummins keeps your engine clean and running smoothly. It helps prevent fuel system problems and improves performanc"
+title: Best Fuel Additive for 6.7 Cummins to Boost Engine Performance
+description: Choosing the best fuel additive for your 6.7 Cummins keeps your engine
+  clean and running smoothly. It helps prevent fuel system problems and improves performanc
 pubDate: 2026-06-25
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-fuel-additive-for-67-cummins&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Diesel Fuel Filters and Additives
+heroImage: https://tse1.mm.bing.net/th?q=best-fuel-additive-for-67-cummins&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best fuel additive for your 6.7 Cummins keeps your engine clean and running smoothly. It helps prevent fuel system problems and improves performance.**

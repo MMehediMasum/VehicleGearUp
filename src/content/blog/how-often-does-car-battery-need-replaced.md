@@ -1,10 +1,14 @@
 ---
-title: "How Often Does Car Battery Need Replaced: Essential Guide"
-description: "Have you ever been stuck with a car that just won’t start? One of the most common culprits is a failing battery. But how often does your car battery actually ne"
+title: 'How Often Does Car Battery Need Replaced: Essential Guide'
+description: Have you ever been stuck with a car that just won’t start? One of the
+  most common culprits is a failing battery. But how often does your car battery actually
+  ne
 pubDate: 2026-05-01
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-often-does-car-battery-need-replaced&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Fixing Battery Drain
+heroImage: https://tse1.mm.bing.net/th?q=how-often-does-car-battery-need-replaced&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever been stuck with a car that just won’t start? One of the most common culprits is a failing battery.**

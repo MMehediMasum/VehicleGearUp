@@ -1,10 +1,14 @@
 ---
-title: "What Liquid Can Destroy a Car Engine: Shocking Dangers Revealed"
-description: "Have you ever wondered what liquid could completely ruin your car engine? You might think only accidents or old age can cause serious damage, but some common li"
+title: 'What Liquid Can Destroy a Car Engine: Shocking Dangers Revealed'
+description: Have you ever wondered what liquid could completely ruin your car engine?
+  You might think only accidents or old age can cause serious damage, but some common
+  li
 pubDate: 2026-05-03
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-liquid-can-destroy-a-car-engine&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- How Car Engines Work
+heroImage: https://tse1.mm.bing.net/th?q=what-liquid-can-destroy-a-car-engine&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you ever wondered what liquid could completely ruin your car engine? You might think only accidents or old age can cause serious damage, but some common liquids can destroy your engine faster than you expect.**

@@ -1,10 +1,14 @@
 ---
-title: "What is a Good Cca for a Car Battery: Ultimate Buying Guide"
-description: "When it comes to your car battery, understanding CCA can make all the difference between a smooth start and a frustrating no-start. But what exactly is a good C"
+title: 'What is a Good Cca for a Car Battery: Ultimate Buying Guide'
+description: When it comes to your car battery, understanding CCA can make all the
+  difference between a smooth start and a frustrating no-start. But what exactly is
+  a good C
 pubDate: 2026-03-25
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-a-good-cca-for-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Ratings Explained
+heroImage: https://tse1.mm.bing.net/th?q=what-is-a-good-cca-for-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **When it comes to your car battery, understanding CCA can make all the difference between a smooth start and a frustrating no-start. But what exactly is a good CCA for a car battery?**

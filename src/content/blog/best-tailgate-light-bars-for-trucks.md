@@ -1,10 +1,14 @@
 ---
-title: "Best Tailgate Light Bars for Trucks: Top Durable LED Options Reviewed"
-description: "Tailgate light bars improve truck safety and style with bright, clear signals. Choosing the right one makes a big difference on the road. A good tailgate light "
+title: 'Best Tailgate Light Bars for Trucks: Top Durable LED Options Reviewed'
+description: 'Tailgate light bars improve truck safety and style with bright, clear
+  signals. Choosing the right one makes a big difference on the road. A good tailgate
+  light '
 pubDate: 2026-07-17
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tailgate-light-bars-for-trucks&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Truck Caps and Bed Liners
+heroImage: https://tse1.mm.bing.net/th?q=best-tailgate-light-bars-for-trucks&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Tailgate light bars improve truck safety and style with bright, clear signals. Choosing the right one makes a big difference on the road.**

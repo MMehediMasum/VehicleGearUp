@@ -1,10 +1,14 @@
 ---
-title: "Best Battery Tender for Harley Davidson: Top Chargers for Ultimate Maintenance"
-description: "Choosing the best battery tender for your Harley Davidson keeps the bike’s battery healthy and ready. A good charger prevents battery drain and extends battery "
+title: 'Best Battery Tender for Harley Davidson: Top Chargers for Ultimate Maintenance'
+description: 'Choosing the best battery tender for your Harley Davidson keeps the
+  bike’s battery healthy and ready. A good charger prevents battery drain and extends
+  battery '
 pubDate: 2025-09-05
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-battery-tender-for-harley-davidson&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Ownership Questions
+heroImage: https://tse1.mm.bing.net/th?q=best-battery-tender-for-harley-davidson&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best battery tender for your Harley Davidson keeps the bike’s battery healthy and ready. A good charger prevents battery drain and extends battery life.**

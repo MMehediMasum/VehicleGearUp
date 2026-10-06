@@ -1,10 +1,13 @@
 ---
-title: "Is the BMW X5 All Wheel Drive? Ultimate Performance Revealed"
-description: "Are you curious if the BMW X5 comes with all-wheel drive? Whether you’re thinking about buying one or just want to know how it handles different road conditions"
+title: Is the BMW X5 All Wheel Drive? Ultimate Performance Revealed
+description: Are you curious if the BMW X5 comes with all-wheel drive? Whether you’re
+  thinking about buying one or just want to know how it handles different road conditions
 pubDate: 2025-11-20
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-the-bmw-x5-all-wheel-drive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- All Wheel Drive Questions
+heroImage: https://tse1.mm.bing.net/th?q=is-the-bmw-x5-all-wheel-drive&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you curious if the BMW X5 comes with all-wheel drive? Whether you’re thinking about buying one or just want to know how it handles different road conditions, this question matters.**

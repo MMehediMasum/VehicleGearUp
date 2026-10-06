@@ -1,10 +1,14 @@
 ---
-title: "Best Control Arms for Lifted Trucks: Top Adjustable Upper Arms Reviewed"
-description: "Choosing the best control arms for lifted trucks improves suspension and handling. Quality control arms fit your truck’s lift and ensure durability. Lifted truc"
+title: 'Best Control Arms for Lifted Trucks: Top Adjustable Upper Arms Reviewed'
+description: Choosing the best control arms for lifted trucks improves suspension
+  and handling. Quality control arms fit your truck’s lift and ensure durability.
+  Lifted truc
 pubDate: 2025-09-20
-author: "herbertlangham"
-categories: ["Car Technology & Features"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-control-arms-for-lifted-trucks&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Truck Suspension Upgrades
+heroImage: https://tse1.mm.bing.net/th?q=best-control-arms-for-lifted-trucks&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Choosing the best control arms for lifted trucks improves suspension and handling. Quality control arms fit your truck’s lift and ensure durability.**

@@ -1,10 +1,13 @@
 ---
-title: "Best Cold Air Intake for Scat Pack to Boost Performance Fast"
-description: "Choosing the best cold air intake for your Scat Pack boosts engine performance and throttle response. A quality intake improves airflow, helping your car run st"
+title: Best Cold Air Intake for Scat Pack to Boost Performance Fast
+description: Choosing the best cold air intake for your Scat Pack boosts engine performance
+  and throttle response. A quality intake improves airflow, helping your car run st
 pubDate: 2026-06-28
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-scat-pack&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hemi Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-scat-pack&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best cold air intake for your Scat Pack boosts engine performance and throttle response. A quality intake improves airflow, helping your car run stronger and smoother.**

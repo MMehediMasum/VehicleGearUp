@@ -1,10 +1,14 @@
 ---
-title: "How to Add Water to a Sealed Car Battery: Easy Step-by-Step Guide"
-description: "Your car battery is one of the most important parts of your vehicle, and keeping it in good shape can save you from unexpected breakdowns. But what do you do if"
+title: 'How to Add Water to a Sealed Car Battery: Easy Step-by-Step Guide'
+description: Your car battery is one of the most important parts of your vehicle,
+  and keeping it in good shape can save you from unexpected breakdowns. But what do
+  you do if
 pubDate: 2026-04-04
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-add-water-to-a-sealed-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Terminal Care
+heroImage: https://tse1.mm.bing.net/th?q=how-to-add-water-to-a-sealed-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Your car battery is one of the most important parts of your vehicle, and keeping it in good shape can save you from unexpected breakdowns. But what do you do if your sealed car battery seems low on water?**

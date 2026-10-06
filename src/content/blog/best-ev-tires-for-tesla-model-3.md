@@ -1,10 +1,14 @@
 ---
-title: "Best Ev Tires for Tesla Model 3: Top Picks for Performance & Durability"
-description: "Choosing the best EV tires for your Tesla Model 3 improves safety and driving comfort. Quality tires also enhance battery efficiency and road grip. Tesla Model "
+title: 'Best Ev Tires for Tesla Model 3: Top Picks for Performance & Durability'
+description: 'Choosing the best EV tires for your Tesla Model 3 improves safety and
+  driving comfort. Quality tires also enhance battery efficiency and road grip. Tesla
+  Model '
 pubDate: 2026-01-02
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-ev-tires-for-tesla-model-3&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Tires and Accessories
+heroImage: https://tse1.mm.bing.net/th?q=best-ev-tires-for-tesla-model-3&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best EV tires for your Tesla Model 3 improves safety and driving comfort. Quality tires also enhance battery efficiency and road grip.**

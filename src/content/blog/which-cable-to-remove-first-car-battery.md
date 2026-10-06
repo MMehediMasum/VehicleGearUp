@@ -1,10 +1,14 @@
 ---
-title: "Which Cable to Remove First Car Battery: Essential Safety Tips"
-description: "Are you about to disconnect your car battery but unsure which cable to remove first? Making the wrong choice can cause sparks, damage, or even injury. Knowing t"
+title: 'Which Cable to Remove First Car Battery: Essential Safety Tips'
+description: Are you about to disconnect your car battery but unsure which cable to
+  remove first? Making the wrong choice can cause sparks, damage, or even injury.
+  Knowing t
 pubDate: 2026-04-08
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=which-cable-to-remove-first-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Disconnect Order
+heroImage: https://tse1.mm.bing.net/th?q=which-cable-to-remove-first-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you about to disconnect your car battery but unsure which cable to remove first? Making the wrong choice can cause sparks, damage, or even injury.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Fix a Hydraulic Car Jack: Quick & Easy Repair Tips"
-description: "Have you ever struggled with a hydraulic car jack that just won’t lift your vehicle properly? It’s frustrating when you need to change a tire or do some quick r"
+title: 'How to Fix a Hydraulic Car Jack: Quick & Easy Repair Tips'
+description: Have you ever struggled with a hydraulic car jack that just won’t lift
+  your vehicle properly? It’s frustrating when you need to change a tire or do some
+  quick r
 pubDate: 2025-10-25
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-a-hydraulic-car-jack&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Jacks and Jack Stands
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-a-hydraulic-car-jack&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Have you ever struggled with a hydraulic car jack that just won’t lift your vehicle properly? It’s frustrating when you need to change a tire or do some quick repairs, and your jack won’t cooperate.**

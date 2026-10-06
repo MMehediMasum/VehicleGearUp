@@ -1,10 +1,14 @@
 ---
-title: "What Does a Car Horn Look Like: Ultimate Guide to Its Design"
-description: "Have you ever stopped to really look at your car horn? It’s easy to take it for granted since it’s just a small part of your vehicle. But understanding what a c"
+title: 'What Does a Car Horn Look Like: Ultimate Guide to Its Design'
+description: Have you ever stopped to really look at your car horn? It’s easy to take
+  it for granted since it’s just a small part of your vehicle. But understanding what
+  a c
 pubDate: 2026-01-19
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-does-a-car-horn-look-like&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Horn Problems
+heroImage: https://tse1.mm.bing.net/th?q=what-does-a-car-horn-look-like&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Have you ever stopped to really look at your car horn? It’s easy to take it for granted since it’s just a small part of your vehicle.**

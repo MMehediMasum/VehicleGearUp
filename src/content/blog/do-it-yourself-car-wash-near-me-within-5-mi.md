@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Do It Yourself Car Wash near Me within 5 Mi: Quick & Easy Options"
 description: "Looking for a quick and easy way to give your car a sparkling clean without spending a fortune? You’re in the right place. Finding a \"Do It Yourself Car Wash ne"
 pubDate: 2026-03-20

@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Low Tire Pressure on Honda Civic: Quick & Easy Steps"
-description: "Have you ever noticed that annoying low tire pressure warning light on your Honda Civic’s dashboard? It’s more than just a signal—it’s a nudge to keep you safe "
+title: 'How to Reset Low Tire Pressure on Honda Civic: Quick & Easy Steps'
+description: 'Have you ever noticed that annoying low tire pressure warning light
+  on your Honda Civic’s dashboard? It’s more than just a signal—it’s a nudge to keep
+  you safe '
 pubDate: 2026-03-13
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-low-tire-pressure-on-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Checking Tire Pressure
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-low-tire-pressure-on-honda-civic&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Have you ever noticed that annoying low tire pressure warning light on your Honda Civic’s dashboard? It’s more than just a signal—it’s a nudge to keep you safe and your car running smoothly.**

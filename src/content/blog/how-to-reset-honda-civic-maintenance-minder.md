@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Honda Civic Maintenance Minder: Quick & Easy Guide"
-description: "If you own a Honda Civic, you’ve probably seen the Maintenance Minder light pop up on your dashboard. It’s there to remind you when your car needs a service. Bu"
+title: 'How to Reset Honda Civic Maintenance Minder: Quick & Easy Guide'
+description: If you own a Honda Civic, you’ve probably seen the Maintenance Minder
+  light pop up on your dashboard. It’s there to remind you when your car needs a service.
+  Bu
 pubDate: 2026-02-27
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-honda-civic-maintenance-minder&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jeep Grand Cherokee Resets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-honda-civic-maintenance-minder&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If you own a Honda Civic, you’ve probably seen the Maintenance Minder light pop up on your dashboard. It’s there to remind you when your car needs a service.**

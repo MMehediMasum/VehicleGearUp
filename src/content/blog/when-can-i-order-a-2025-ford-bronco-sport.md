@@ -1,10 +1,14 @@
 ---
-title: "When Can I Order a 2025 Ford Bronco Sport: Ultimate Buying Guide"
-description: "Are you eager to get your hands on the 2025 Ford Bronco Sport? You’re not alone. This rugged, stylish SUV has everyone talking, and the big question on your min"
+title: 'When Can I Order a 2025 Ford Bronco Sport: Ultimate Buying Guide'
+description: Are you eager to get your hands on the 2025 Ford Bronco Sport? You’re
+  not alone. This rugged, stylish SUV has everyone talking, and the big question on
+  your min
 pubDate: 2026-02-04
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=when-can-i-order-a-2025-ford-bronco-sport&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Model Availability and Value
+heroImage: https://tse1.mm.bing.net/th?q=when-can-i-order-a-2025-ford-bronco-sport&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you eager to get your hands on the 2025 Ford Bronco Sport? You’re not alone.**

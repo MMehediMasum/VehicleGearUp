@@ -1,10 +1,14 @@
 ---
-title: "How to Set Clock in Mazda Cx 5: Easy Steps for Perfect Time"
-description: "Are you struggling to set the clock in your Mazda CX-5? It might seem tricky at first, but once you know the steps, it’s quick and simple. Having the correct ti"
+title: 'How to Set Clock in Mazda Cx 5: Easy Steps for Perfect Time'
+description: Are you struggling to set the clock in your Mazda CX-5? It might seem
+  tricky at first, but once you know the steps, it’s quick and simple. Having the
+  correct ti
 pubDate: 2026-01-31
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-set-clock-in-mazda-cx-5&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Setting Stereo Clocks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-set-clock-in-mazda-cx-5&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are you struggling to set the clock in your Mazda CX-5? It might seem tricky at first, but once you know the steps, it’s quick and simple.**

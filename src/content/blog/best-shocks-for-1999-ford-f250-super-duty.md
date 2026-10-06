@@ -1,10 +1,14 @@
 ---
-title: "Best Shocks for 1999 Ford F250 Super Duty: Top Durable Picks"
-description: "Choosing the right shocks improves your 1999 Ford F250 Super Duty’s ride and handling. Quality shocks keep your truck stable on rough roads and heavy loads. Thi"
+title: 'Best Shocks for 1999 Ford F250 Super Duty: Top Durable Picks'
+description: Choosing the right shocks improves your 1999 Ford F250 Super Duty’s ride
+  and handling. Quality shocks keep your truck stable on rough roads and heavy loads.
+  Thi
 pubDate: 2026-06-04
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-shocks-for-1999-ford-f250-super-duty&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Super Duty Shocks and Leveling
+heroImage: https://tse1.mm.bing.net/th?q=best-shocks-for-1999-ford-f250-super-duty&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Choosing the right shocks improves your 1999 Ford F250 Super Duty’s ride and handling. Quality shocks keep your truck stable on rough roads and heavy loads.**

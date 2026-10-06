@@ -1,10 +1,14 @@
 ---
-title: "Do You Check Power Steering Fluid With the Car Running: Expert Tips"
-description: "Have you ever wondered whether you should check your power steering fluid while your car is running? It’s a simple question, but the answer can save you from co"
+title: 'Do You Check Power Steering Fluid With the Car Running: Expert Tips'
+description: Have you ever wondered whether you should check your power steering fluid
+  while your car is running? It’s a simple question, but the answer can save you from
+  co
 pubDate: 2026-05-12
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-you-check-power-steering-fluid-with-the-car-running&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Power Steering Fluid and Additives
+heroImage: https://tse1.mm.bing.net/th?q=do-you-check-power-steering-fluid-with-the-car-running&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever wondered whether you should check your power steering fluid while your car is running? It’s a simple question, but the answer can save you from costly repairs and keep your steering smooth and safe.**

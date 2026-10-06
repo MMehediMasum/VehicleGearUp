@@ -1,10 +1,13 @@
 ---
-title: "How to Reset 2004 Honda Accord Maintenance Light: Quick & Easy Guide"
-description: "Your 2004 Honda Accord’s maintenance light just came on, and you’re wondering what to do next. You want to keep your car running smoothly without spending extra"
+title: 'How to Reset 2004 Honda Accord Maintenance Light: Quick & Easy Guide'
+description: Your 2004 Honda Accord’s maintenance light just came on, and you’re wondering
+  what to do next. You want to keep your car running smoothly without spending extra
 pubDate: 2025-10-16
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-2004-honda-accord-maintenance-light&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Maintenance Light Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-2004-honda-accord-maintenance-light&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Your 2004 Honda Accord’s maintenance light just came on, and you’re wondering what to do next. You want to keep your car running smoothly without spending extra time or money at the shop.**

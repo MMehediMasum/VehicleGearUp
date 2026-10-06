@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Why is Doechii Song Called Nissan Altima: Unveiling the Mystery"
 description: "Have you ever wondered why Doechii’s song is called \"Nissan Altima\"? It’s a question that might have popped into your mind while listening to the track or scrol"
 pubDate: 2025-12-12

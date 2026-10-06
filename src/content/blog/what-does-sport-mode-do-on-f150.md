@@ -1,10 +1,14 @@
 ---
-title: "What Does Sport Mode Do on F150: Boost Performance Instantly"
-description: "Have you ever noticed a button labeled \"Sport Mode\" in your Ford F-150 and wondered what it really does? If you’re curious about how this feature can change you"
+title: 'What Does Sport Mode Do on F150: Boost Performance Instantly'
+description: Have you ever noticed a button labeled "Sport Mode" in your Ford F-150
+  and wondered what it really does? If you’re curious about how this feature can change
+  you
 pubDate: 2026-03-11
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-does-sport-mode-do-on-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Drive Modes and Buttons
+heroImage: https://tse1.mm.bing.net/th?q=what-does-sport-mode-do-on-f150&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Have you ever noticed a button labeled "Sport Mode" in your Ford F-150 and wondered what it really does? If you’re curious about how this feature can change your driving experience, you’re in the right place.**

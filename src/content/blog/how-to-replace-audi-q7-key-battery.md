@@ -1,10 +1,14 @@
 ---
-title: "How to Replace Audi Q7 Key Battery: Easy Step-by-Step Guide"
-description: "Is your Audi Q7 key starting to act up or not working from a distance? It might be time to replace your key battery. You don’t need to rush to a dealership or p"
+title: 'How to Replace Audi Q7 Key Battery: Easy Step-by-Step Guide'
+description: Is your Audi Q7 key starting to act up or not working from a distance?
+  It might be time to replace your key battery. You don’t need to rush to a dealership
+  or p
 pubDate: 2026-04-26
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-replace-audi-q7-key-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Key Batteries
+heroImage: https://tse1.mm.bing.net/th?q=how-to-replace-audi-q7-key-battery&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **Is your Audi Q7 key starting to act up or not working from a distance? It might be time to replace your key battery.**

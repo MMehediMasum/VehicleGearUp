@@ -1,10 +1,14 @@
 ---
-title: "Best Natural Air Freshener for Car: Long-Lasting Scents You’ll Love"
-description: "A fresh-smelling car makes every drive more pleasant. Natural air fresheners keep your car smelling clean without harsh chemicals. Choosing the best natural air"
+title: 'Best Natural Air Freshener for Car: Long-Lasting Scents You’ll Love'
+description: A fresh-smelling car makes every drive more pleasant. Natural air fresheners
+  keep your car smelling clean without harsh chemicals. Choosing the best natural
+  air
 pubDate: 2026-06-24
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-natural-air-freshener-for-car&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Air Fresheners and Odors
+heroImage: https://tse1.mm.bing.net/th?q=best-natural-air-freshener-for-car&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **A fresh-smelling car makes every drive more pleasant. Natural air fresheners keep your car smelling clean without harsh chemicals.**

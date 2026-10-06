@@ -1,10 +1,14 @@
 ---
-title: "Best Roof Rack for Mazda CX 5: Top Durable Cross Bars Reviewed"
-description: "Finding the best roof rack for your Mazda CX-5 can improve your vehicle’s storage and travel options. This guide highlights top roof racks designed for Mazda CX"
+title: 'Best Roof Rack for Mazda CX 5: Top Durable Cross Bars Reviewed'
+description: Finding the best roof rack for your Mazda CX-5 can improve your vehicle’s
+  storage and travel options. This guide highlights top roof racks designed for Mazda
+  CX
 pubDate: 2026-06-21
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-roof-rack-for-mazda-cx-5&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Roof Racks and Tents
+heroImage: https://tse1.mm.bing.net/th?q=best-roof-rack-for-mazda-cx-5&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Finding the best roof rack for your Mazda CX-5 can improve your vehicle’s storage and travel options. This guide highlights top roof racks designed for Mazda CX-5 models from 2017 to 2025.**

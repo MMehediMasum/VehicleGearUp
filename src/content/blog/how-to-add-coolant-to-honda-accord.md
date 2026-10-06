@@ -1,10 +1,14 @@
 ---
-title: "How to Add Coolant to Honda Accord: Easy Steps for Engine Care"
-description: "If you want to keep your Honda Accord running smoothly, knowing how to add coolant is essential. Coolant protects your engine from overheating and prevents cost"
+title: 'How to Add Coolant to Honda Accord: Easy Steps for Engine Care'
+description: If you want to keep your Honda Accord running smoothly, knowing how to
+  add coolant is essential. Coolant protects your engine from overheating and prevents
+  cost
 pubDate: 2025-09-10
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-add-coolant-to-honda-accord&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Coolant and AC Recharge
+heroImage: https://tse1.mm.bing.net/th?q=how-to-add-coolant-to-honda-accord&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you want to keep your Honda Accord running smoothly, knowing how to add coolant is essential. Coolant protects your engine from overheating and prevents costly damage.**

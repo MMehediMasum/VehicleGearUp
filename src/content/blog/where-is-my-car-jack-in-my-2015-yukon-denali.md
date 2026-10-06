@@ -1,10 +1,14 @@
 ---
-title: "Where is My Car Jack in My 2015 Yukon Denali: Easy Location Guide"
-description: "Have you ever needed to change a tire or check under your 2015 Yukon Denali, only to realize you can’t find the car jack? It’s frustrating when you’re ready to "
+title: 'Where is My Car Jack in My 2015 Yukon Denali: Easy Location Guide'
+description: 'Have you ever needed to change a tire or check under your 2015 Yukon
+  Denali, only to realize you can’t find the car jack? It’s frustrating when you’re
+  ready to '
 pubDate: 2026-01-19
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-is-my-car-jack-in-my-2015-yukon-denali&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Jacks and Jack Stands
+heroImage: https://tse1.mm.bing.net/th?q=where-is-my-car-jack-in-my-2015-yukon-denali&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Have you ever needed to change a tire or check under your 2015 Yukon Denali, only to realize you can’t find the car jack? It’s frustrating when you’re ready to fix a problem, but the essential tool is nowhere in sight.**

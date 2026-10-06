@@ -1,10 +1,14 @@
 ---
-title: "Where to Buy Tesla Model 3 12V Battery: Top Reliable Sources"
-description: "Are you looking for the best place to buy a Tesla Model 3 12V battery? Finding the right battery can be tricky, but it’s crucial for keeping your car running sm"
+title: 'Where to Buy Tesla Model 3 12V Battery: Top Reliable Sources'
+description: Are you looking for the best place to buy a Tesla Model 3 12V battery?
+  Finding the right battery can be tricky, but it’s crucial for keeping your car running
+  sm
 pubDate: 2025-10-19
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-buy-tesla-model-3-12v-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Model Y Features
+heroImage: https://tse1.mm.bing.net/th?q=where-to-buy-tesla-model-3-12v-battery&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you looking for the best place to buy a Tesla Model 3 12V battery? Finding the right battery can be tricky, but it’s crucial for keeping your car running smoothly.**

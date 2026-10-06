@@ -1,10 +1,14 @@
 ---
-title: "Best Cleaner for Tinted Car Windows: Top Picks for Streak-Free Shine"
-description: "Keeping tinted car windows clean requires the right products to avoid damage. Choosing a cleaner that is safe and effective protects your tint and improves visi"
+title: 'Best Cleaner for Tinted Car Windows: Top Picks for Streak-Free Shine'
+description: Keeping tinted car windows clean requires the right products to avoid
+  damage. Choosing a cleaner that is safe and effective protects your tint and improves
+  visi
 pubDate: 2026-07-02
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cleaner-for-tinted-car-windows&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Interior and Glass Cleaners
+heroImage: https://tse1.mm.bing.net/th?q=best-cleaner-for-tinted-car-windows&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Keeping tinted car windows clean requires the right products to avoid damage. Choosing a cleaner that is safe and effective protects your tint and improves visibility.**

@@ -1,10 +1,14 @@
 ---
-title: "Will Bad Spark Plugs Cause Car to Die? Shocking Truth Revealed"
-description: "Have you ever felt your car suddenly lose power or stall without warning? One common culprit might be bad spark plugs. These small parts play a huge role in kee"
+title: Will Bad Spark Plugs Cause Car to Die? Shocking Truth Revealed
+description: Have you ever felt your car suddenly lose power or stall without warning?
+  One common culprit might be bad spark plugs. These small parts play a huge role
+  in kee
 pubDate: 2026-02-14
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=will-bad-spark-plugs-cause-car-to-die&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Spark Plug Misfire Symptoms
+heroImage: https://tse1.mm.bing.net/th?q=will-bad-spark-plugs-cause-car-to-die&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you ever felt your car suddenly lose power or stall without warning? One common culprit might be bad spark plugs.**

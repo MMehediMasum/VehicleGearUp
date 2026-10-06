@@ -1,10 +1,14 @@
 ---
-title: "Best Portable Air Compressor for Truck: Top Heavy-Duty Tire Inflators"
-description: "Finding the best portable air compressor for your truck saves time and keeps you safe on the road. A reliable compressor inflates tires quickly and fits easily "
+title: 'Best Portable Air Compressor for Truck: Top Heavy-Duty Tire Inflators'
+description: 'Finding the best portable air compressor for your truck saves time and
+  keeps you safe on the road. A reliable compressor inflates tires quickly and fits
+  easily '
 pubDate: 2026-06-18
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-portable-air-compressor-for-truck&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tire Inflators and Compressors
+heroImage: https://tse1.mm.bing.net/th?q=best-portable-air-compressor-for-truck&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Finding the best portable air compressor for your truck saves time and keeps you safe on the road. A reliable compressor inflates tires quickly and fits easily in your vehicle.**

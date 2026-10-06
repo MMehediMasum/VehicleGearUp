@@ -1,10 +1,14 @@
 ---
-title: "Best Mid Range Speakers for Car: Top Quality Sound and Power Picks"
-description: "Finding the best mid-range speakers for your car can greatly improve your driving experience. These speakers deliver clear, balanced sound that fits well betwee"
+title: 'Best Mid Range Speakers for Car: Top Quality Sound and Power Picks'
+description: Finding the best mid-range speakers for your car can greatly improve
+  your driving experience. These speakers deliver clear, balanced sound that fits
+  well betwee
 pubDate: 2026-07-24
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-mid-range-speakers-for-car&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Speakers and Amplifiers
+heroImage: https://tse1.mm.bing.net/th?q=best-mid-range-speakers-for-car&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Finding the best mid-range speakers for your car can greatly improve your driving experience. These speakers deliver clear, balanced sound that fits well between bass and treble.**

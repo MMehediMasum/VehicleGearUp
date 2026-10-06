@@ -1,10 +1,13 @@
 ---
-title: "How to Replace Honda Odyssey Headlight Bulb: Quick & Easy Guide"
-description: "Is one of your Honda Odyssey’s headlights flickering or completely out? Driving with a broken headlight can be dangerous and even illegal. But don’t worry—repla"
+title: 'How to Replace Honda Odyssey Headlight Bulb: Quick & Easy Guide'
+description: Is one of your Honda Odyssey’s headlights flickering or completely out?
+  Driving with a broken headlight can be dangerous and even illegal. But don’t worry—repla
 pubDate: 2026-04-27
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-replace-honda-odyssey-headlight-bulb&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Headlight Bulbs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-replace-honda-odyssey-headlight-bulb&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is one of your Honda Odyssey’s headlights flickering or completely out? Driving with a broken headlight can be dangerous and even illegal.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Motorcycle Lift for the Money: Top Durable Lifts for Every Rider"
-description: "Finding the best motorcycle lift for the money helps keep your bike safe and stable during repairs. Choosing the right lift saves time and effort while fitting "
+title: 'Best Motorcycle Lift for the Money: Top Durable Lifts for Every Rider'
+description: 'Finding the best motorcycle lift for the money helps keep your bike
+  safe and stable during repairs. Choosing the right lift saves time and effort while
+  fitting '
 pubDate: 2026-01-15
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-motorcycle-lift-for-the-money&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Motorcycle Helmets and Boots
+heroImage: https://tse1.mm.bing.net/th?q=best-motorcycle-lift-for-the-money&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Finding the best motorcycle lift for the money helps keep your bike safe and stable during repairs. Choosing the right lift saves time and effort while fitting your budget.**

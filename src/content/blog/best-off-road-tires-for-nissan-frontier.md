@@ -1,10 +1,14 @@
 ---
-title: "Best Off Road Tires for Nissan Frontier: Top Durable Picks for Tough Terrain"
-description: "Choosing the best off-road tires for your Nissan Frontier boosts traction and safety on rough terrain. Quality tires improve handling, durability, and overall o"
+title: 'Best Off Road Tires for Nissan Frontier: Top Durable Picks for Tough Terrain'
+description: Choosing the best off-road tires for your Nissan Frontier boosts traction
+  and safety on rough terrain. Quality tires improve handling, durability, and overall
+  o
 pubDate: 2026-01-07
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-off-road-tires-for-nissan-frontier&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jeep Off Road Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-off-road-tires-for-nissan-frontier&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best off-road tires for your Nissan Frontier boosts traction and safety on rough terrain. Quality tires improve handling, durability, and overall off-road performance.**

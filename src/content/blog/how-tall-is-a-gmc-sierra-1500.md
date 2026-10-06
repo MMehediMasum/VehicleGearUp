@@ -1,10 +1,14 @@
 ---
-title: "How Tall is a Gmc Sierra 1500: Ultimate Size Guide 2025"
-description: "Are you curious about how tall a GMC Sierra 1500 really is? Whether you’re thinking about parking it in your garage, planning off-road adventures, or just want "
+title: 'How Tall is a Gmc Sierra 1500: Ultimate Size Guide 2025'
+description: 'Are you curious about how tall a GMC Sierra 1500 really is? Whether
+  you’re thinking about parking it in your garage, planning off-road adventures, or
+  just want '
 pubDate: 2026-02-22
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-tall-is-a-gmc-sierra-1500&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Truck Size and Weight
+heroImage: https://tse1.mm.bing.net/th?q=how-tall-is-a-gmc-sierra-1500&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you curious about how tall a GMC Sierra 1500 really is? Whether you’re thinking about parking it in your garage, planning off-road adventures, or just want to know if it fits your lifestyle, the height of your truck matters.**

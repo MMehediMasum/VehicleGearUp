@@ -1,10 +1,14 @@
 ---
-title: "Should I Disconnect Car Battery When Charging: Essential Safety Tips"
-description: "Are you about to charge your car battery and wondering if you should disconnect it first? It’s a common question that can save you time, money, and even prevent"
+title: 'Should I Disconnect Car Battery When Charging: Essential Safety Tips'
+description: Are you about to charge your car battery and wondering if you should
+  disconnect it first? It’s a common question that can save you time, money, and even
+  prevent
 pubDate: 2026-03-29
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=should-i-disconnect-car-battery-when-charging&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Terminal Care
+heroImage: https://tse1.mm.bing.net/th?q=should-i-disconnect-car-battery-when-charging&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you about to charge your car battery and wondering if you should disconnect it first? It’s a common question that can save you time, money, and even prevent damage to your vehicle.**

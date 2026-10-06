@@ -1,10 +1,14 @@
 ---
-title: "What Should My Car Tire Pressure Be: Expert Tips for Safety & Efficiency"
-description: "Have you ever wondered if your car’s tire pressure is just right? Too low or too high, and it can affect your safety, fuel efficiency, and tire life. But how do"
+title: 'What Should My Car Tire Pressure Be: Expert Tips for Safety & Efficiency'
+description: Have you ever wondered if your car’s tire pressure is just right? Too
+  low or too high, and it can affect your safety, fuel efficiency, and tire life.
+  But how do
 pubDate: 2025-09-03
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-should-my-car-tire-pressure-be&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Tire Pressure Light
+heroImage: https://tse1.mm.bing.net/th?q=what-should-my-car-tire-pressure-be&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Have you ever wondered if your car’s tire pressure is just right? Too low or too high, and it can affect your safety, fuel efficiency, and tire life.**

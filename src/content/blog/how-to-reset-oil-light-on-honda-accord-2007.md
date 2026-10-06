@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Light on Honda Accord 2007: Quick & Easy Guide"
-description: "Is your 2007 Honda Accord’s oil light on, and you’re not sure how to turn it off? You’re not alone. That little warning light can be confusing and sometimes eve"
+title: 'How to Reset Oil Light on Honda Accord 2007: Quick & Easy Guide'
+description: Is your 2007 Honda Accord’s oil light on, and you’re not sure how to
+  turn it off? You’re not alone. That little warning light can be confusing and sometimes
+  eve
 pubDate: 2025-08-29
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-light-on-honda-accord-2007&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Oil Light Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-light-on-honda-accord-2007&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your 2007 Honda Accord’s oil light on, and you’re not sure how to turn it off? You’re not alone.**

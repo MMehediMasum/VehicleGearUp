@@ -1,10 +1,14 @@
 ---
-title: "Best Aluminum Cleaner for Semi Trucks: Top Polishes and Brighteners Reviewed"
-description: "Maintaining aluminum surfaces on semi trucks keeps them looking sharp and extends their life. Choosing the best aluminum cleaner makes this job easier and more "
+title: 'Best Aluminum Cleaner for Semi Trucks: Top Polishes and Brighteners Reviewed'
+description: 'Maintaining aluminum surfaces on semi trucks keeps them looking sharp
+  and extends their life. Choosing the best aluminum cleaner makes this job easier
+  and more '
 pubDate: 2026-07-03
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-aluminum-cleaner-for-semi-trucks&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Interior and Glass Cleaners
+heroImage: https://tse1.mm.bing.net/th?q=best-aluminum-cleaner-for-semi-trucks&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Maintaining aluminum surfaces on semi trucks keeps them looking sharp and extends their life. Choosing the best aluminum cleaner makes this job easier and more effective.**

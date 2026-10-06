@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Maintenance Light on Toyota Corolla 2017: Quick Guide"
-description: "Is your Toyota Corolla 2017 showing the maintenance light, and you’re wondering how to reset it? You’re not alone. That little warning can be annoying and confu"
+title: 'How to Reset Maintenance Light on Toyota Corolla 2017: Quick Guide'
+description: Is your Toyota Corolla 2017 showing the maintenance light, and you’re
+  wondering how to reset it? You’re not alone. That little warning can be annoying
+  and confu
 pubDate: 2026-05-28
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-maintenance-light-on-toyota-corolla-2017&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Maintenance Light Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-maintenance-light-on-toyota-corolla-2017&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your Toyota Corolla 2017 showing the maintenance light, and you’re wondering how to reset it? You’re not alone.**

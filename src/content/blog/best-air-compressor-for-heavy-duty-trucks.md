@@ -1,10 +1,14 @@
 ---
-title: "Best Air Compressor for Heavy Duty Trucks: Top Portable Tire Inflators Reviewed"
-description: "Choosing the best air compressor for heavy duty trucks ensures reliable tire inflation and quick repairs. These compressors handle high pressure and tough condi"
+title: 'Best Air Compressor for Heavy Duty Trucks: Top Portable Tire Inflators Reviewed'
+description: Choosing the best air compressor for heavy duty trucks ensures reliable
+  tire inflation and quick repairs. These compressors handle high pressure and tough
+  condi
 pubDate: 2025-10-22
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-air-compressor-for-heavy-duty-trucks&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tire Inflators and Compressors
+heroImage: https://tse1.mm.bing.net/th?q=best-air-compressor-for-heavy-duty-trucks&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best air compressor for heavy duty trucks ensures reliable tire inflation and quick repairs. These compressors handle high pressure and tough conditions with ease.**

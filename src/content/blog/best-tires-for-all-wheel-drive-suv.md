@@ -1,10 +1,13 @@
 ---
-title: "Best Tires for All Wheel Drive SUV: Top Picks for Performance & Durability"
-description: "Choosing the best tires for your all wheel drive (AWD) SUV ensures safety and performance on all roads. The right tires improve grip, handling, and ride comfort"
+title: 'Best Tires for All Wheel Drive SUV: Top Picks for Performance & Durability'
+description: Choosing the best tires for your all wheel drive (AWD) SUV ensures safety
+  and performance on all roads. The right tires improve grip, handling, and ride comfort
 pubDate: 2026-01-05
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-all-wheel-drive-suv&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Subaru and Mazda Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-all-wheel-drive-suv&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your all wheel drive (AWD) SUV ensures safety and performance on all roads. The right tires improve grip, handling, and ride comfort in any season.**

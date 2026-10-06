@@ -1,10 +1,14 @@
 ---
-title: "Are All Honda Civics Front Wheel Drive: Truth Revealed!"
-description: "Are you curious about whether all Honda Civics are front-wheel drive? If you’re thinking about buying one or just want to understand how this popular car works,"
+title: 'Are All Honda Civics Front Wheel Drive: Truth Revealed!'
+description: Are you curious about whether all Honda Civics are front-wheel drive?
+  If you’re thinking about buying one or just want to understand how this popular
+  car works,
 pubDate: 2025-11-08
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-all-honda-civics-front-wheel-drive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota 4WD Questions
+heroImage: https://tse1.mm.bing.net/th?q=are-all-honda-civics-front-wheel-drive&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you curious about whether all Honda Civics are front-wheel drive? If you’re thinking about buying one or just want to understand how this popular car works, knowing the drive type is important.**

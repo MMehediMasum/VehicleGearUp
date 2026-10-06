@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Check Engine Light Toyota Camry: Easy DIY Guide"
-description: "Is your Toyota Camry’s check engine light flashing or staying on? It can be confusing and even a little worrying. But don’t panic—resetting the check engine lig"
+title: 'How to Reset Check Engine Light Toyota Camry: Easy DIY Guide'
+description: Is your Toyota Camry’s check engine light flashing or staying on? It
+  can be confusing and even a little worrying. But don’t panic—resetting the check
+  engine lig
 pubDate: 2026-05-13
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-check-engine-light-toyota-camry&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Resetting Check Engine Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-check-engine-light-toyota-camry&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Is your Toyota Camry’s check engine light flashing or staying on? It can be confusing and even a little worrying.**

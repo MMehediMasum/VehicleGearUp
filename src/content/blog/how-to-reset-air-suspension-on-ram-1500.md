@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Air Suspension on Ram 1500: Easy Step-by-Step Guide"
-description: "If you own a Ram 1500 with air suspension, you know how important it is for a smooth, comfortable ride. But what happens when your air suspension acts up or doe"
+title: 'How to Reset Air Suspension on Ram 1500: Easy Step-by-Step Guide'
+description: If you own a Ram 1500 with air suspension, you know how important it
+  is for a smooth, comfortable ride. But what happens when your air suspension acts
+  up or doe
 pubDate: 2026-02-15
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-air-suspension-on-ram-1500&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Truck Suspension Upgrades
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-air-suspension-on-ram-1500&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a Ram 1500 with air suspension, you know how important it is for a smooth, comfortable ride. But what happens when your air suspension acts up or doesn’t level properly?**

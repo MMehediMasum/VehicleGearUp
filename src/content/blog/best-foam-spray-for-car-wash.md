@@ -1,10 +1,14 @@
 ---
-title: "Best Foam Spray for Car Wash: Top Picks for a Sparkling Clean Ride"
-description: "Choosing the best foam spray for car wash helps clean your vehicle quickly and safely. Foam sprays lift dirt and grime without scratching your car’s paint. Car "
+title: 'Best Foam Spray for Car Wash: Top Picks for a Sparkling Clean Ride'
+description: 'Choosing the best foam spray for car wash helps clean your vehicle quickly
+  and safely. Foam sprays lift dirt and grime without scratching your car’s paint.
+  Car '
 pubDate: 2026-07-04
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-foam-spray-for-car-wash&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wash Costs and Etiquette
+heroImage: https://tse1.mm.bing.net/th?q=best-foam-spray-for-car-wash&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best foam spray for car wash helps clean your vehicle quickly and safely. Foam sprays lift dirt and grime without scratching your car’s paint.**

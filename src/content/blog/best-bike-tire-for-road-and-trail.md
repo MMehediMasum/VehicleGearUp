@@ -1,10 +1,14 @@
 ---
-title: "Best Bike Tire for Road And Trail: Top Durable Tires for Versatile Riding"
-description: "Finding the best bike tire for both road and trail rides can improve your cycling experience. Choosing the right tire boosts comfort, control, and safety on dif"
+title: 'Best Bike Tire for Road And Trail: Top Durable Tires for Versatile Riding'
+description: Finding the best bike tire for both road and trail rides can improve
+  your cycling experience. Choosing the right tire boosts comfort, control, and safety
+  on dif
 pubDate: 2026-01-07
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-bike-tire-for-road-and-trail&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Bike Tires and Pumps
+heroImage: https://tse1.mm.bing.net/th?q=best-bike-tire-for-road-and-trail&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Finding the best bike tire for both road and trail rides can improve your cycling experience. Choosing the right tire boosts comfort, control, and safety on different surfaces.**

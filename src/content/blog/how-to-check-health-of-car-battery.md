@@ -1,10 +1,14 @@
 ---
-title: "How to Check Health of Car Battery: Easy Tips for Reliable Power"
-description: "Your car battery is the heart of your vehicle’s electrical system. Without it, your car won’t start, leaving you stranded at the worst possible moment. But how "
+title: 'How to Check Health of Car Battery: Easy Tips for Reliable Power'
+description: 'Your car battery is the heart of your vehicle’s electrical system. Without
+  it, your car won’t start, leaving you stranded at the worst possible moment. But
+  how '
 pubDate: 2026-04-17
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-check-health-of-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Warranty and Storage
+heroImage: https://tse1.mm.bing.net/th?q=how-to-check-health-of-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Your car battery is the heart of your vehicle’s electrical system. Without it, your car won’t start, leaving you stranded at the worst possible moment.**

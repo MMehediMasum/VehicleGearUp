@@ -1,10 +1,14 @@
 ---
-title: "Best Aluminum Radiator for Classic Cars: Top Durable Cooling Solutions"
-description: "Choosing the best aluminum radiator boosts cooling for classic cars and protects their engines. Quality radiators keep your vintage vehicle running cooler and l"
+title: 'Best Aluminum Radiator for Classic Cars: Top Durable Cooling Solutions'
+description: Choosing the best aluminum radiator boosts cooling for classic cars and
+  protects their engines. Quality radiators keep your vintage vehicle running cooler
+  and l
 pubDate: 2026-06-11
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-aluminum-radiator-for-classic-cars&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Carburetor and Fuel Injection Kits
+heroImage: https://tse1.mm.bing.net/th?q=best-aluminum-radiator-for-classic-cars&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best aluminum radiator boosts cooling for classic cars and protects their engines. Quality radiators keep your vintage vehicle running cooler and longer.**

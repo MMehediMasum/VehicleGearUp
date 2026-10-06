@@ -1,10 +1,14 @@
 ---
-title: "Are Drive Through Car Washes Bad for Paint? Shocking Truth Revealed"
-description: "Have you ever wondered if using a drive-through car wash could actually harm your car’s paint? You want your vehicle to look great, but the idea of damaging tha"
+title: Are Drive Through Car Washes Bad for Paint? Shocking Truth Revealed
+description: Have you ever wondered if using a drive-through car wash could actually
+  harm your car’s paint? You want your vehicle to look great, but the idea of damaging
+  tha
 pubDate: 2025-11-08
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-drive-through-car-washes-bad-for-paint&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Do Car Washes Damage Paint
+heroImage: https://tse1.mm.bing.net/th?q=are-drive-through-car-washes-bad-for-paint&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever wondered if using a drive-through car wash could actually harm your car’s paint? You want your vehicle to look great, but the idea of damaging that shiny finish can be worrying.**

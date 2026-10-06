@@ -1,10 +1,14 @@
 ---
-title: "Best Waterless Car Wash for Ceramic Coating: Top Protective Sprays Reviewed"
-description: "Protecting your ceramic coating requires a gentle yet effective cleaning method. Waterless car wash products offer a safe way to keep your vehicle spotless with"
+title: 'Best Waterless Car Wash for Ceramic Coating: Top Protective Sprays Reviewed'
+description: Protecting your ceramic coating requires a gentle yet effective cleaning
+  method. Waterless car wash products offer a safe way to keep your vehicle spotless
+  with
 pubDate: 2026-07-05
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-waterless-car-wash-for-ceramic-coating&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Washing Ceramic Coated Cars
+heroImage: https://tse1.mm.bing.net/th?q=best-waterless-car-wash-for-ceramic-coating&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Protecting your ceramic coating requires a gentle yet effective cleaning method. Waterless car wash products offer a safe way to keep your vehicle spotless without water.**

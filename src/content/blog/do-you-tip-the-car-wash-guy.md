@@ -1,10 +1,14 @@
 ---
-title: "Do You Tip the Car Wash Guy? Essential Etiquette Tips Revealed"
-description: "You’ve just pulled into the car wash, and your car is about to get that fresh, clean shine. But then a question pops into your mind: Do you tip the car wash guy"
+title: Do You Tip the Car Wash Guy? Essential Etiquette Tips Revealed
+description: 'You’ve just pulled into the car wash, and your car is about to get that
+  fresh, clean shine. But then a question pops into your mind: Do you tip the car
+  wash guy'
 pubDate: 2026-03-22
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-you-tip-the-car-wash-guy&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wash Costs and Etiquette
+heroImage: https://tse1.mm.bing.net/th?q=do-you-tip-the-car-wash-guy&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **You’ve just pulled into the car wash, and your car is about to get that fresh, clean shine. But then a question pops into your mind: Do you tip the car wash guy?**

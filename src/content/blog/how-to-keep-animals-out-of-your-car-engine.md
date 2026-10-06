@@ -1,10 +1,14 @@
 ---
-title: "How to Keep Animals Out of Your Car Engine: Easy Protective Tips"
-description: "Have you ever found small paws or tiny nests inside your car engine? Animals like mice, squirrels, or birds can cause serious damage by chewing wires or buildin"
+title: 'How to Keep Animals Out of Your Car Engine: Easy Protective Tips'
+description: Have you ever found small paws or tiny nests inside your car engine?
+  Animals like mice, squirrels, or birds can cause serious damage by chewing wires
+  or buildin
 pubDate: 2026-04-22
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-keep-animals-out-of-your-car-engine&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Keeping Pests Out of Engines
+heroImage: https://tse1.mm.bing.net/th?q=how-to-keep-animals-out-of-your-car-engine&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever found small paws or tiny nests inside your car engine? Animals like mice, squirrels, or birds can cause serious damage by chewing wires or building nests under your hood.**

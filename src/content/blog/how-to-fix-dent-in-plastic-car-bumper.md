@@ -1,10 +1,14 @@
 ---
-title: "How to Fix Dent in Plastic Car Bumper: Easy DIY Repair Tips"
-description: "Have you noticed a dent in your plastic car bumper and wondered how to fix it without spending a fortune? Dents can make your car look older and less cared for,"
+title: 'How to Fix Dent in Plastic Car Bumper: Easy DIY Repair Tips'
+description: Have you noticed a dent in your plastic car bumper and wondered how to
+  fix it without spending a fortune? Dents can make your car look older and less cared
+  for,
 pubDate: 2026-05-16
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-dent-in-plastic-car-bumper&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Bumper Dent and Scratch Repair
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-dent-in-plastic-car-bumper&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you noticed a dent in your plastic car bumper and wondered how to fix it without spending a fortune? Dents can make your car look older and less cared for, but the good news is you don’t always need a professional to repair them.**

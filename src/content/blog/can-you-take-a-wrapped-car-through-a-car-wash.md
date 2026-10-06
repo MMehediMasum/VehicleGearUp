@@ -1,10 +1,14 @@
 ---
-title: "Can You Take a Wrapped Car Through a Car Wash? Essential Tips!"
-description: "Have you ever wondered if your wrapped car can safely go through a car wash? You want to keep your vehicle clean, but you’re also worried about damaging that fr"
+title: Can You Take a Wrapped Car Through a Car Wash? Essential Tips!
+description: Have you ever wondered if your wrapped car can safely go through a car
+  wash? You want to keep your vehicle clean, but you’re also worried about damaging
+  that fr
 pubDate: 2025-08-31
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-take-a-wrapped-car-through-a-car-wash&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Going Through Car Washes
+heroImage: https://tse1.mm.bing.net/th?q=can-you-take-a-wrapped-car-through-a-car-wash&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever wondered if your wrapped car can safely go through a car wash? You want to keep your vehicle clean, but you’re also worried about damaging that fresh wrap you just invested in.**

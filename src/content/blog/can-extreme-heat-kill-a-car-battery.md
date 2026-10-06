@@ -1,10 +1,14 @@
 ---
-title: "Can Extreme Heat Kill a Car Battery? Shocking Truth Revealed"
-description: "Have you ever wondered if the scorching heat outside could be harming your car battery? You rely on your battery every day to start your engine and power your c"
+title: Can Extreme Heat Kill a Car Battery? Shocking Truth Revealed
+description: Have you ever wondered if the scorching heat outside could be harming
+  your car battery? You rely on your battery every day to start your engine and power
+  your c
 pubDate: 2026-03-27
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-extreme-heat-kill-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Cold Weather Battery Drain
+heroImage: https://tse1.mm.bing.net/th?q=can-extreme-heat-kill-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if the scorching heat outside could be harming your car battery? You rely on your battery every day to start your engine and power your car’s electronics.**

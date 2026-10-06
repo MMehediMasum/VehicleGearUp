@@ -1,10 +1,14 @@
 ---
-title: "What is Draining My Car Battery When It'S off: Top Causes Revealed"
-description: "Have you ever turned off your car, only to find the battery dead the next time you try to start it? It’s frustrating, confusing, and can leave you stranded when"
+title: 'What is Draining My Car Battery When It''S off: Top Causes Revealed'
+description: Have you ever turned off your car, only to find the battery dead the
+  next time you try to start it? It’s frustrating, confusing, and can leave you stranded
+  when
 pubDate: 2026-03-31
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-draining-my-car-battery-when-its-off&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- When to Replace a Battery
+heroImage: https://tse1.mm.bing.net/th?q=what-is-draining-my-car-battery-when-its-off&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever turned off your car, only to find the battery dead the next time you try to start it? It’s frustrating, confusing, and can leave you stranded when you least expect it.**

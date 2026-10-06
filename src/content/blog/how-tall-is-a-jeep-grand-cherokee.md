@@ -1,10 +1,14 @@
 ---
-title: "How Tall is a Jeep Grand Cherokee: Ultimate Height Guide 2025"
-description: "Are you curious about how tall a Jeep Grand Cherokee really is? Whether you're thinking about parking in your garage or planning an off-road adventure, knowing "
+title: 'How Tall is a Jeep Grand Cherokee: Ultimate Height Guide 2025'
+description: 'Are you curious about how tall a Jeep Grand Cherokee really is? Whether
+  you''re thinking about parking in your garage or planning an off-road adventure,
+  knowing '
 pubDate: 2026-01-17
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-tall-is-a-jeep-grand-cherokee&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Turning On 4WD
+heroImage: https://tse1.mm.bing.net/th?q=how-tall-is-a-jeep-grand-cherokee&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you curious about how tall a Jeep Grand Cherokee really is? Whether you're thinking about parking in your garage or planning an off-road adventure, knowing the exact height can make all the difference.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Take Out a Car Engine: Step-by-Step Guide for Beginners"
-description: "Are you ready to take on a hands-on project that can save you money and give you a deep understanding of your car? Knowing how to take out a car engine might so"
+title: 'How to Take Out a Car Engine: Step-by-Step Guide for Beginners'
+description: Are you ready to take on a hands-on project that can save you money and
+  give you a deep understanding of your car? Knowing how to take out a car engine
+  might so
 pubDate: 2026-05-03
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-take-out-a-car-engine&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- How Car Engines Work
+heroImage: https://tse1.mm.bing.net/th?q=how-to-take-out-a-car-engine&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Are you ready to take on a hands-on project that can save you money and give you a deep understanding of your car? Knowing how to take out a car engine might sound intimidating, but with the right guidance, you can do it step-by-step.**

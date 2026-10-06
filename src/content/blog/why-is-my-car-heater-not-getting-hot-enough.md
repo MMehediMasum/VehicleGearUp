@@ -1,10 +1,14 @@
 ---
-title: "Why is My Car Heater Not Getting Hot Enough: Quick Fixes Explained"
-description: "Is your car heater blowing cold or just lukewarm air when you need warmth the most? It’s frustrating, especially on chilly mornings or during winter drives. You"
+title: 'Why is My Car Heater Not Getting Hot Enough: Quick Fixes Explained'
+description: Is your car heater blowing cold or just lukewarm air when you need warmth
+  the most? It’s frustrating, especially on chilly mornings or during winter drives.
+  You
 pubDate: 2025-12-07
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-is-my-car-heater-not-getting-hot-enough&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Heater Not Working
+heroImage: https://tse1.mm.bing.net/th?q=why-is-my-car-heater-not-getting-hot-enough&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your car heater blowing cold or just lukewarm air when you need warmth the most? It’s frustrating, especially on chilly mornings or during winter drives.**

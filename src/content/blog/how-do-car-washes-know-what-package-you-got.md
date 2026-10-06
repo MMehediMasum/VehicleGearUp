@@ -1,10 +1,14 @@
 ---
-title: "How Do Car Washes Know What Package You Got: Secrets Revealed!"
-description: "Have you ever wondered how car washes seem to know exactly which package you chose the moment your car pulls in? It feels almost like magic, right? But behind t"
+title: 'How Do Car Washes Know What Package You Got: Secrets Revealed!'
+description: Have you ever wondered how car washes seem to know exactly which package
+  you chose the moment your car pulls in? It feels almost like magic, right? But behind
+  t
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-car-washes-know-what-package-you-got&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Do Car Washes Damage Paint
+heroImage: https://tse1.mm.bing.net/th?q=how-do-car-washes-know-what-package-you-got&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever wondered how car washes seem to know exactly which package you chose the moment your car pulls in? It feels almost like magic, right?**

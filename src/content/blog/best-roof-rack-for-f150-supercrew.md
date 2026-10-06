@@ -1,10 +1,14 @@
 ---
-title: "Best Roof Rack for F150 Supercrew: Durable, Versatile, and Heavy-Duty Choices"
-description: "Finding the best roof rack for your F150 Supercrew can enhance cargo space and improve travel convenience. This guide covers top options that fit various model "
+title: 'Best Roof Rack for F150 Supercrew: Durable, Versatile, and Heavy-Duty Choices'
+description: 'Finding the best roof rack for your F150 Supercrew can enhance cargo
+  space and improve travel convenience. This guide covers top options that fit various
+  model '
 pubDate: 2026-06-05
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-roof-rack-for-f150-supercrew&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Roof Racks and Tents
+heroImage: https://tse1.mm.bing.net/th?q=best-roof-rack-for-f150-supercrew&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Finding the best roof rack for your F150 Supercrew can enhance cargo space and improve travel convenience. This guide covers top options that fit various model years and needs.**

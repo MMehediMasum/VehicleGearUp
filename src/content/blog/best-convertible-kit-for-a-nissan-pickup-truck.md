@@ -1,10 +1,14 @@
 ---
-title: "Best Convertible Kit for a Nissan Pickup Truck: Top Accessories Reviewed"
-description: "Choosing the best convertible kit for your Nissan pickup truck enhances both style and function. A quality kit offers protection, convenience, and easy installa"
+title: 'Best Convertible Kit for a Nissan Pickup Truck: Top Accessories Reviewed'
+description: Choosing the best convertible kit for your Nissan pickup truck enhances
+  both style and function. A quality kit offers protection, convenience, and easy
+  installa
 pubDate: 2026-06-09
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-convertible-kit-for-a-nissan-pickup-truck&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Pets and Babies in Cars
+heroImage: https://tse1.mm.bing.net/th?q=best-convertible-kit-for-a-nissan-pickup-truck&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best convertible kit for your Nissan pickup truck enhances both style and function. A quality kit offers protection, convenience, and easy installation.**

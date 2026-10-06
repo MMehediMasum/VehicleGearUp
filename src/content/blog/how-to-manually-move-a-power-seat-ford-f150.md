@@ -1,10 +1,13 @@
 ---
-title: "How to Manually Move a Power Seat Ford F150: Quick & Easy Guide"
-description: "If your Ford F150 power seat stops working, it can be frustrating—especially when you need to adjust your seat for comfort or safety. But don’t worry, you don’t"
+title: 'How to Manually Move a Power Seat Ford F150: Quick & Easy Guide'
+description: If your Ford F150 power seat stops working, it can be frustrating—especially
+  when you need to adjust your seat for comfort or safety. But don’t worry, you don’t
 pubDate: 2025-11-01
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-manually-move-a-power-seat-ford-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford F150 Resets and Fixes
+heroImage: https://tse1.mm.bing.net/th?q=how-to-manually-move-a-power-seat-ford-f150&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If your Ford F150 power seat stops working, it can be frustrating—especially when you need to adjust your seat for comfort or safety. But don’t worry, you don’t have to wait for a mechanic to fix it.**

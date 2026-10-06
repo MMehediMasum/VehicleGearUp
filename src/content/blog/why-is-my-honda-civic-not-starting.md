@@ -1,10 +1,14 @@
 ---
-title: "Why is My Honda Civic Not Starting: Top Causes & Quick Fixes"
-description: "Is your Honda Civic refusing to start right when you need it most? It’s frustrating, confusing, and can leave you feeling stuck. You might wonder what’s wrong u"
+title: 'Why is My Honda Civic Not Starting: Top Causes & Quick Fixes'
+description: Is your Honda Civic refusing to start right when you need it most? It’s
+  frustrating, confusing, and can leave you feeling stuck. You might wonder what’s
+  wrong u
 pubDate: 2026-03-15
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-is-my-honda-civic-not-starting&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Not Starting Causes
+heroImage: https://tse1.mm.bing.net/th?q=why-is-my-honda-civic-not-starting&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your Honda Civic refusing to start right when you need it most? It’s frustrating, confusing, and can leave you feeling stuck.**

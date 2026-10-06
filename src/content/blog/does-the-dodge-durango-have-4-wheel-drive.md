@@ -1,10 +1,14 @@
 ---
-title: "Does the Dodge Durango Have 4 Wheel Drive? Ultimate Guide"
-description: "Are you wondering if the Dodge Durango comes with 4-wheel drive? Whether you need a vehicle that can handle tough roads or give you extra control in bad weather"
+title: Does the Dodge Durango Have 4 Wheel Drive? Ultimate Guide
+description: Are you wondering if the Dodge Durango comes with 4-wheel drive? Whether
+  you need a vehicle that can handle tough roads or give you extra control in bad
+  weather
 pubDate: 2025-11-21
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-the-dodge-durango-have-4-wheel-drive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota 4WD Questions
+heroImage: https://tse1.mm.bing.net/th?q=does-the-dodge-durango-have-4-wheel-drive&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you wondering if the Dodge Durango comes with 4-wheel drive? Whether you need a vehicle that can handle tough roads or give you extra control in bad weather, knowing about the Durango’s drivetrain options is key.**

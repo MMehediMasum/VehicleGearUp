@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Life Ford F150: Quick & Easy Guide"
-description: "Keeping your Ford F150 running smoothly means paying attention to its oil life. But what happens when your oil life indicator needs a reset after an oil change?"
+title: 'How to Reset Oil Life Ford F150: Quick & Easy Guide'
+description: Keeping your Ford F150 running smoothly means paying attention to its
+  oil life. But what happens when your oil life indicator needs a reset after an oil
+  change?
 pubDate: 2026-05-01
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-life-ford-f150&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ram and Dodge Oil Life
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-life-ford-f150&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Keeping your Ford F150 running smoothly means paying attention to its oil life. But what happens when your oil life indicator needs a reset after an oil change?**

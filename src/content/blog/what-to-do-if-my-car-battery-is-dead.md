@@ -1,10 +1,14 @@
 ---
-title: "What to Do If My Car Battery is Dead: Quick Fixes & Expert Tips"
-description: "Your car won’t start, and you suspect the battery is dead. It’s frustrating and can leave you feeling stuck and helpless. But don’t worry—you’re not alone, and "
+title: 'What to Do If My Car Battery is Dead: Quick Fixes & Expert Tips'
+description: 'Your car won’t start, and you suspect the battery is dead. It’s frustrating
+  and can leave you feeling stuck and helpless. But don’t worry—you’re not alone,
+  and '
 pubDate: 2026-03-26
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-do-if-my-car-battery-is-dead&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Signs of a Failing Battery
+heroImage: https://tse1.mm.bing.net/th?q=what-to-do-if-my-car-battery-is-dead&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Your car won’t start, and you suspect the battery is dead. It’s frustrating and can leave you feeling stuck and helpless.**

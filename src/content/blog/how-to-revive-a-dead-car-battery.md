@@ -1,10 +1,14 @@
 ---
-title: "How to Revive a Dead Car Battery: Quick & Easy Fixes That Work"
-description: "Your car won’t start, and you’re stuck with a dead battery. It’s frustrating, especially when you need to be on the move. But before you call for help or rush t"
+title: 'How to Revive a Dead Car Battery: Quick & Easy Fixes That Work'
+description: Your car won’t start, and you’re stuck with a dead battery. It’s frustrating,
+  especially when you need to be on the move. But before you call for help or rush
+  t
 pubDate: 2025-09-01
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-revive-a-dead-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Reviving a Dead Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-revive-a-dead-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Your car won’t start, and you’re stuck with a dead battery. It’s frustrating, especially when you need to be on the move.**

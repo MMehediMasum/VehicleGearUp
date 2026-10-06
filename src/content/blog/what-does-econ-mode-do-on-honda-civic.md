@@ -1,10 +1,14 @@
 ---
-title: "What Does Econ Mode Do on Honda Civic: Boost Fuel Efficiency Fast"
-description: "Have you ever noticed the \"Econ\" button in your Honda Civic and wondered what it really does? You might be curious if pressing it can save you money on gas or i"
+title: 'What Does Econ Mode Do on Honda Civic: Boost Fuel Efficiency Fast'
+description: Have you ever noticed the "Econ" button in your Honda Civic and wondered
+  what it really does? You might be curious if pressing it can save you money on gas
+  or i
 pubDate: 2026-03-07
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-does-econ-mode-do-on-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Drive Modes and Buttons
+heroImage: https://tse1.mm.bing.net/th?q=what-does-econ-mode-do-on-honda-civic&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Have you ever noticed the "Econ" button in your Honda Civic and wondered what it really does? You might be curious if pressing it can save you money on gas or improve your car’s performance.**

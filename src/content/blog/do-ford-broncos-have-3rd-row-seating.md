@@ -1,10 +1,14 @@
 ---
-title: "Do Ford Broncos Have 3Rd Row Seating? Discover the Truth!"
-description: "Are you wondering if the Ford Bronco can comfortably fit your whole crew? Maybe you need extra space for family trips or carpooling friends. The big question is"
+title: Do Ford Broncos Have 3Rd Row Seating? Discover the Truth!
+description: Are you wondering if the Ford Bronco can comfortably fit your whole crew?
+  Maybe you need extra space for family trips or carpooling friends. The big question
+  is
 pubDate: 2026-05-24
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-ford-broncos-have-3rd-row-seating&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Third Row and Mileage
+heroImage: https://tse1.mm.bing.net/th?q=do-ford-broncos-have-3rd-row-seating&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you wondering if the Ford Bronco can comfortably fit your whole crew? Maybe you need extra space for family trips or carpooling friends.**

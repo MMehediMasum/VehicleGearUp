@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Warning Lights on 2018 Honda Accord: Quick & Easy Guide"
-description: "Are those warning lights on your 2018 Honda Accord making you anxious? You’re not alone. Seeing those bright symbols can be confusing and sometimes scary. But h"
+title: 'How to Reset Warning Lights on 2018 Honda Accord: Quick & Easy Guide'
+description: Are those warning lights on your 2018 Honda Accord making you anxious?
+  You’re not alone. Seeing those bright symbols can be confusing and sometimes scary.
+  But h
 pubDate: 2025-11-02
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-warning-lights-on-2018-honda-accord&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Dashboard Lights and Noises
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-warning-lights-on-2018-honda-accord&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are those warning lights on your 2018 Honda Accord making you anxious? You’re not alone.**

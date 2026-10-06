@@ -1,10 +1,14 @@
 ---
-title: "How to Keep Birds from Pooping on Your Car Mirrors: Easy Tips"
-description: "Are you tired of finding bird droppings all over your car mirrors every time you park outside? It’s frustrating, messy, and can even damage your paint if left u"
+title: 'How to Keep Birds from Pooping on Your Car Mirrors: Easy Tips'
+description: Are you tired of finding bird droppings all over your car mirrors every
+  time you park outside? It’s frustrating, messy, and can even damage your paint if
+  left u
 pubDate: 2026-02-13
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-keep-birds-from-pooping-on-your-car-mirrors&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Mirrors and Trim Adhesives
+heroImage: https://tse1.mm.bing.net/th?q=how-to-keep-birds-from-pooping-on-your-car-mirrors&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Are you tired of finding bird droppings all over your car mirrors every time you park outside? It’s frustrating, messy, and can even damage your paint if left unchecked.**

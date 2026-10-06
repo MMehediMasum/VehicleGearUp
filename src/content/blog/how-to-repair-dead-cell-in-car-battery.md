@@ -1,10 +1,14 @@
 ---
-title: "How to Repair Dead Cell in Car Battery: Easy DIY Fix Tips"
-description: "Is your car struggling to start, leaving you frustrated and stranded? A dead cell in your car battery could be the culprit, but don’t worry—you don’t always nee"
+title: 'How to Repair Dead Cell in Car Battery: Easy DIY Fix Tips'
+description: Is your car struggling to start, leaving you frustrated and stranded?
+  A dead cell in your car battery could be the culprit, but don’t worry—you don’t
+  always nee
 pubDate: 2026-05-06
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-repair-dead-cell-in-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Reviving a Dead Battery
+heroImage: https://tse1.mm.bing.net/th?q=how-to-repair-dead-cell-in-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Is your car struggling to start, leaving you frustrated and stranded? A dead cell in your car battery could be the culprit, but don’t worry—you don’t always need to replace the entire battery.**

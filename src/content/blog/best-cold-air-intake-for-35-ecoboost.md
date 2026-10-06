@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for 3.5 Ecoboost to Boost Power and Efficiency"
-description: "Finding the best cold air intake for your 3.5 Ecoboost can improve your truck’s power and efficiency. A quality intake boosts airflow, helping your engine breat"
+title: Best Cold Air Intake for 3.5 Ecoboost to Boost Power and Efficiency
+description: Finding the best cold air intake for your 3.5 Ecoboost can improve your
+  truck’s power and efficiency. A quality intake boosts airflow, helping your engine
+  breat
 pubDate: 2026-06-27
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-35-ecoboost&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-35-ecoboost&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Finding the best cold air intake for your 3.5 Ecoboost can improve your truck’s power and efficiency. A quality intake boosts airflow, helping your engine breathe better.**

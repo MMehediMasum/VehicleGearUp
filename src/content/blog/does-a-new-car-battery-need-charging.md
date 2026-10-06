@@ -1,10 +1,14 @@
 ---
-title: "Does a New Car Battery Need Charging: Essential Facts Revealed"
-description: "Have you ever wondered if your new car battery needs charging before you hit the road? It’s a question many car owners ask but don’t always get a clear answer t"
+title: 'Does a New Car Battery Need Charging: Essential Facts Revealed'
+description: Have you ever wondered if your new car battery needs charging before
+  you hit the road? It’s a question many car owners ask but don’t always get a clear
+  answer t
 pubDate: 2025-09-25
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-a-new-car-battery-need-charging&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Charging While Idling
+heroImage: https://tse1.mm.bing.net/th?q=does-a-new-car-battery-need-charging&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if your new car battery needs charging before you hit the road? It’s a question many car owners ask but don’t always get a clear answer to.**

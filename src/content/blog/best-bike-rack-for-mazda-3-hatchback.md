@@ -1,10 +1,14 @@
 ---
-title: "Best Bike Rack for Mazda 3 Hatchback: Top Durable 3-Bike Carriers Reviewed"
-description: "Finding the best bike rack for your Mazda 3 Hatchback makes carrying bikes easy and safe. The right rack fits well, holds bikes steady, and suits your car’s sty"
+title: 'Best Bike Rack for Mazda 3 Hatchback: Top Durable 3-Bike Carriers Reviewed'
+description: Finding the best bike rack for your Mazda 3 Hatchback makes carrying
+  bikes easy and safe. The right rack fits well, holds bikes steady, and suits your
+  car’s sty
 pubDate: 2025-09-13
-author: "herbertlangham"
-categories: ["Motorcycles & Other Vehicles"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-bike-rack-for-mazda-3-hatchback&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Bike Racks for Cars
+heroImage: https://tse1.mm.bing.net/th?q=best-bike-rack-for-mazda-3-hatchback&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Finding the best bike rack for your Mazda 3 Hatchback makes carrying bikes easy and safe. The right rack fits well, holds bikes steady, and suits your car’s style.**

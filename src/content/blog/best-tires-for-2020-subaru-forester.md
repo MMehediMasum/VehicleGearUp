@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for 2020 Subaru Forester: Top Picks for Ultimate Performance"
-description: "Choosing the best tires for your 2020 Subaru Forester improves safety and driving comfort. Good tires match your Forester’s design and road needs. The 2020 Suba"
+title: 'Best Tires for 2020 Subaru Forester: Top Picks for Ultimate Performance'
+description: Choosing the best tires for your 2020 Subaru Forester improves safety
+  and driving comfort. Good tires match your Forester’s design and road needs. The
+  2020 Suba
 pubDate: 2025-12-26
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-2020-subaru-forester&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Subaru and Mazda Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-2020-subaru-forester&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your 2020 Subaru Forester improves safety and driving comfort. Good tires match your Forester’s design and road needs.**

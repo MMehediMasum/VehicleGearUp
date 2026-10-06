@@ -1,10 +1,14 @@
 ---
-title: "How Do You Ruin a Car Engine: Common Mistakes to Avoid"
-description: "Have you ever wondered how a car engine can go from running smoothly to breaking down completely? What if some common habits or mistakes you're making right now"
+title: 'How Do You Ruin a Car Engine: Common Mistakes to Avoid'
+description: Have you ever wondered how a car engine can go from running smoothly
+  to breaking down completely? What if some common habits or mistakes you're making
+  right now
 pubDate: 2026-05-09
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-ruin-a-car-engine&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- How Car Engines Work
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-ruin-a-car-engine&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Have you ever wondered how a car engine can go from running smoothly to breaking down completely? What if some common habits or mistakes you're making right now are slowly ruining your engine without you even realizing it?**

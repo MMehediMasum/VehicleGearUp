@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Service Light on Honda Civic: Quick & Easy Guide"
-description: "Is your Honda Civic’s service light on, and you’re not sure how to turn it off? You’re not alone. That little warning can be frustrating, especially when you’ve"
+title: 'How to Reset Service Light on Honda Civic: Quick & Easy Guide'
+description: Is your Honda Civic’s service light on, and you’re not sure how to turn
+  it off? You’re not alone. That little warning can be frustrating, especially when
+  you’ve
 pubDate: 2026-05-20
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-service-light-on-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Maintenance Light Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-service-light-on-honda-civic&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your Honda Civic’s service light on, and you’re not sure how to turn it off? You’re not alone.**

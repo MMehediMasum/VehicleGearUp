@@ -1,10 +1,13 @@
 ---
-title: "Best All Terrain Tires for Jeep Wrangler: Top Durable Picks Reviewed"
-description: "Choosing the best all-terrain tires for your Jeep Wrangler improves both on-road comfort and off-road performance. The right tires provide traction, durability,"
+title: 'Best All Terrain Tires for Jeep Wrangler: Top Durable Picks Reviewed'
+description: Choosing the best all-terrain tires for your Jeep Wrangler improves both
+  on-road comfort and off-road performance. The right tires provide traction, durability,
 pubDate: 2026-01-13
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-all-terrain-tires-for-jeep-wrangler&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- All Terrain Truck Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-all-terrain-tires-for-jeep-wrangler&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best all-terrain tires for your Jeep Wrangler improves both on-road comfort and off-road performance. The right tires provide traction, durability, and safety across different surfaces.**

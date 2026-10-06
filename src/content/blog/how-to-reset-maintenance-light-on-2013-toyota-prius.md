@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Maintenance Light on 2013 Toyota Prius: Easy Guide"
-description: "Is your 2013 Toyota Prius showing the maintenance light, and you’re not sure how to turn it off? You’re not alone. That little warning can be confusing and even"
+title: 'How to Reset Maintenance Light on 2013 Toyota Prius: Easy Guide'
+description: Is your 2013 Toyota Prius showing the maintenance light, and you’re not
+  sure how to turn it off? You’re not alone. That little warning can be confusing
+  and even
 pubDate: 2026-05-30
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-maintenance-light-on-2013-toyota-prius&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Hybrid Tires
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-maintenance-light-on-2013-toyota-prius&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Is your 2013 Toyota Prius showing the maintenance light, and you’re not sure how to turn it off? You’re not alone.**

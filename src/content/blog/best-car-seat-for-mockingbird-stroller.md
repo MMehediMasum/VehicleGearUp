@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Car Seat for Mockingbird Stroller: Top Adapters and Travel Systems"
 description: "Finding the best car seat for your Mockingbird stroller ensures your baby rides safely and comfortably. Choosing the right adapter or travel system makes outing"
 pubDate: 2026-07-22

@@ -1,10 +1,14 @@
 ---
-title: "Can You Add Transmission Fluid While the Car is Off? Essential Tips"
-description: "Have you ever wondered if you can add transmission fluid while your car is off? It’s a common question that many drivers face, especially when dealing with low "
+title: Can You Add Transmission Fluid While the Car is Off? Essential Tips
+description: 'Have you ever wondered if you can add transmission fluid while your
+  car is off? It’s a common question that many drivers face, especially when dealing
+  with low '
 pubDate: 2026-04-28
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-add-transmission-fluid-while-the-car-is-off&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Adding Transmission Fluid
+heroImage: https://tse1.mm.bing.net/th?q=can-you-add-transmission-fluid-while-the-car-is-off&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever wondered if you can add transmission fluid while your car is off? It’s a common question that many drivers face, especially when dealing with low fluid levels or unexpected leaks.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Will My Insurance Cover Car Wash Damage? Essential Facts Revealed"
 description: "Have you ever left a car wash only to find scratches, dents, or water spots on your vehicle? It’s frustrating and makes you wonder: will your insurance cover th"
 pubDate: 2026-03-16

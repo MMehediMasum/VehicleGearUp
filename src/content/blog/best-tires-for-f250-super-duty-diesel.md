@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for F250 Super Duty Diesel: Top Durable Picks for Heavy Duty"
-description: "Choosing the best tires for your F250 Super Duty Diesel ensures safety, performance, and durability. Proper tires improve handling and support heavy loads. The "
+title: 'Best Tires for F250 Super Duty Diesel: Top Durable Picks for Heavy Duty'
+description: 'Choosing the best tires for your F250 Super Duty Diesel ensures safety,
+  performance, and durability. Proper tires improve handling and support heavy loads.
+  The '
 pubDate: 2025-10-20
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-f250-super-duty-diesel&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Car and Truck Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-f250-super-duty-diesel&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your F250 Super Duty Diesel ensures safety, performance, and durability. Proper tires improve handling and support heavy loads.**

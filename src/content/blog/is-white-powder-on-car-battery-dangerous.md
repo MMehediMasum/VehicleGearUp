@@ -1,10 +1,13 @@
 ---
-title: "Is White Powder on Car Battery Dangerous: Hidden Risks Revealed"
-description: "Have you ever noticed a white powdery substance on your car battery and wondered if it’s something to worry about? That fuzzy white coating might seem harmless,"
+title: 'Is White Powder on Car Battery Dangerous: Hidden Risks Revealed'
+description: Have you ever noticed a white powdery substance on your car battery and
+  wondered if it’s something to worry about? That fuzzy white coating might seem harmless,
 pubDate: 2026-04-10
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-white-powder-on-car-battery-dangerous&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Terminal Care
+heroImage: https://tse1.mm.bing.net/th?q=is-white-powder-on-car-battery-dangerous&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever noticed a white powdery substance on your car battery and wondered if it’s something to worry about? That fuzzy white coating might seem harmless, but ignoring it could lead to bigger problems for your vehicle.**

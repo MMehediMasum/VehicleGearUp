@@ -1,10 +1,13 @@
 ---
-title: "How to Reset Honda Accord Infotainment System: Quick & Easy Guide"
-description: "Is your Honda Accord’s infotainment system acting up? Maybe it’s freezing, lagging, or not responding the way it should. You don’t have to live with the frustra"
+title: 'How to Reset Honda Accord Infotainment System: Quick & Easy Guide'
+description: Is your Honda Accord’s infotainment system acting up? Maybe it’s freezing,
+  lagging, or not responding the way it should. You don’t have to live with the frustra
 pubDate: 2026-03-02
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-honda-accord-infotainment-system&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Radio Codes and Resets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-honda-accord-infotainment-system&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your Honda Accord’s infotainment system acting up? Maybe it’s freezing, lagging, or not responding the way it should.**

@@ -1,10 +1,14 @@
 ---
-title: "Does Charging Your Phone Drain Car Battery? Truth Revealed!"
-description: "Have you ever plugged your phone into your car’s charger and wondered, “Am I draining my car battery?” It’s a common worry, especially when your battery seems w"
+title: Does Charging Your Phone Drain Car Battery? Truth Revealed!
+description: Have you ever plugged your phone into your car’s charger and wondered,
+  “Am I draining my car battery?” It’s a common worry, especially when your battery
+  seems w
 pubDate: 2025-10-30
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-charging-your-phone-drain-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Charging While Idling
+heroImage: https://tse1.mm.bing.net/th?q=does-charging-your-phone-drain-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever plugged your phone into your car’s charger and wondered, “Am I draining my car battery?” It’s a common worry, especially when your battery seems weak or your phone needs a quick boost. You might be surprised to learn how much power your phone really uses and whether it’s enough to affect your car’s battery.**

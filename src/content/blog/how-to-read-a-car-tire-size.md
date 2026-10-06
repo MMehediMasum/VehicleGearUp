@@ -1,10 +1,14 @@
 ---
-title: "How to Read a Car Tire Size: Easy Guide for Every Driver"
-description: "Have you ever looked at your car tire and wondered what all those numbers and letters mean? Understanding your tire size is more important than you might think."
+title: 'How to Read a Car Tire Size: Easy Guide for Every Driver'
+description: Have you ever looked at your car tire and wondered what all those numbers
+  and letters mean? Understanding your tire size is more important than you might
+  think.
 pubDate: 2025-12-14
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-read-a-car-tire-size&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tire Age Pressure and Size
+heroImage: https://tse1.mm.bing.net/th?q=how-to-read-a-car-tire-size&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Have you ever looked at your car tire and wondered what all those numbers and letters mean? Understanding your tire size is more important than you might think.**

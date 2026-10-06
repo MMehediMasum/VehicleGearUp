@@ -1,10 +1,14 @@
 ---
-title: "Can You Change Gear Ratio 2019 Ram 1500: Ultimate Guide"
-description: "Are you looking to boost the performance of your 2019 Ram 1500? Changing the gear ratio could be the game-changer you need. But can you actually change the gear"
+title: 'Can You Change Gear Ratio 2019 Ram 1500: Ultimate Guide'
+description: Are you looking to boost the performance of your 2019 Ram 1500? Changing
+  the gear ratio could be the game-changer you need. But can you actually change the
+  gear
 pubDate: 2026-02-06
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-change-gear-ratio-2019-ram-1500&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Truck Size and Weight
+heroImage: https://tse1.mm.bing.net/th?q=can-you-change-gear-ratio-2019-ram-1500&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you looking to boost the performance of your 2019 Ram 1500? Changing the gear ratio could be the game-changer you need.**

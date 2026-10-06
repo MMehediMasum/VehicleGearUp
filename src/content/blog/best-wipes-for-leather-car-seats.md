@@ -1,10 +1,14 @@
 ---
-title: "Best Wipes for Leather Car Seats to Clean, Condition, and Protect"
-description: "Keeping leather car seats clean and well-maintained requires the right wipes. Using suitable wipes helps protect leather from dirt, cracks, and fading. Leather "
+title: Best Wipes for Leather Car Seats to Clean, Condition, and Protect
+description: 'Keeping leather car seats clean and well-maintained requires the right
+  wipes. Using suitable wipes helps protect leather from dirt, cracks, and fading.
+  Leather '
 pubDate: 2026-07-19
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-wipes-for-leather-car-seats&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Leather and Fabric Seat Care
+heroImage: https://tse1.mm.bing.net/th?q=best-wipes-for-leather-car-seats&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Keeping leather car seats clean and well-maintained requires the right wipes. Using suitable wipes helps protect leather from dirt, cracks, and fading.**

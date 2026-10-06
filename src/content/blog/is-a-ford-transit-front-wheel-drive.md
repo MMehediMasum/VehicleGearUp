@@ -1,10 +1,14 @@
 ---
-title: "Is a Ford Transit Front Wheel Drive: Benefits You Should Know"
-description: "Are you curious about how your Ford Transit handles the road? Understanding whether your van has front wheel drive can change the way you drive, maintain, and e"
+title: 'Is a Ford Transit Front Wheel Drive: Benefits You Should Know'
+description: Are you curious about how your Ford Transit handles the road? Understanding
+  whether your van has front wheel drive can change the way you drive, maintain, and
+  e
 pubDate: 2025-10-24
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-a-ford-transit-front-wheel-drive&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford 4WD Questions
+heroImage: https://tse1.mm.bing.net/th?q=is-a-ford-transit-front-wheel-drive&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you curious about how your Ford Transit handles the road? Understanding whether your van has front wheel drive can change the way you drive, maintain, and even park your vehicle.**

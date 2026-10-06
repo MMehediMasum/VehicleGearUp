@@ -1,10 +1,14 @@
 ---
-title: "Best Air Freshener for Car Smokers to Eliminate Smoke Odors Fast"
-description: "Finding the best air freshener for car smokers helps remove stubborn smoke odors quickly and effectively. Smoke leaves a strong smell that regular fresheners ca"
+title: Best Air Freshener for Car Smokers to Eliminate Smoke Odors Fast
+description: Finding the best air freshener for car smokers helps remove stubborn
+  smoke odors quickly and effectively. Smoke leaves a strong smell that regular fresheners
+  ca
 pubDate: 2026-06-13
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-air-freshener-for-car-smokers&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Air Fresheners and Odors
+heroImage: https://tse1.mm.bing.net/th?q=best-air-freshener-for-car-smokers&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Finding the best air freshener for car smokers helps remove stubborn smoke odors quickly and effectively. Smoke leaves a strong smell that regular fresheners can’t fully eliminate.**

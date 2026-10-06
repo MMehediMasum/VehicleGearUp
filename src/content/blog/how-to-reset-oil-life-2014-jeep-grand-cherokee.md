@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Life 2014 Jeep Grand Cherokee: Easy Step-by-Step Guide"
-description: "If you own a 2014 Jeep Grand Cherokee, keeping track of your oil life is key to protecting your engine and saving money on repairs. But what do you do when the "
+title: 'How to Reset Oil Life 2014 Jeep Grand Cherokee: Easy Step-by-Step Guide'
+description: 'If you own a 2014 Jeep Grand Cherokee, keeping track of your oil life
+  is key to protecting your engine and saving money on repairs. But what do you do
+  when the '
 pubDate: 2026-05-04
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-life-2014-jeep-grand-cherokee&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ram and Dodge Oil Life
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-life-2014-jeep-grand-cherokee&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a 2014 Jeep Grand Cherokee, keeping track of your oil life is key to protecting your engine and saving money on repairs. But what do you do when the oil life indicator needs to be reset after an oil change?**

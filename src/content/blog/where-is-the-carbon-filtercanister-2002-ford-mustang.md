@@ -1,10 +1,14 @@
 ---
-title: "Where is the Carbon Filter/Canister 2002 Ford Mustang: Quick Guide"
-description: "If you own a 2002 Ford Mustang, you might be wondering, “Where is the carbon filter or canister located?” Knowing this can save you time and money when it’s tim"
+title: 'Where is the Carbon Filter/Canister 2002 Ford Mustang: Quick Guide'
+description: If you own a 2002 Ford Mustang, you might be wondering, “Where is the
+  carbon filter or canister located?” Knowing this can save you time and money when
+  it’s tim
 pubDate: 2026-03-07
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-is-the-carbon-filtercanister-2002-ford-mustang&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford Model Questions
+heroImage: https://tse1.mm.bing.net/th?q=where-is-the-carbon-filtercanister-2002-ford-mustang&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **If you own a 2002 Ford Mustang, you might be wondering, “Where is the carbon filter or canister located?” Knowing this can save you time and money when it’s time for maintenance or repairs. Your Mustang’s carbon canister plays a key role in keeping harmful fumes from escaping into the air.**

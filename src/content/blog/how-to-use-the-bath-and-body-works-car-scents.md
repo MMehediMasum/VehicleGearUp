@@ -1,10 +1,14 @@
 ---
-title: "How to Use the Bath And Body Works Car Scents: Ultimate Fragrance Guide"
-description: "Imagine stepping into your car and instantly feeling calm, refreshed, or energized. That’s the power of the right scent, and Bath and Body Works car scents are "
+title: 'How to Use the Bath And Body Works Car Scents: Ultimate Fragrance Guide'
+description: 'Imagine stepping into your car and instantly feeling calm, refreshed,
+  or energized. That’s the power of the right scent, and Bath and Body Works car scents
+  are '
 pubDate: 2026-03-10
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-use-the-bath-and-body-works-car-scents&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jeep Grand Cherokee Resets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-use-the-bath-and-body-works-car-scents&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Imagine stepping into your car and instantly feeling calm, refreshed, or energized. That’s the power of the right scent, and Bath and Body Works car scents are designed to do just that.**

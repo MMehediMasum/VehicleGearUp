@@ -1,10 +1,13 @@
 ---
-title: "Do Car Washes Close When It Rains? Surprising Truth Revealed"
-description: "Have you ever wondered if car washes close when it rains? You might think it’s pointless to wash your car on a rainy day, but the truth isn’t so simple. Whether"
+title: Do Car Washes Close When It Rains? Surprising Truth Revealed
+description: Have you ever wondered if car washes close when it rains? You might think
+  it’s pointless to wash your car on a rainy day, but the truth isn’t so simple. Whether
 pubDate: 2026-03-19
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-car-washes-close-when-it-rains&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Do Car Washes Damage Paint
+heroImage: https://tse1.mm.bing.net/th?q=do-car-washes-close-when-it-rains&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Have you ever wondered if car washes close when it rains? You might think it’s pointless to wash your car on a rainy day, but the truth isn’t so simple.**

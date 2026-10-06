@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Life on 2020 Honda Civic: Quick & Easy Steps"
-description: "If you own a 2020 Honda Civic, you know how important it is to keep your car running smoothly. One key step is resetting the oil life indicator after an oil cha"
+title: 'How to Reset Oil Life on 2020 Honda Civic: Quick & Easy Steps'
+description: If you own a 2020 Honda Civic, you know how important it is to keep your
+  car running smoothly. One key step is resetting the oil life indicator after an
+  oil cha
 pubDate: 2026-05-17
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-life-on-2020-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Oil Life Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-life-on-2020-honda-civic&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a 2020 Honda Civic, you know how important it is to keep your car running smoothly. One key step is resetting the oil life indicator after an oil change.**

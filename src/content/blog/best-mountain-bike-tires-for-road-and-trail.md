@@ -1,10 +1,14 @@
 ---
-title: "Best Mountain Bike Tires for Road and Trail: Top Durable Picks"
-description: "Choosing the best mountain bike tires for road and trail riding boosts performance and safety. Tires must balance grip, durability, and comfort on varied surfac"
+title: 'Best Mountain Bike Tires for Road and Trail: Top Durable Picks'
+description: Choosing the best mountain bike tires for road and trail riding boosts
+  performance and safety. Tires must balance grip, durability, and comfort on varied
+  surfac
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-mountain-bike-tires-for-road-and-trail&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Bike Tires and Pumps
+heroImage: https://tse1.mm.bing.net/th?q=best-mountain-bike-tires-for-road-and-trail&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best mountain bike tires for road and trail riding boosts performance and safety. Tires must balance grip, durability, and comfort on varied surfaces.**

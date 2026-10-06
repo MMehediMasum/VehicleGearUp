@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Ram Promaster 2500: Top Durable Picks for Every Terrain"
-description: "Choosing the best tires for your Ram Promaster 2500 ensures safety and performance on every trip. Proper tires improve handling, fuel efficiency, and load capac"
+title: 'Best Tires for Ram Promaster 2500: Top Durable Picks for Every Terrain'
+description: Choosing the best tires for your Ram Promaster 2500 ensures safety and
+  performance on every trip. Proper tires improve handling, fuel efficiency, and load
+  capac
 pubDate: 2025-12-23
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-ram-promaster-2500&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ram and Dodge Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-ram-promaster-2500&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your Ram Promaster 2500 ensures safety and performance on every trip. Proper tires improve handling, fuel efficiency, and load capacity.**

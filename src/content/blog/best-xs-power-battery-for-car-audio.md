@@ -1,10 +1,14 @@
 ---
-title: "Best Xs Power Battery for Car Audio: Top Reliable AGM Powercells Reviewed"
-description: "Choosing the best XS Power battery boosts your car audio system’s power and reliability. XS Power offers a range of high-quality AGM batteries designed for deep"
+title: 'Best Xs Power Battery for Car Audio: Top Reliable AGM Powercells Reviewed'
+description: Choosing the best XS Power battery boosts your car audio system’s power
+  and reliability. XS Power offers a range of high-quality AGM batteries designed
+  for deep
 pubDate: 2026-07-09
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-xs-power-battery-for-car-audio&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Choosing the Best Battery
+heroImage: https://tse1.mm.bing.net/th?q=best-xs-power-battery-for-car-audio&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Choosing the best XS Power battery boosts your car audio system’s power and reliability. XS Power offers a range of high-quality AGM batteries designed for deep cycle use.**

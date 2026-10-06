@@ -1,10 +1,14 @@
 ---
-title: "Why Does My Parking Brake Automatically Engage Jeep Compass: Quick Fixes Explained"
-description: "Have you ever noticed your Jeep Compass’s parking brake suddenly engaging on its own? It can be confusing and even a bit alarming when your vehicle seems to tak"
+title: 'Why Does My Parking Brake Automatically Engage Jeep Compass: Quick Fixes Explained'
+description: Have you ever noticed your Jeep Compass’s parking brake suddenly engaging
+  on its own? It can be confusing and even a bit alarming when your vehicle seems
+  to tak
 pubDate: 2026-05-12
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-does-my-parking-brake-automatically-engage-jeep-compass&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Parking Brake Help
+heroImage: https://tse1.mm.bing.net/th?q=why-does-my-parking-brake-automatically-engage-jeep-compass&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Have you ever noticed your Jeep Compass’s parking brake suddenly engaging on its own? It can be confusing and even a bit alarming when your vehicle seems to take control without your input.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Turn off Accessory Mode Honda Civic: Quick & Easy Guide"
-description: "Have you ever left your Honda Civic in accessory mode and wondered how to switch it off quickly? Accessory mode lets you use your car’s radio and other features"
+title: 'How to Turn off Accessory Mode Honda Civic: Quick & Easy Guide'
+description: Have you ever left your Honda Civic in accessory mode and wondered how
+  to switch it off quickly? Accessory mode lets you use your car’s radio and other
+  features
 pubDate: 2025-09-25
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-accessory-mode-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Turning Off Safety Features
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-accessory-mode-honda-civic&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Have you ever left your Honda Civic in accessory mode and wondered how to switch it off quickly? Accessory mode lets you use your car’s radio and other features without starting the engine, but leaving it on too long can drain your battery.**

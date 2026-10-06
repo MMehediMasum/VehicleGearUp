@@ -1,10 +1,14 @@
 ---
-title: "Should I Disconnect Car Battery When Changing Fuses: Essential Safety Tips"
-description: "Are you about to change a fuse in your car and wondering if you should disconnect the battery first? It’s a simple question, but the answer can save you from un"
+title: 'Should I Disconnect Car Battery When Changing Fuses: Essential Safety Tips'
+description: Are you about to change a fuse in your car and wondering if you should
+  disconnect the battery first? It’s a simple question, but the answer can save you
+  from un
 pubDate: 2025-09-21
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=should-i-disconnect-car-battery-when-changing-fuses&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Terminal Care
+heroImage: https://tse1.mm.bing.net/th?q=should-i-disconnect-car-battery-when-changing-fuses&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you about to change a fuse in your car and wondering if you should disconnect the battery first? It’s a simple question, but the answer can save you from unexpected shocks, costly repairs, or even damaging your vehicle’s electrical system.**

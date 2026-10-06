@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Hail Proof Car Cover: Ultimate DIY Protection Guide"
-description: "You know how frustrating it is to see your car damaged after a hailstorm. Those dents and scratches can be expensive to fix and take away your car’s shine. What"
+title: 'How to Make a Hail Proof Car Cover: Ultimate DIY Protection Guide'
+description: You know how frustrating it is to see your car damaged after a hailstorm.
+  Those dents and scratches can be expensive to fix and take away your car’s shine.
+  What
 pubDate: 2026-05-30
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-hail-proof-car-cover&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Covers
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-hail-proof-car-cover&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **You know how frustrating it is to see your car damaged after a hailstorm. Those dents and scratches can be expensive to fix and take away your car’s shine.**

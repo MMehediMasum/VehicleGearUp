@@ -1,10 +1,14 @@
 ---
-title: "How to Fix Service Esc Chevy Equinox: Quick & Easy Solutions"
-description: "Is your Chevy Equinox showing the dreaded \"Service ESC\" warning? You’re not alone, and it can be frustrating when this alert pops up unexpectedly. But don’t wor"
+title: 'How to Fix Service Esc Chevy Equinox: Quick & Easy Solutions'
+description: Is your Chevy Equinox showing the dreaded "Service ESC" warning? You’re
+  not alone, and it can be frustrating when this alert pops up unexpectedly. But don’t
+  wor
 pubDate: 2025-10-20
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-service-esc-chevy-equinox&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Dashboard Lights and Noises
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-service-esc-chevy-equinox&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your Chevy Equinox showing the dreaded "Service ESC" warning? You’re not alone, and it can be frustrating when this alert pops up unexpectedly.**

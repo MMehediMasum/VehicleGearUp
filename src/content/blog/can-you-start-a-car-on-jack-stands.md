@@ -1,10 +1,14 @@
 ---
-title: "Can You Start a Car on Jack Stands: Essential Safety Tips Revealed"
-description: "Have you ever wondered if you can start your car while it’s sitting on jack stands? It’s a question that comes up often when you’re working on your vehicle at h"
+title: 'Can You Start a Car on Jack Stands: Essential Safety Tips Revealed'
+description: Have you ever wondered if you can start your car while it’s sitting on
+  jack stands? It’s a question that comes up often when you’re working on your vehicle
+  at h
 pubDate: 2026-02-17
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-start-a-car-on-jack-stands&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Jacks and Jack Stands
+heroImage: https://tse1.mm.bing.net/th?q=can-you-start-a-car-on-jack-stands&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Have you ever wondered if you can start your car while it’s sitting on jack stands? It’s a question that comes up often when you’re working on your vehicle at home.**

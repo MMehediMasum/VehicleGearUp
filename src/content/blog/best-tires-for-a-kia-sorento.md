@@ -1,10 +1,13 @@
 ---
-title: "Best Tires for a Kia Sorento: Top All-Season and Performance Picks"
-description: "Choosing the best tires for a Kia Sorento ensures safety, comfort, and better driving performance. The right tires handle different weather and road conditions "
+title: 'Best Tires for a Kia Sorento: Top All-Season and Performance Picks'
+description: 'Choosing the best tires for a Kia Sorento ensures safety, comfort, and
+  better driving performance. The right tires handle different weather and road conditions '
 pubDate: 2025-09-06
-author: "herbertlangham"
-categories: ["Car Buying & Ownership"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-a-kia-sorento&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Hyundai and Kia Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-a-kia-sorento&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for a Kia Sorento ensures safety, comfort, and better driving performance. The right tires handle different weather and road conditions well.**

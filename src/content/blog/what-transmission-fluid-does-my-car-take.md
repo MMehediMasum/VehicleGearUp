@@ -1,10 +1,14 @@
 ---
-title: "What Transmission Fluid Does My Car Take: Ultimate Guide to Choose Right"
-description: "Are you sure you’re using the right transmission fluid for your car? Choosing the correct fluid might seem simple, but using the wrong one can lead to costly re"
+title: 'What Transmission Fluid Does My Car Take: Ultimate Guide to Choose Right'
+description: Are you sure you’re using the right transmission fluid for your car?
+  Choosing the correct fluid might seem simple, but using the wrong one can lead to
+  costly re
 pubDate: 2026-04-25
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-transmission-fluid-does-my-car-take&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Adding Transmission Fluid
+heroImage: https://tse1.mm.bing.net/th?q=what-transmission-fluid-does-my-car-take&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Are you sure you’re using the right transmission fluid for your car? Choosing the correct fluid might seem simple, but using the wrong one can lead to costly repairs and poor performance.**

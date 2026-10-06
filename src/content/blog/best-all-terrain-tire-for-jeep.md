@@ -1,10 +1,13 @@
 ---
-title: "Best All Terrain Tire for Jeep: Top Durable Picks for Rugged Adventures"
-description: "Choosing the best all-terrain tire for your Jeep ensures strong performance on and off the road. The right tire improves safety, traction, and durability across"
+title: 'Best All Terrain Tire for Jeep: Top Durable Picks for Rugged Adventures'
+description: Choosing the best all-terrain tire for your Jeep ensures strong performance
+  on and off the road. The right tire improves safety, traction, and durability across
 pubDate: 2025-12-27
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-all-terrain-tire-for-jeep&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- All Terrain Truck Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-all-terrain-tire-for-jeep&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best all-terrain tire for your Jeep ensures strong performance on and off the road. The right tire improves safety, traction, and durability across many surfaces.**

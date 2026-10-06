@@ -1,10 +1,14 @@
 ---
-title: "Best Off Road Tires for Jeep Wrangler: Top Durable Picks for Adventure"
-description: "Choosing the best off-road tires for your Jeep Wrangler is essential for tough trails and rough terrain. The right tires improve grip, durability, and overall d"
+title: 'Best Off Road Tires for Jeep Wrangler: Top Durable Picks for Adventure'
+description: Choosing the best off-road tires for your Jeep Wrangler is essential
+  for tough trails and rough terrain. The right tires improve grip, durability, and
+  overall d
 pubDate: 2026-01-06
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-off-road-tires-for-jeep-wrangler&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jeep Off Road Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-off-road-tires-for-jeep-wrangler&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best off-road tires for your Jeep Wrangler is essential for tough trails and rough terrain. The right tires improve grip, durability, and overall driving experience.**

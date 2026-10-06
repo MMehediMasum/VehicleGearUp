@@ -1,10 +1,14 @@
 ---
-title: "Where to Put Stickers on Car Windshield: Best Spots Revealed"
-description: "Are you wondering where to put stickers on your car windshield without blocking your view or breaking the law? Choosing the right spot is more important than yo"
+title: 'Where to Put Stickers on Car Windshield: Best Spots Revealed'
+description: Are you wondering where to put stickers on your car windshield without
+  blocking your view or breaking the law? Choosing the right spot is more important
+  than yo
 pubDate: 2026-03-22
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-put-stickers-on-car-windshield&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Windshield and Mirror Repair
+heroImage: https://tse1.mm.bing.net/th?q=where-to-put-stickers-on-car-windshield&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Are you wondering where to put stickers on your car windshield without blocking your view or breaking the law? Choosing the right spot is more important than you might think.**

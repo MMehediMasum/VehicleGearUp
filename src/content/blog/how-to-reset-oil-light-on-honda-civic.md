@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Oil Light on Honda Civic: Quick & Easy Steps"
-description: "Is your Honda Civic’s oil light flashing on your dashboard? Ignoring it could lead to costly engine problems. But don’t worry—you can reset that oil light yours"
+title: 'How to Reset Oil Light on Honda Civic: Quick & Easy Steps'
+description: Is your Honda Civic’s oil light flashing on your dashboard? Ignoring
+  it could lead to costly engine problems. But don’t worry—you can reset that oil
+  light yours
 pubDate: 2026-05-14
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-oil-light-on-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Oil Light Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-oil-light-on-honda-civic&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your Honda Civic’s oil light flashing on your dashboard? Ignoring it could lead to costly engine problems.**

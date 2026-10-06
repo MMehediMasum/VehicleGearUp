@@ -1,10 +1,14 @@
 ---
-title: "Best Car Wash Soap for Black Cars to Achieve a Deep Glossy Finish"
-description: "Keeping a black car clean requires the right soap to protect its shine. The best car wash soaps enhance gloss and prevent swirl marks. Black paint shows dirt, s"
+title: Best Car Wash Soap for Black Cars to Achieve a Deep Glossy Finish
+description: Keeping a black car clean requires the right soap to protect its shine.
+  The best car wash soaps enhance gloss and prevent swirl marks. Black paint shows
+  dirt, s
 pubDate: 2026-07-07
-author: "herbertlangham"
-categories: ["Car Wash & Detailing"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-wash-soap-for-black-cars&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wash Soap Picks
+heroImage: https://tse1.mm.bing.net/th?q=best-car-wash-soap-for-black-cars&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Keeping a black car clean requires the right soap to protect its shine. The best car wash soaps enhance gloss and prevent swirl marks.**

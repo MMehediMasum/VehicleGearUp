@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Load Boards for Car Haulers: Top Heavy-Duty Aluminum Trailer Ramps"
 description: "Finding reliable load boards helps car haulers find loads quickly and efficiently. These platforms connect drivers with available jobs nationwide. Car haulers n"
 pubDate: 2026-06-30

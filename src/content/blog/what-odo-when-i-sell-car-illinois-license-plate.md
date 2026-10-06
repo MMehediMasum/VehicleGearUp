@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "What Odo When I Sell Car Illinois License Plate: Essential Steps"
 description: "Are you selling your car in Illinois and wondering what to do with your license plate? You’re not alone. Many people get confused about whether to keep, transfe"
 pubDate: 2025-09-14

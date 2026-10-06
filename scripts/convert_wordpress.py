@@ -26,10 +26,9 @@ def slugify(text):
     text = re.sub(r"[^a-z0-9]+", "-", text)
     return text.strip("-") or "untitled"
  
-
+ 
 def bing_query_slug(text):
     text = str(text or "").strip().lower()
-    text = re.sub(r"[^a-z0-9\s-]", "", text)  # strips %, ?, commas, periods, etc.
     text = re.sub(r"\s+", "-", text)
     return text
  

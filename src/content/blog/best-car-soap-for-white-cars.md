@@ -1,10 +1,14 @@
 ---
-title: "Best Car Soap for White Cars: Top Spot-Free Shine Solutions"
-description: "White cars need special care to stay bright and clean. Choosing the best car soap protects paint and removes dirt gently. White paint shows dirt and stains easi"
+title: 'Best Car Soap for White Cars: Top Spot-Free Shine Solutions'
+description: White cars need special care to stay bright and clean. Choosing the best
+  car soap protects paint and removes dirt gently. White paint shows dirt and stains
+  easi
 pubDate: 2026-06-15
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-soap-for-white-cars&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Wash Soap Picks
+heroImage: https://tse1.mm.bing.net/th?q=best-car-soap-for-white-cars&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **White cars need special care to stay bright and clean. Choosing the best car soap protects paint and removes dirt gently.**

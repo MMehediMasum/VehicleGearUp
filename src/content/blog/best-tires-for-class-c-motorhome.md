@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Class C Motorhome: Durable Electroglobal Robotic Car Wheels Review"
-description: "Choosing the best tires for your Class C motorhome ensures safety and smooth travel. The right tires handle weight and road conditions well. Class C motorhomes "
+title: 'Best Tires for Class C Motorhome: Durable Electroglobal Robotic Car Wheels
+  Review'
+description: 'Choosing the best tires for your Class C motorhome ensures safety and
+  smooth travel. The right tires handle weight and road conditions well. Class C motorhomes '
 pubDate: 2025-12-31
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-class-c-motorhome&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Mud Street and RV Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-class-c-motorhome&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your Class C motorhome ensures safety and smooth travel. The right tires handle weight and road conditions well.**

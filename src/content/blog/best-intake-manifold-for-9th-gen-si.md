@@ -1,10 +1,14 @@
 ---
-title: "Best Intake Manifold for 9Th Gen Si: Top Performance Picks Reviewed"
-description: "Choosing the best intake manifold for your 9th Gen Honda Civic Si boosts engine performance and efficiency. The right manifold improves airflow, increasing powe"
+title: 'Best Intake Manifold for 9Th Gen Si: Top Performance Picks Reviewed'
+description: Choosing the best intake manifold for your 9th Gen Honda Civic Si boosts
+  engine performance and efficiency. The right manifold improves airflow, increasing
+  powe
 pubDate: 2026-06-10
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-intake-manifold-for-9th-gen-si&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Intake Manifolds
+heroImage: https://tse1.mm.bing.net/th?q=best-intake-manifold-for-9th-gen-si&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best intake manifold for your 9th Gen Honda Civic Si boosts engine performance and efficiency. The right manifold improves airflow, increasing power and throttle response.**

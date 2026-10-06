@@ -1,10 +1,14 @@
 ---
-title: "How to Check Oil Percentage in Toyota Corolla: Easy Step-by-Step Guide"
-description: "Are you wondering how to check the oil percentage in your Toyota Corolla? Keeping an eye on your car’s oil level is one of the easiest and most important ways t"
+title: 'How to Check Oil Percentage in Toyota Corolla: Easy Step-by-Step Guide'
+description: Are you wondering how to check the oil percentage in your Toyota Corolla?
+  Keeping an eye on your car’s oil level is one of the easiest and most important
+  ways t
 pubDate: 2026-05-12
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-check-oil-percentage-in-toyota-corolla&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Checking Oil Levels
+heroImage: https://tse1.mm.bing.net/th?q=how-to-check-oil-percentage-in-toyota-corolla&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Are you wondering how to check the oil percentage in your Toyota Corolla? Keeping an eye on your car’s oil level is one of the easiest and most important ways to protect your engine and avoid costly repairs.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Maintenance Light on 2010 Toyota Corolla: Quick Guide"
-description: "Is your 2010 Toyota Corolla’s maintenance light on, and you’re not sure how to turn it off? That little warning can be annoying, but it’s important to reset it "
+title: 'How to Reset Maintenance Light on 2010 Toyota Corolla: Quick Guide'
+description: 'Is your 2010 Toyota Corolla’s maintenance light on, and you’re not sure
+  how to turn it off? That little warning can be annoying, but it’s important to reset
+  it '
 pubDate: 2026-05-27
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-maintenance-light-on-2010-toyota-corolla&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Maintenance Light Reset
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-maintenance-light-on-2010-toyota-corolla&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your 2010 Toyota Corolla’s maintenance light on, and you’re not sure how to turn it off? That little warning can be annoying, but it’s important to reset it correctly so your car stays in top shape.**

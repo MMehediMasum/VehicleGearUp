@@ -1,10 +1,14 @@
 ---
-title: "Does a Car Alternator Charge the Battery: Essential Facts Explained"
-description: "Have you ever wondered if your car’s alternator is really charging your battery? You rely on your vehicle every day, and knowing how the alternator works can sa"
+title: 'Does a Car Alternator Charge the Battery: Essential Facts Explained'
+description: Have you ever wondered if your car’s alternator is really charging your
+  battery? You rely on your vehicle every day, and knowing how the alternator works
+  can sa
 pubDate: 2026-03-27
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=does-a-car-alternator-charge-the-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Charging a Car Battery
+heroImage: https://tse1.mm.bing.net/th?q=does-a-car-alternator-charge-the-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever wondered if your car’s alternator is really charging your battery? You rely on your vehicle every day, and knowing how the alternator works can save you from unexpected breakdowns.**

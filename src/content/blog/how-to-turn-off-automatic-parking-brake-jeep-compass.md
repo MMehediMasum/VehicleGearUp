@@ -1,10 +1,14 @@
 ---
-title: "How to Turn off Automatic Parking Brake Jeep Compass: Easy Steps"
-description: "If you own a Jeep Compass, you might have noticed the automatic parking brake kicking in at times when you don’t want it to. It can be a bit frustrating, especi"
+title: 'How to Turn off Automatic Parking Brake Jeep Compass: Easy Steps'
+description: If you own a Jeep Compass, you might have noticed the automatic parking
+  brake kicking in at times when you don’t want it to. It can be a bit frustrating,
+  especi
 pubDate: 2026-05-13
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-automatic-parking-brake-jeep-compass&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Parking Brake Help
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-automatic-parking-brake-jeep-compass&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you own a Jeep Compass, you might have noticed the automatic parking brake kicking in at times when you don’t want it to. It can be a bit frustrating, especially if you’re not sure how to turn it off.**

@@ -1,10 +1,13 @@
 ---
-title: "What is the Best Harley Davidson Motorcycle: Top Picks for 2025"
-description: "Are you ready to find the best Harley Davidson motorcycle that fits your style and riding needs? Choosing the right bike can be exciting but also a bit overwhel"
+title: 'What is the Best Harley Davidson Motorcycle: Top Picks for 2025'
+description: Are you ready to find the best Harley Davidson motorcycle that fits your
+  style and riding needs? Choosing the right bike can be exciting but also a bit overwhel
 pubDate: 2026-01-30
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-best-harley-davidson-motorcycle&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Maintenance Basics
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-best-harley-davidson-motorcycle&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you ready to find the best Harley Davidson motorcycle that fits your style and riding needs? Choosing the right bike can be exciting but also a bit overwhelming.**

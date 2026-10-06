@@ -1,10 +1,14 @@
 ---
-title: "How to Store a Car Battery When Not in Use: Essential Tips"
-description: "Are you planning to leave your car unused for a while? Knowing how to store your car battery properly can save you from unexpected troubles later. A poorly stor"
+title: 'How to Store a Car Battery When Not in Use: Essential Tips'
+description: Are you planning to leave your car unused for a while? Knowing how to
+  store your car battery properly can save you from unexpected troubles later. A poorly
+  stor
 pubDate: 2026-04-13
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-store-a-car-battery-when-not-in-use&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Selling Old Car Batteries
+heroImage: https://tse1.mm.bing.net/th?q=how-to-store-a-car-battery-when-not-in-use&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Are you planning to leave your car unused for a while? Knowing how to store your car battery properly can save you from unexpected troubles later.**

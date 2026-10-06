@@ -1,10 +1,14 @@
 ---
-title: "How to Remove Check Engine Light Honda Civic: Easy DIY Fixes"
-description: "Is your Honda Civic’s check engine light glowing and causing you stress? You’re not alone. That little warning can feel overwhelming, but you don’t have to pani"
+title: 'How to Remove Check Engine Light Honda Civic: Easy DIY Fixes'
+description: Is your Honda Civic’s check engine light glowing and causing you stress?
+  You’re not alone. That little warning can feel overwhelming, but you don’t have
+  to pani
 pubDate: 2026-04-22
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-remove-check-engine-light-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Resetting Check Engine Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-remove-check-engine-light-honda-civic&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Is your Honda Civic’s check engine light glowing and causing you stress? You’re not alone.**

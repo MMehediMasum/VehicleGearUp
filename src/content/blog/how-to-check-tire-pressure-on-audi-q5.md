@@ -1,10 +1,14 @@
 ---
-title: "How to Check Tire Pressure on Audi Q5: Easy Steps for Safety"
-description: "Keeping the right tire pressure in your Audi Q5 is more important than you might think. It affects your safety, fuel efficiency, and the overall performance of "
+title: 'How to Check Tire Pressure on Audi Q5: Easy Steps for Safety'
+description: 'Keeping the right tire pressure in your Audi Q5 is more important than
+  you might think. It affects your safety, fuel efficiency, and the overall performance
+  of '
 pubDate: 2026-02-12
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-check-tire-pressure-on-audi-q5&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Toyota Tire Pressure Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-check-tire-pressure-on-audi-q5&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Keeping the right tire pressure in your Audi Q5 is more important than you might think. It affects your safety, fuel efficiency, and the overall performance of your vehicle.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Roll down Car Windows With Key Fob: Easy Step-by-Step Guide"
-description: "Have you ever wished you could cool down your car before even stepping inside? Imagine rolling down your car windows with just a click of your key fob, without "
+title: 'How to Roll down Car Windows With Key Fob: Easy Step-by-Step Guide'
+description: 'Have you ever wished you could cool down your car before even stepping
+  inside? Imagine rolling down your car windows with just a click of your key fob,
+  without '
 pubDate: 2025-10-02
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-roll-down-car-windows-with-key-fob&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Key Fob Problems
+heroImage: https://tse1.mm.bing.net/th?q=how-to-roll-down-car-windows-with-key-fob&w=424&h=424&c=7
+topic: Keys, Locks and Security
 ---
 
 **Have you ever wished you could cool down your car before even stepping inside? Imagine rolling down your car windows with just a click of your key fob, without reaching for the buttons inside.**

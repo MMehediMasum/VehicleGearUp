@@ -1,10 +1,13 @@
 ---
-title: "Best Tires for Dodge Charger Scat Pack: Top Picks for Ultimate Performance"
-description: "Choosing the best tires for your Dodge Charger Scat Pack improves performance and safety. The right tires offer better grip, handling, and durability. Dodge Cha"
+title: 'Best Tires for Dodge Charger Scat Pack: Top Picks for Ultimate Performance'
+description: Choosing the best tires for your Dodge Charger Scat Pack improves performance
+  and safety. The right tires offer better grip, handling, and durability. Dodge Cha
 pubDate: 2025-10-15
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-dodge-charger-scat-pack&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ram and Dodge Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-dodge-charger-scat-pack&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your Dodge Charger Scat Pack improves performance and safety. The right tires offer better grip, handling, and durability.**

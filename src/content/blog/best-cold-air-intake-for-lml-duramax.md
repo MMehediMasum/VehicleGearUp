@@ -1,10 +1,13 @@
 ---
-title: "Best Cold Air Intake for Lml Duramax to Boost Performance & Towing"
-description: "Finding the best cold air intake for your LML Duramax boosts engine power and efficiency. These intake systems improve airflow and help your truck run smoother."
+title: Best Cold Air Intake for Lml Duramax to Boost Performance & Towing
+description: Finding the best cold air intake for your LML Duramax boosts engine power
+  and efficiency. These intake systems improve airflow and help your truck run smoother.
 pubDate: 2026-06-09
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-lml-duramax&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- GM Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-lml-duramax&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Finding the best cold air intake for your LML Duramax boosts engine power and efficiency. These intake systems improve airflow and help your truck run smoother.**

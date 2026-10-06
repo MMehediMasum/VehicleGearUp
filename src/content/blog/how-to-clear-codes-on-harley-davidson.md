@@ -1,10 +1,14 @@
 ---
-title: "How to Clear Codes on Harley Davidson: Easy DIY Guide"
-description: "Are you seeing trouble codes on your Harley Davidson and wondering what to do next? Those blinking lights or error messages can be frustrating, but clearing the"
+title: 'How to Clear Codes on Harley Davidson: Easy DIY Guide'
+description: Are you seeing trouble codes on your Harley Davidson and wondering what
+  to do next? Those blinking lights or error messages can be frustrating, but clearing
+  the
 pubDate: 2026-03-12
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clear-codes-on-harley-davidson&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Ownership Questions
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clear-codes-on-harley-davidson&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Are you seeing trouble codes on your Harley Davidson and wondering what to do next? Those blinking lights or error messages can be frustrating, but clearing the codes doesn’t have to be a mystery.**

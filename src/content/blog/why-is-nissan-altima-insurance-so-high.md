@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Why is Nissan Altima Insurance So High: Shocking Reasons Revealed"
 description: "Are you surprised by how much you’re paying for Nissan Altima insurance? You’re not alone. Many drivers wonder why their premiums seem so high compared to other"
 pubDate: 2025-09-08

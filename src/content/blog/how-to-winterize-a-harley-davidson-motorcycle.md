@@ -1,10 +1,14 @@
 ---
-title: "How to Winterize a Harley Davidson Motorcycle: Ultimate Guide"
-description: "When winter arrives, your Harley Davidson needs more than just a cover to stay safe. If you want your bike ready to roar again when the warm days return, you ha"
+title: 'How to Winterize a Harley Davidson Motorcycle: Ultimate Guide'
+description: When winter arrives, your Harley Davidson needs more than just a cover
+  to stay safe. If you want your bike ready to roar again when the warm days return,
+  you ha
 pubDate: 2026-02-06
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-winterize-a-harley-davidson-motorcycle&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Harley Maintenance Basics
+heroImage: https://tse1.mm.bing.net/th?q=how-to-winterize-a-harley-davidson-motorcycle&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **When winter arrives, your Harley Davidson needs more than just a cover to stay safe. If you want your bike ready to roar again when the warm days return, you have to winterize it the right way.**

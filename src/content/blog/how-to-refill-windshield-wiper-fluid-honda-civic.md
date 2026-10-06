@@ -1,10 +1,14 @@
 ---
-title: "How to Refill Windshield Wiper Fluid Honda Civic: Quick & Easy Guide"
-description: "If you drive a Honda Civic, keeping your windshield wiper fluid full is key to clear vision and safe driving. But do you know exactly how to refill it quickly a"
+title: 'How to Refill Windshield Wiper Fluid Honda Civic: Quick & Easy Guide'
+description: If you drive a Honda Civic, keeping your windshield wiper fluid full
+  is key to clear vision and safe driving. But do you know exactly how to refill it
+  quickly a
 pubDate: 2026-04-29
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-refill-windshield-wiper-fluid-honda-civic&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Best Wiper Blades
+heroImage: https://tse1.mm.bing.net/th?q=how-to-refill-windshield-wiper-fluid-honda-civic&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **If you drive a Honda Civic, keeping your windshield wiper fluid full is key to clear vision and safe driving. But do you know exactly how to refill it quickly and correctly?**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Lipo Battery for Rc Trucks: Top High-Performance Picks Reviewed"
 description: "Choosing the best LiPo battery for RC trucks is key for powerful, long-lasting performance. The right battery boosts speed, runtime, and reliability on any terr"
 pubDate: 2025-11-17

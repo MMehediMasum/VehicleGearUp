@@ -1,10 +1,14 @@
 ---
-title: "How to Hook Car Stereo Up in a House: Easy DIY Guide"
-description: "Have you ever wished you could enjoy the crisp sound of your car stereo right inside your home? Imagine turning your living room into a mini concert, with your "
+title: 'How to Hook Car Stereo Up in a House: Easy DIY Guide'
+description: 'Have you ever wished you could enjoy the crisp sound of your car stereo
+  right inside your home? Imagine turning your living room into a mini concert, with
+  your '
 pubDate: 2025-09-21
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-hook-car-stereo-up-in-a-house&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Stereo Installation Help
+heroImage: https://tse1.mm.bing.net/th?q=how-to-hook-car-stereo-up-in-a-house&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Have you ever wished you could enjoy the crisp sound of your car stereo right inside your home? Imagine turning your living room into a mini concert, with your favorite tunes blasting through the speakers you already love.**

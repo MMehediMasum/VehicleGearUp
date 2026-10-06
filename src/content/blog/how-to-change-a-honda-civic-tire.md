@@ -1,10 +1,13 @@
 ---
-title: "How to Change a Honda Civic Tire: Quick & Easy Step-by-Step Guide"
-description: "Imagine you're driving your Honda Civic, and suddenly you hear that telltale thump—your tire is flat. What do you do next? Knowing how to change your tire quick"
+title: 'How to Change a Honda Civic Tire: Quick & Easy Step-by-Step Guide'
+description: Imagine you're driving your Honda Civic, and suddenly you hear that telltale
+  thump—your tire is flat. What do you do next? Knowing how to change your tire quick
 pubDate: 2025-12-19
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-a-honda-civic-tire&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tire Age Pressure and Size
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-a-honda-civic-tire&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Imagine you're driving your Honda Civic, and suddenly you hear that telltale thump—your tire is flat. What do you do next?**

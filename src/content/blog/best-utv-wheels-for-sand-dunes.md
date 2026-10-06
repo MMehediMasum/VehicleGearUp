@@ -1,10 +1,14 @@
 ---
-title: "Best UTV Wheels for Sand Dunes: Top Durable Picks for Off-Road Fun"
-description: "Choosing the best UTV wheels for sand dunes improves your ride’s performance and control. Proper wheels help you glide smoothly over soft sand without getting s"
+title: 'Best UTV Wheels for Sand Dunes: Top Durable Picks for Off-Road Fun'
+description: Choosing the best UTV wheels for sand dunes improves your ride’s performance
+  and control. Proper wheels help you glide smoothly over soft sand without getting
+  s
 pubDate: 2025-12-29
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-utv-wheels-for-sand-dunes&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Powersports Batteries
+heroImage: https://tse1.mm.bing.net/th?q=best-utv-wheels-for-sand-dunes&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best UTV wheels for sand dunes improves your ride’s performance and control. Proper wheels help you glide smoothly over soft sand without getting stuck.**

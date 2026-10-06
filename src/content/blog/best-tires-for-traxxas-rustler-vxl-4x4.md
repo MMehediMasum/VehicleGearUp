@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Tires for Traxxas Rustler Vxl 4X4: Top Picks for Ultimate Performance"
 description: "Choosing the best tires for your Traxxas Rustler VXL 4X4 boosts performance and durability. Good tires improve grip, speed, and control on various terrains. The"
 pubDate: 2026-01-05

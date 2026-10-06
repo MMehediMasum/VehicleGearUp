@@ -1,10 +1,14 @@
 ---
-title: "How to Jump a Ford Transit 250: Step-by-Step Battery Jumping Guide"
-description: "Have you ever faced the frustration of a dead battery in your Ford Transit 250 at the worst possible moment? Knowing how to jump-start your van quickly can save"
+title: 'How to Jump a Ford Transit 250: Step-by-Step Battery Jumping Guide'
+description: Have you ever faced the frustration of a dead battery in your Ford Transit
+  250 at the worst possible moment? Knowing how to jump-start your van quickly can
+  save
 pubDate: 2025-12-08
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-jump-a-ford-transit-250&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Jump Starting by Model
+heroImage: https://tse1.mm.bing.net/th?q=how-to-jump-a-ford-transit-250&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever faced the frustration of a dead battery in your Ford Transit 250 at the worst possible moment? Knowing how to jump-start your van quickly can save you time, stress, and costly towing fees.**

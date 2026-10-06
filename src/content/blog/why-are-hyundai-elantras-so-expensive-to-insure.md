@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Why are Hyundai Elantras So Expensive to Insure: Shocking Reasons Revealed"
 description: "Have you ever wondered why your Hyundai Elantra insurance bill feels so high? You’re not alone. Many drivers are surprised to find that insuring this popular ca"
 pubDate: 2025-12-18

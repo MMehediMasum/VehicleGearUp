@@ -1,10 +1,14 @@
 ---
-title: "Best High Output Alternator for Car Audio: Top Powerful Models Reviewed"
-description: "A strong alternator powers your car audio system without draining the battery. High output alternators deliver the extra current needed for powerful sound and a"
+title: 'Best High Output Alternator for Car Audio: Top Powerful Models Reviewed'
+description: A strong alternator powers your car audio system without draining the
+  battery. High output alternators deliver the extra current needed for powerful sound
+  and a
 pubDate: 2025-09-26
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-high-output-alternator-for-car-audio&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Charging While Idling
+heroImage: https://tse1.mm.bing.net/th?q=best-high-output-alternator-for-car-audio&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **A strong alternator powers your car audio system without draining the battery. High output alternators deliver the extra current needed for powerful sound and accessories.**

@@ -1,10 +1,14 @@
 ---
-title: "What Amp Should a Car Battery Be: Ultimate Guide for Optimal Power"
-description: "When it comes to your car’s battery, one question often pops up: what amp rating should it have? Choosing the right amp for your battery isn’t just a technical "
+title: 'What Amp Should a Car Battery Be: Ultimate Guide for Optimal Power'
+description: 'When it comes to your car’s battery, one question often pops up: what
+  amp rating should it have? Choosing the right amp for your battery isn’t just a
+  technical '
 pubDate: 2025-09-02
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-amp-should-a-car-battery-be&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Price and Installation
+heroImage: https://tse1.mm.bing.net/th?q=what-amp-should-a-car-battery-be&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **When it comes to your car’s battery, one question often pops up: what amp rating should it have? Choosing the right amp for your battery isn’t just a technical detail—it directly affects your car’s performance and reliability.**

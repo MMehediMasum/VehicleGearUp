@@ -1,10 +1,14 @@
 ---
-title: "Why Does My Nissan Altima Turns off While Driving: Top Causes Explained"
-description: "Have you ever been driving your Nissan Altima when suddenly it just turns off? It’s a scary and frustrating experience that leaves you wondering what went wrong"
+title: 'Why Does My Nissan Altima Turns off While Driving: Top Causes Explained'
+description: Have you ever been driving your Nissan Altima when suddenly it just turns
+  off? It’s a scary and frustrating experience that leaves you wondering what went
+  wrong
 pubDate: 2026-02-19
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-does-my-nissan-altima-turns-off-while-driving&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Not Starting Causes
+heroImage: https://tse1.mm.bing.net/th?q=why-does-my-nissan-altima-turns-off-while-driving&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Have you ever been driving your Nissan Altima when suddenly it just turns off? It’s a scary and frustrating experience that leaves you wondering what went wrong.**

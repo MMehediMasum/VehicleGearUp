@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for F350 Pulling 5Th Wheel: Top Durable Choices Reviewed"
-description: "Choosing the right tires for your F350 pulling a 5th wheel is essential for safety and performance. Strong, durable tires help handle heavy loads and tough road"
+title: 'Best Tires for F350 Pulling 5Th Wheel: Top Durable Choices Reviewed'
+description: Choosing the right tires for your F350 pulling a 5th wheel is essential
+  for safety and performance. Strong, durable tires help handle heavy loads and tough
+  road
 pubDate: 2026-01-12
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-f350-pulling-5th-wheel&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Ford F150 Towing
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-f350-pulling-5th-wheel&w=424&h=424&c=7
+topic: Truck, Towing and Exterior Gear
 ---
 
 **Choosing the right tires for your F350 pulling a 5th wheel is essential for safety and performance. Strong, durable tires help handle heavy loads and tough road conditions.**

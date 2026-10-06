@@ -1,10 +1,14 @@
 ---
-title: "How to Open Gas Tank on Toyota Corolla Cross 2025: Easy Guide"
-description: "If you’ve just got your hands on a Toyota Corolla Cross 2024, you might wonder how to open the gas tank quickly and easily. Knowing this simple step saves you t"
+title: 'How to Open Gas Tank on Toyota Corolla Cross 2025: Easy Guide'
+description: If you’ve just got your hands on a Toyota Corolla Cross 2024, you might
+  wonder how to open the gas tank quickly and easily. Knowing this simple step saves
+  you t
 pubDate: 2025-12-13
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-open-gas-tank-on-toyota-corolla-cross-2024&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Opening European Gas Tanks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-open-gas-tank-on-toyota-corolla-cross-2024&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If you’ve just got your hands on a Toyota Corolla Cross 2024, you might wonder how to open the gas tank quickly and easily. Knowing this simple step saves you time and avoids frustration every time you need to fill up.**

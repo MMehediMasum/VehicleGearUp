@@ -1,10 +1,14 @@
 ---
-title: "What Bulb Do I Need for My Car Headlight: Ultimate Guide 2025"
-description: "Are your car headlights dim or flickering? You might be wondering, “What bulb do I need for my car headlight?” Choosing the right bulb is more important than yo"
+title: 'What Bulb Do I Need for My Car Headlight: Ultimate Guide 2025'
+description: Are your car headlights dim or flickering? You might be wondering, “What
+  bulb do I need for my car headlight?” Choosing the right bulb is more important
+  than yo
 pubDate: 2026-05-21
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-bulb-do-i-need-for-my-car-headlight&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Changing Headlight Bulbs
+heroImage: https://tse1.mm.bing.net/th?q=what-bulb-do-i-need-for-my-car-headlight&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Are your car headlights dim or flickering? You might be wondering, “What bulb do I need for my car headlight?” Choosing the right bulb is more important than you think.**

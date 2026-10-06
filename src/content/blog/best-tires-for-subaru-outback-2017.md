@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Subaru Outback: Top Picks for Ultimate Performance"
-description: "Choosing the best tires for your 2017 Subaru Outback improves safety and driving comfort. The right tires match your vehicle’s needs and road conditions. Subaru"
+title: 'Best Tires for Subaru Outback: Top Picks for Ultimate Performance'
+description: Choosing the best tires for your 2017 Subaru Outback improves safety
+  and driving comfort. The right tires match your vehicle’s needs and road conditions.
+  Subaru
 pubDate: 2025-12-21
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-subaru-outback-2017&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Subaru and Mazda Tires
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-subaru-outback-2017&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **Choosing the best tires for your 2017 Subaru Outback improves safety and driving comfort. The right tires match your vehicle’s needs and road conditions.**

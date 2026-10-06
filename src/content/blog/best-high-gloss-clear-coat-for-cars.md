@@ -1,10 +1,14 @@
 ---
-title: "Best High Gloss Clear Coat for Cars: Top Durable Spray Picks"
-description: "Choosing the best high gloss clear coat for cars helps protect paint and adds a shiny finish. This guide reviews top clear coats for a smooth, durable shine. A "
+title: 'Best High Gloss Clear Coat for Cars: Top Durable Spray Picks'
+description: 'Choosing the best high gloss clear coat for cars helps protect paint
+  and adds a shiny finish. This guide reviews top clear coats for a smooth, durable
+  shine. A '
 pubDate: 2026-06-06
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-high-gloss-clear-coat-for-cars&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Paint Contaminant Removers
+heroImage: https://tse1.mm.bing.net/th?q=best-high-gloss-clear-coat-for-cars&w=424&h=424&c=7
+topic: Car Care, Detailing and Interior
 ---
 
 **Choosing the best high gloss clear coat for cars helps protect paint and adds a shiny finish. This guide reviews top clear coats for a smooth, durable shine.**

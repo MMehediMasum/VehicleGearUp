@@ -1,10 +1,14 @@
 ---
-title: "How to Charge A/C on 2005 Chevy Colorado Truck: Quick & Easy Guide"
-description: "Is your 2005 Chevy Colorado’s A/C not blowing cold air like it used to? You’re not alone. Many truck owners face this problem, especially during hot days when a"
+title: 'How to Charge A/C on 2005 Chevy Colorado Truck: Quick & Easy Guide'
+description: Is your 2005 Chevy Colorado’s A/C not blowing cold air like it used to?
+  You’re not alone. Many truck owners face this problem, especially during hot days
+  when a
 pubDate: 2026-02-16
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-charge-ac-on-2005-chevy-colorado-truck&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Chevy Valves and Module Resets
+heroImage: https://tse1.mm.bing.net/th?q=how-to-charge-ac-on-2005-chevy-colorado-truck&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your 2005 Chevy Colorado’s A/C not blowing cold air like it used to? You’re not alone.**

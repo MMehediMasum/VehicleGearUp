@@ -1,10 +1,14 @@
 ---
-title: "What Color is the Negative on a Car Battery: Easy Identification Guide"
-description: "Have you ever opened your car hood and wondered, “What color is the negative on a car battery?” Knowing this simple detail can save you from costly mistakes and"
+title: 'What Color is the Negative on a Car Battery: Easy Identification Guide'
+description: Have you ever opened your car hood and wondered, “What color is the negative
+  on a car battery?” Knowing this simple detail can save you from costly mistakes
+  and
 pubDate: 2026-04-07
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-color-is-the-negative-on-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Polarity and Acid
+heroImage: https://tse1.mm.bing.net/th?q=what-color-is-the-negative-on-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **Have you ever opened your car hood and wondered, “What color is the negative on a car battery?” Knowing this simple detail can save you from costly mistakes and keep you safe while working on your vehicle. If you’re unsure which terminal to connect or disconnect first, you’re not alone—and getting it right is easier than you think.**

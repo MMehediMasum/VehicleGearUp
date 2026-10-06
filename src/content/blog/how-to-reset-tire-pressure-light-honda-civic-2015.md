@@ -1,10 +1,14 @@
 ---
-title: "How to Reset Tire Pressure Light Honda Civic 2015: Quick & Easy Guide"
-description: "If you own a 2015 Honda Civic and have noticed the tire pressure light glowing on your dashboard, you’re probably wondering how to turn it off. That little warn"
+title: 'How to Reset Tire Pressure Light Honda Civic 2015: Quick & Easy Guide'
+description: If you own a 2015 Honda Civic and have noticed the tire pressure light
+  glowing on your dashboard, you’re probably wondering how to turn it off. That little
+  warn
 pubDate: 2026-05-21
-author: "herbertlangham"
-categories: ["Car Accessories & Mods"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-reset-tire-pressure-light-honda-civic-2015&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Honda Tire Pressure Light
+heroImage: https://tse1.mm.bing.net/th?q=how-to-reset-tire-pressure-light-honda-civic-2015&w=424&h=424&c=7
+topic: Tires and Wheels
 ---
 
 **If you own a 2015 Honda Civic and have noticed the tire pressure light glowing on your dashboard, you’re probably wondering how to turn it off. That little warning can be frustrating and distracting, but don’t worry—resetting it is easier than you think.**

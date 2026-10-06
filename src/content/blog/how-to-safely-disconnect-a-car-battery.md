@@ -1,10 +1,14 @@
 ---
-title: "How to Safely Disconnect a Car Battery: Essential Step-by-Step Guide"
-description: "If you need to work on your car’s electrical system or replace the battery, knowing how to safely disconnect your car battery is essential. Doing it wrong can c"
+title: 'How to Safely Disconnect a Car Battery: Essential Step-by-Step Guide'
+description: If you need to work on your car’s electrical system or replace the battery,
+  knowing how to safely disconnect your car battery is essential. Doing it wrong can
+  c
 pubDate: 2026-04-14
-author: "herbertlangham"
-categories: ["Car Batteries & Electrical"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-safely-disconnect-a-car-battery&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Battery Terminal Care
+heroImage: https://tse1.mm.bing.net/th?q=how-to-safely-disconnect-a-car-battery&w=424&h=424&c=7
+topic: Batteries and Charging
 ---
 
 **If you need to work on your car’s electrical system or replace the battery, knowing how to safely disconnect your car battery is essential. Doing it wrong can cause sparks, damage your vehicle, or even harm you.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Tires for Tesla Model Y 20 Inch: Top Picks and Rim Protectors"
-description: "Choosing the best tires for your Tesla Model Y 20 inch wheels improves safety and performance. Good tires help with grip, comfort, and longer tire life. Tesla M"
+title: 'Best Tires for Tesla Model Y 20 Inch: Top Picks and Rim Protectors'
+description: Choosing the best tires for your Tesla Model Y 20 inch wheels improves
+  safety and performance. Good tires help with grip, comfort, and longer tire life.
+  Tesla M
 pubDate: 2026-01-10
-author: "herbertlangham"
-categories: ["Wheels, Tires & Suspension"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tires-for-tesla-model-y-20-inch&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Tesla Tires and Accessories
+heroImage: https://tse1.mm.bing.net/th?q=best-tires-for-tesla-model-y-20-inch&w=424&h=424&c=7
+topic: Vehicle Types and Buying Guides
 ---
 
 **Choosing the best tires for your Tesla Model Y 20 inch wheels improves safety and performance. Good tires help with grip, comfort, and longer tire life.**

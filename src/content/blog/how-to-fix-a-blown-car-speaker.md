@@ -1,10 +1,14 @@
 ---
-title: "How to Fix a Blown Car Speaker: Easy Steps for Clear Sound"
-description: "Is your car speaker suddenly sounding crackly, distorted, or completely dead? A blown speaker can ruin your driving experience and leave you frustrated. But don"
+title: 'How to Fix a Blown Car Speaker: Easy Steps for Clear Sound'
+description: Is your car speaker suddenly sounding crackly, distorted, or completely
+  dead? A blown speaker can ruin your driving experience and leave you frustrated.
+  But don
 pubDate: 2025-09-20
-author: "herbertlangham"
-categories: ["Car Maintenance & Repairs"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-a-blown-car-speaker&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Car Entertainment Systems
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-a-blown-car-speaker&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **Is your car speaker suddenly sounding crackly, distorted, or completely dead? A blown speaker can ruin your driving experience and leave you frustrated.**

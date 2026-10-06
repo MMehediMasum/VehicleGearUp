@@ -1,10 +1,14 @@
 ---
-title: "How to Put Freon in a Nissan Altima: Easy Step-by-Step Guide"
-description: "Is your Nissan Altima’s air conditioner not cooling like it used to? You might need to add Freon to get that cool breeze back inside your car. But how exactly d"
+title: 'How to Put Freon in a Nissan Altima: Easy Step-by-Step Guide'
+description: Is your Nissan Altima’s air conditioner not cooling like it used to?
+  You might need to add Freon to get that cool breeze back inside your car. But how
+  exactly d
 pubDate: 2025-10-13
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-put-freon-in-a-nissan-altima&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Coolant and AC Recharge
+heroImage: https://tse1.mm.bing.net/th?q=how-to-put-freon-in-a-nissan-altima&w=424&h=424&c=7
+topic: Maintenance, Brakes and Suspension
 ---
 
 **Is your Nissan Altima’s air conditioner not cooling like it used to? You might need to add Freon to get that cool breeze back inside your car.**

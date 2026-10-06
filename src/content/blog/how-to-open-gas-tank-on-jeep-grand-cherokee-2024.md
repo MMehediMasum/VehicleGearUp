@@ -1,10 +1,14 @@
 ---
-title: "How to Open Gas Tank on Jeep Grand Cherokee 2025: Quick & Easy Guide"
-description: "If you’ve just gotten your hands on a 2024 Jeep Grand Cherokee, you might be wondering how to open the gas tank quickly and easily. It’s one of those small task"
+title: 'How to Open Gas Tank on Jeep Grand Cherokee 2025: Quick & Easy Guide'
+description: If you’ve just gotten your hands on a 2024 Jeep Grand Cherokee, you might
+  be wondering how to open the gas tank quickly and easily. It’s one of those small
+  task
 pubDate: 2026-03-15
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-open-gas-tank-on-jeep-grand-cherokee-2024&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Opening European Gas Tanks
+heroImage: https://tse1.mm.bing.net/th?q=how-to-open-gas-tank-on-jeep-grand-cherokee-2024&w=424&h=424&c=7
+topic: Electronics, Dashboard and Lighting
 ---
 
 **If you’ve just gotten your hands on a 2024 Jeep Grand Cherokee, you might be wondering how to open the gas tank quickly and easily. It’s one of those small tasks that can feel confusing if you don’t know the trick.**

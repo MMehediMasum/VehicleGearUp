@@ -1,10 +1,14 @@
 ---
-title: "Best Cold Air Intake for WRX to Boost Performance and Acceleration"
-description: "Choosing the best cold air intake for your WRX can boost engine power and improve fuel efficiency. A good intake system helps your car breathe better and run sm"
+title: Best Cold Air Intake for WRX to Boost Performance and Acceleration
+description: Choosing the best cold air intake for your WRX can boost engine power
+  and improve fuel efficiency. A good intake system helps your car breathe better
+  and run sm
 pubDate: 2026-06-18
-author: "herbertlangham"
-categories: ["Driving Tips & How-To Guides"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-wrx&w=424&h=424&c=7"
+author: herbertlangham
+categories:
+- Engine Specific Cold Air Intakes
+heroImage: https://tse1.mm.bing.net/th?q=best-cold-air-intake-for-wrx&w=424&h=424&c=7
+topic: Engine, Fuel and Performance
 ---
 
 **Choosing the best cold air intake for your WRX can boost engine power and improve fuel efficiency. A good intake system helps your car breathe better and run smoother.**
