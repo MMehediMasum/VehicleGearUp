@@ -24,11 +24,15 @@ const topicCounts = new Map(
 	[...topicCategorySets.entries()].map(([topic, set]) => [topic, set.size])
 );
 
-const latestPosts = allPosts.slice(0, 9);
+// Latest section: 1 featured + 3 side + 3 bottom = 7 posts
+const latestPosts = allPosts.slice(0, 7);
+const featuredPost = latestPosts[0];
+const sidePosts = latestPosts.slice(1, 4);
+const restPosts = latestPosts.slice(4, 7);
 
-function thumbUrl(query: string) {
+function thumbUrl(query: string, w = 474, h = 274) {
 	const q = encodeURIComponent(query);
-	return `https://tse1.mm.bing.net/th?q=${q}&w=474&h=274&c=7`;
+	return `https://tse1.mm.bing.net/th?q=${q}&w=${w}&h=${h}&c=7`;
 }
 
 function formatDate(date: Date) {
@@ -38,138 +42,574 @@ function formatDate(date: Date) {
 		day: 'numeric',
 	}).format(date);
 }
+
+/* ---------- Topic styling (matched by keyword in the topic name) ---------- */
+const svg = (inner: string) =>
+	`<svg viewBox="0 0 24 24" fill="none" stroke="#fff" stroke-width="1.8" stroke-linecap="round" stroke-linejoin="round" aria-hidden="true">${inner}</svg>`;
+
+const topicStyles = [
+	{
+		key: 'batter',
+		c1: '#08372f',
+		c2: '#14a37f',
+		icon: svg('<rect x="1" y="6" width="18" height="12" rx="2"/><path d="M23 13v-2"/><path d="M11 6l-4 6h6l-4 6"/>'),
+	},
+	{
+		key: 'car care',
+		c1: '#122b63',
+		c2: '#2f9bd8',
+		icon: svg('<path d="M12 3l1.9 5.1L19 10l-5.1 1.9L12 17l-1.9-5.1L5 10l5.1-1.9z"/><path d="M19 15l.8 2.2L22 18l-2.2.8L19 21l-.8-2.2L16 18l2.2-.8z"/>'),
+	},
+	{
+		key: 'electronic',
+		c1: '#321a63',
+		c2: '#8b6cf0',
+		icon: svg('<path d="M12 14l4-4"/><path d="M3.3 19a10 10 0 1 1 17.4 0"/>'),
+	},
+	{
+		key: 'engine',
+		c1: '#5c1410',
+		c2: '#ef6a2a',
+		icon: svg('<circle cx="12" cy="12" r="3"/><path d="M12 2v3M12 19v3M2 12h3M19 12h3M4.9 4.9l2.1 2.1M17 17l2.1 2.1M4.9 19.1L7 17M17 7l2.1-2.1"/>'),
+	},
+	{
+		key: 'key',
+		c1: '#1e2733',
+		c2: '#6c7f98',
+		icon: svg('<circle cx="7.5" cy="15.5" r="4.5"/><path d="M10.7 12.3L21 2M16 7l3 3M18 5l3 3"/>'),
+	},
+	{
+		key: 'maintenance',
+		c1: '#5a3205',
+		c2: '#e39a14',
+		icon: svg('<path d="M14.7 6.3a1 1 0 0 0 0 1.4l1.6 1.6a1 1 0 0 0 1.4 0l3.77-3.77a6 6 0 0 1-7.94 7.94l-6.91 6.91a2.12 2.12 0 0 1-3-3l6.91-6.91a6 6 0 0 1 7.94-7.94l-3.76 3.76z"/>'),
+	},
+	{
+		key: 'tire',
+		c1: '#14181f',
+		c2: '#4f5b6b',
+		icon: svg('<circle cx="12" cy="12" r="10"/><circle cx="12" cy="12" r="4"/><path d="M12 2v6M12 16v6M2 12h6M16 12h6"/>'),
+	},
+	{
+		key: 'truck',
+		c1: '#3b2a12',
+		c2: '#a8672a',
+		icon: svg('<path d="M1 3h15v13H1z"/><path d="M16 8h4l3 3v5h-7z"/><circle cx="5.5" cy="18.5" r="2.5"/><circle cx="18.5" cy="18.5" r="2.5"/>'),
+	},
+	{
+		key: 'vehicle types',
+		c1: '#5a1236',
+		c2: '#d9487f',
+		icon: svg('<path d="M3 13l2-6h14l2 6v5H3z"/><circle cx="7.5" cy="18" r="1.8"/><circle cx="16.5" cy="18" r="1.8"/>'),
+	},
+];
+const fallbackStyle = {
+	key: '',
+	c1: '#1c2635',
+	c2: '#4d6b8f',
+	icon: svg('<circle cx="12" cy="12" r="9"/><path d="M12 7v5l3 2"/>'),
+};
+function styleFor(topic: string) {
+	const t = topic.toLowerCase();
+	return topicStyles.find((s) => t.includes(s.key)) ?? fallbackStyle;
+}
+
+/* ---------- Hero tachometer geometry ---------- */
+const CX = 200;
+const CY = 200;
+const START = 135; // degrees, bottom-left
+const SWEEP = 270;
+const STEPS = 40;
+const rad = (deg: number) => (deg * Math.PI) / 180;
+const pt = (r: number, deg: number) => [CX + r * Math.cos(rad(deg)), CY + r * Math.sin(rad(deg))];
+const ticks = Array.from({ length: STEPS + 1 }, (_, i) => {
+	const deg = START + (i * SWEEP) / STEPS;
+	const major = i % 5 === 0;
+	const [x1, y1] = pt(major ? 140 : 150, deg);
+	const [x2, y2] = pt(164, deg);
+	const [lx, ly] = pt(116, deg);
+	return {
+		x1: x1.toFixed(2),
+		y1: y1.toFixed(2),
+		x2: x2.toFixed(2),
+		y2: y2.toFixed(2),
+		lx: lx.toFixed(2),
+		ly: (ly + 6).toFixed(2),
+		major,
+		red: i >= 35,
+		label: major ? i / 5 : null,
+	};
+});
+const [rx1, ry1] = pt(172, START + (35 * SWEEP) / STEPS);
+const [rx2, ry2] = pt(172, START + SWEEP);
+const redline = `M ${rx1.toFixed(2)} ${ry1.toFixed(2)} A 172 172 0 0 1 ${rx2.toFixed(2)} ${ry2.toFixed(2)}`;
+const [ax1, ay1] = pt(172, START);
+const trackArc = `M ${ax1.toFixed(2)} ${ay1.toFixed(2)} A 172 172 0 1 1 ${rx2.toFixed(2)} ${ry2.toFixed(2)}`;
 ---
 
 <!doctype html>
 <html lang="en">
 	<head>
 		<BaseHead title={SITE_TITLE} description={SITE_DESCRIPTION} />
+		<link rel="preconnect" href="https://fonts.googleapis.com" />
+		<link rel="preconnect" href="https://fonts.gstatic.com" crossorigin />
+		<link
+			href="https://fonts.googleapis.com/css2?family=Barlow+Condensed:wght@600;700&display=swap"
+			rel="stylesheet"
+		/>
 		<style>
 			main {
 				width: min(1100px, 92vw);
 				margin: 0 auto;
+				--display: 'Barlow Condensed', 'Oswald', 'Arial Narrow', sans-serif;
+				--amber: #ffb020;
 			}
 
-			/* ---------- Hero ---------- */
+			html {
+				scroll-behavior: smooth;
+			}
+			#topics,
+			#latest {
+				scroll-margin-top: 1.5rem;
+			}
+
+			/* ---------- Hero: instrument cluster ---------- */
 			.hero {
 				position: relative;
 				overflow: hidden;
 				background:
-					radial-gradient(ellipse 60% 85% at 12% 15%, rgba(84, 142, 155, 0.22), transparent 60%),
-					radial-gradient(ellipse 55% 75% at 88% 10%, rgba(224, 138, 95, 0.16), transparent 60%),
-					radial-gradient(ellipse 70% 60% at 50% 115%, rgba(84, 142, 155, 0.14), transparent 65%),
-					linear-gradient(180deg, #fbf8f2 0%, #f3ede0 100%);
+					radial-gradient(ellipse 55% 70% at 8% 105%, rgba(255, 176, 32, 0.2), transparent 65%),
+					radial-gradient(ellipse 45% 60% at 92% 0%, rgba(80, 160, 255, 0.16), transparent 65%),
+					linear-gradient(160deg, #0c131d 0%, #111c2b 60%, #172334 100%);
 				border-radius: 24px;
-				padding: 4.5rem 2.5rem;
+				padding: 4rem 3rem 4.6rem;
 				margin: 1.5rem auto 3.5rem;
-				text-align: center;
 			}
-			.hero::before {
+			/* lane marking along the bottom edge */
+			.hero::after {
 				content: '';
 				position: absolute;
-				top: 0;
-				right: 0;
-				bottom: 0;
 				left: 0;
-				z-index: 0;
-				background-image: url("data:image/svg+xml,%3Csvg xmlns=%27http://www.w3.org/2000/svg%27 width=%27130%27 height=%27130%27%3E%3Cg fill=%27%233b636d%27%3E%3Cellipse cx=%2765%27 cy=%2782%27 rx=%2724%27 ry=%2719%27/%3E%3Cellipse cx=%2737%27 cy=%2748%27 rx=%2711%27 ry=%2714%27/%3E%3Cellipse cx=%2765%27 cy=%2736%27 rx=%2711%27 ry=%2714%27/%3E%3Cellipse cx=%2793%27 cy=%2748%27 rx=%2711%27 ry=%2714%27/%3E%3C/g%3E%3C/svg%3E");
-				background-size: 130px 130px;
-				opacity: 0.05;
+				right: 0;
+				bottom: 1.4rem;
+				height: 4px;
+				background: repeating-linear-gradient(90deg, var(--amber) 0 38px, transparent 38px 76px);
+				opacity: 0.55;
 				pointer-events: none;
 			}
-			.hero-content {
+			.hero-grid {
 				position: relative;
 				z-index: 1;
-				/* Hero background is always a light cream gradient, in both
-				   light and dark site themes, so its text must stay fixed
-				   dark colors rather than following the --black/--gray-dark
-				   theme variables (which flip to light colors in dark mode
-				   and would become invisible here). */
-				color: #14171f;
+				display: grid;
+				grid-template-columns: minmax(0, 1.15fr) minmax(0, 0.85fr);
+				gap: 2.5rem;
+				align-items: center;
+			}
+			/* Hero background is always dark, in both light and dark site
+			   themes, so its text uses fixed light colors instead of the
+			   --black/--gray theme variables. */
+			.hero-content {
+				color: #f3f6fb;
+				text-align: left;
 			}
 			.hero h1 {
-				font-size: clamp(2rem, 4vw, 2.9rem);
-				line-height: 1.15;
-				margin: 0 0 0.6em;
-				max-width: 22ch;
-				margin-left: auto;
-				margin-right: auto;
-				color: #14171f;
+				font-family: var(--display);
+				font-weight: 700;
+				font-size: clamp(2.5rem, 5.4vw, 4.2rem);
+				line-height: 1.02;
+				letter-spacing: 0.005em;
+				margin: 0 0 0.55em;
+				max-width: 14ch;
+				color: #ffffff;
 			}
 			.hero p {
-				max-width: 52ch;
-				margin: 0 auto;
-				color: #4a5164;
+				max-width: 46ch;
+				margin: 0 0 1.8rem;
+				color: #b4c0d2;
 				font-size: 1.1rem;
+				line-height: 1.6;
+			}
+			.hero-actions {
+				display: flex;
+				flex-wrap: wrap;
+				gap: 0.8rem;
+			}
+			.btn {
+				display: inline-block;
+				padding: 0.75rem 1.5rem;
+				border-radius: 10px;
+				font-weight: 700;
+				font-size: 0.98rem;
+				text-decoration: none;
+				transition: transform 0.15s ease, background 0.15s ease;
+			}
+			.btn:hover {
+				transform: translateY(-2px);
+			}
+			.btn:focus-visible {
+				outline: 3px solid #ffffff;
+				outline-offset: 3px;
+			}
+			.btn-primary {
+				background: var(--amber);
+				color: #1b1303;
+			}
+			.btn-primary:hover {
+				background: #ffc24d;
+			}
+			.btn-ghost {
+				color: #e8eef8;
+				border: 1.5px solid rgba(232, 238, 248, 0.4);
+			}
+			.btn-ghost:hover {
+				background: rgba(255, 255, 255, 0.08);
 			}
 
-			/* ---------- Topic cards ---------- */
-			.section-heading {
-				font-size: 1.5rem;
-				margin: 0 0 1.2rem;
+			.gauge {
+				width: 100%;
+				max-width: 380px;
+				justify-self: center;
+				filter: drop-shadow(0 18px 40px rgba(0, 0, 0, 0.45));
 			}
-			.topic-row {
+			.gauge svg {
+				display: block;
+				width: 100%;
+				height: auto;
+				overflow: visible;
+			}
+			.needle {
+				transform-origin: 200px 200px;
+				transform: rotate(330deg);
+				animation: rev 1.9s cubic-bezier(0.2, 0.8, 0.25, 1) 0.2s both;
+			}
+			@keyframes rev {
+				0% {
+					transform: rotate(135deg);
+				}
+				70% {
+					transform: rotate(338deg);
+				}
+				100% {
+					transform: rotate(330deg);
+				}
+			}
+			@media (prefers-reduced-motion: reduce) {
+				.needle {
+					animation: none;
+				}
+				html {
+					scroll-behavior: auto;
+				}
+			}
+
+			/* ---------- Section headings ---------- */
+			.section-head {
+				margin: 0 0 1.4rem;
+			}
+			.section-heading {
+				font-family: var(--display);
+				font-size: 2rem;
+				font-weight: 700;
+				letter-spacing: 0.01em;
+				margin: 0 0 0.25rem;
+				padding-left: 0.8rem;
+				border-left: 5px solid var(--amber);
+				line-height: 1.1;
+			}
+			.section-sub {
+				margin: 0;
+				padding-left: calc(0.8rem + 5px);
+				color: rgb(var(--gray));
+				font-size: 0.98rem;
+			}
+
+			/* ---------- Topic bento ---------- */
+			.topic-bento {
 				display: grid;
-				grid-template-columns: repeat(auto-fit, minmax(220px, 1fr));
-				gap: 1.5rem;
+				grid-template-columns: repeat(4, minmax(0, 1fr));
+				grid-auto-rows: 185px;
+				gap: 1rem;
 				list-style: none;
-				margin: 0 0 3.5rem;
+				margin: 0 0 4rem;
 				padding: 0;
 			}
+			.topic-bento li {
+				filter: drop-shadow(0 6px 14px rgba(10, 16, 28, 0.22));
+			}
+			.topic-bento li:first-child {
+				grid-column: span 2;
+				grid-row: span 2;
+			}
 			.topic-card {
+				--cut: 26px;
 				position: relative;
 				display: block;
-				border-radius: 16px;
+				height: 100%;
 				overflow: hidden;
-				aspect-ratio: 4 / 3;
+				isolation: isolate;
+				color: #ffffff;
 				text-decoration: none;
-				color: white;
-				box-shadow: 0 1px 3px rgba(var(--gray), 25%);
-				transition: transform 0.2s ease;
+				background: linear-gradient(150deg, var(--c1), var(--c2));
+				/* chamfered corners, like a vehicle badge */
+				clip-path: polygon(
+					0 0,
+					calc(100% - var(--cut)) 0,
+					100% var(--cut),
+					100% 100%,
+					var(--cut) 100%,
+					0 calc(100% - var(--cut))
+				);
 			}
-			.topic-card:hover {
-				transform: translateY(-3px);
+			.topic-bento li:first-child .topic-card {
+				--cut: 44px;
 			}
 			.topic-card img {
+				position: absolute;
+				inset: 0;
+				width: 100%;
+				height: 100%;
+				object-fit: cover;
+				opacity: 0.5;
+				transition: transform 0.5s ease, opacity 0.3s ease;
+				z-index: -2;
+			}
+			.topic-card .overlay {
+				position: absolute;
+				inset: 0;
+				z-index: -1;
+				background: linear-gradient(180deg, rgba(8, 11, 18, 0.1) 25%, rgba(8, 11, 18, 0.88) 100%);
+			}
+			.topic-card:hover img {
+				transform: scale(1.07);
+				opacity: 0.62;
+			}
+			.topic-card:focus-visible {
+				outline: none;
+				box-shadow: inset 0 0 0 4px var(--amber);
+			}
+			.topic-card .ico {
+				position: absolute;
+				top: 1rem;
+				left: 1rem;
+				width: 46px;
+				height: 46px;
+				display: grid;
+				place-items: center;
+				border-radius: 12px;
+				background: rgba(255, 255, 255, 0.16);
+				border: 1px solid rgba(255, 255, 255, 0.3);
+				backdrop-filter: blur(6px);
+			}
+			.topic-card .ico svg {
+				width: 24px;
+				height: 24px;
+			}
+			.topic-bento li:first-child .ico {
+				width: 62px;
+				height: 62px;
+				border-radius: 16px;
+				top: 1.4rem;
+				left: 1.4rem;
+			}
+			.topic-bento li:first-child .ico svg {
+				width: 32px;
+				height: 32px;
+			}
+			.topic-card .label {
+				position: absolute;
+				left: 1.1rem;
+				right: 1.1rem;
+				bottom: 1.1rem;
+			}
+			.topic-card .label h3 {
+				margin: 0 0 0.2rem;
+				font-family: var(--display);
+				font-weight: 700;
+				font-size: 1.45rem;
+				line-height: 1.08;
+				color: #ffffff;
+				text-shadow: 0 2px 8px rgba(0, 0, 0, 0.55);
+			}
+			.topic-card .label span {
+				font-size: 0.85rem;
+				color: rgba(255, 255, 255, 0.88);
+				text-shadow: 0 1px 4px rgba(0, 0, 0, 0.6);
+			}
+			.topic-bento li:first-child .label {
+				left: 1.6rem;
+				right: 1.6rem;
+				bottom: 1.5rem;
+			}
+			.topic-bento li:first-child .label h3 {
+				font-size: 2.5rem;
+				max-width: 12ch;
+			}
+			.topic-bento li:first-child .label span {
+				font-size: 1rem;
+			}
+			/* amber line that fills in along the bottom on hover */
+			.topic-card .bar {
+				position: absolute;
+				left: 0;
+				bottom: 0;
+				height: 4px;
+				width: 0;
+				background: var(--amber);
+				transition: width 0.35s ease;
+			}
+			.topic-card:hover .bar,
+			.topic-card:focus-visible .bar {
+				width: 100%;
+			}
+
+			/* ---------- Latest posts: magazine layout ---------- */
+			.feed {
+				display: grid;
+				grid-template-columns: repeat(12, minmax(0, 1fr));
+				gap: 1.5rem;
+			}
+			.feed ul {
+				list-style: none;
+				margin: 0;
+				padding: 0;
+			}
+
+			.feature {
+				grid-column: span 7;
+				display: block;
+				filter: drop-shadow(0 8px 18px rgba(10, 16, 28, 0.25));
+			}
+			.feature-card {
+				--cut: 40px;
+				position: relative;
+				display: flex;
+				align-items: flex-end;
+				height: 100%;
+				min-height: 430px;
+				overflow: hidden;
+				isolation: isolate;
+				color: #ffffff;
+				text-decoration: none;
+				background: linear-gradient(150deg, #122238, #2a4468);
+				clip-path: polygon(
+					0 0,
+					calc(100% - var(--cut)) 0,
+					100% var(--cut),
+					100% 100%,
+					0 100%
+				);
+			}
+			.feature-card img {
+				position: absolute;
+				inset: 0;
+				width: 100%;
+				height: 100%;
+				object-fit: cover;
+				z-index: -2;
+				transition: transform 0.5s ease;
+			}
+			.feature-card::before {
+				content: '';
+				position: absolute;
+				inset: 0;
+				z-index: -1;
+				background: linear-gradient(180deg, rgba(8, 11, 18, 0.05) 30%, rgba(8, 11, 18, 0.92) 100%);
+			}
+			.feature-card:hover img {
+				transform: scale(1.05);
+			}
+			.feature-card:focus-visible {
+				outline: none;
+				box-shadow: inset 0 0 0 4px var(--amber);
+			}
+			.feature-body {
+				padding: 1.8rem;
+			}
+			.chip {
+				display: inline-block;
+				padding: 0.2rem 0.7rem;
+				margin-bottom: 0.7rem;
+				border-radius: 999px;
+				background: var(--amber);
+				color: #1b1303;
+				font-size: 0.8rem;
+				font-weight: 700;
+			}
+			.feature-title {
+				margin: 0 0 0.5rem;
+				font-family: var(--display);
+				font-weight: 700;
+				font-size: clamp(1.7rem, 3vw, 2.4rem);
+				line-height: 1.1;
+				color: #ffffff;
+				text-shadow: 0 2px 10px rgba(0, 0, 0, 0.5);
+			}
+			.feature-date {
+				font-size: 0.88rem;
+				color: rgba(255, 255, 255, 0.85);
+			}
+
+			.side-list {
+				grid-column: span 5;
+				display: flex;
+				flex-direction: column;
+				gap: 1rem;
+			}
+			.side-list li {
+				flex: 1;
+			}
+			.side-card {
+				display: grid;
+				grid-template-columns: 128px minmax(0, 1fr);
+				gap: 1rem;
+				align-items: center;
+				height: 100%;
+				padding: 0.7rem;
+				border-radius: 14px;
+				border: 1px solid rgba(var(--gray), 28%);
+				border-left: 5px solid var(--amber);
+				text-decoration: none;
+				color: rgb(var(--black));
+				transition: transform 0.2s ease, border-color 0.2s ease;
+			}
+			.side-card:hover {
+				transform: translateX(4px);
+			}
+			.side-card:focus-visible {
+				outline: 3px solid var(--amber);
+				outline-offset: 2px;
+			}
+			.side-thumb {
+				width: 100%;
+				aspect-ratio: 4 / 3;
+				border-radius: 10px;
+				overflow: hidden;
+				background: rgb(var(--gray-light));
+			}
+			.side-thumb img {
 				width: 100%;
 				height: 100%;
 				object-fit: cover;
 				display: block;
 			}
-			.topic-card .overlay {
-				position: absolute;
-				inset: 0;
-				background: linear-gradient(180deg, rgba(15, 18, 25, 0) 40%, rgba(15, 18, 25, 0.75) 100%);
-			}
-			.topic-card .label {
-				position: absolute;
-				left: 1.2rem;
-				bottom: 1rem;
-				right: 1.2rem;
-			}
-			.topic-card .label h3 {
-				margin: 0;
-				font-size: 1.4rem;
-			}
-			.topic-card .label span {
-				font-size: 0.85rem;
-				opacity: 0.85;
-			}
 
-			/* ---------- Latest posts ---------- */
-			.post-grid {
+			.rest {
+				grid-column: 1 / -1;
 				display: grid;
-				grid-template-columns: repeat(auto-fill, minmax(260px, 1fr));
-				gap: 1.8rem;
-				list-style: none;
-				margin: 0;
-				padding: 0;
+				grid-template-columns: repeat(3, minmax(0, 1fr));
+				gap: 1.5rem;
 			}
 			.post-card {
 				display: flex;
 				flex-direction: column;
+				height: 100%;
 				text-decoration: none;
 				color: rgb(var(--black));
+			}
+			.post-card:focus-visible {
+				outline: 3px solid var(--amber);
+				outline-offset: 4px;
+				border-radius: 12px;
 			}
 			.post-thumb {
 				width: 100%;
@@ -196,12 +636,17 @@ function formatDate(date: Date) {
 				margin-bottom: 0.25rem;
 			}
 			.post-title {
-				font-size: 1.1rem;
+				font-size: 1.05rem;
 				line-height: 1.35;
 				font-weight: 700;
 				margin: 0 0 0.4rem;
 			}
-			.post-card:hover .post-title {
+			.side-card .post-title {
+				font-size: 1rem;
+				margin-bottom: 0.3rem;
+			}
+			.post-card:hover .post-title,
+			.side-card:hover .post-title {
 				color: var(--accent);
 			}
 			.post-date {
@@ -211,9 +656,54 @@ function formatDate(date: Date) {
 				color: rgb(var(--gray));
 			}
 
-			@media (max-width: 640px) {
+			/* ---------- Responsive ---------- */
+			@media (max-width: 900px) {
 				.hero {
-					padding: 2.2rem 1.4rem;
+					padding: 3rem 1.8rem 3.6rem;
+				}
+				.hero-grid {
+					grid-template-columns: 1fr;
+				}
+				.gauge {
+					max-width: 280px;
+				}
+				.topic-bento {
+					grid-template-columns: repeat(2, minmax(0, 1fr));
+				}
+				.topic-bento li:first-child {
+					grid-column: span 2;
+					grid-row: span 2;
+				}
+				.feature,
+				.side-list {
+					grid-column: 1 / -1;
+				}
+				.feature-card {
+					min-height: 340px;
+				}
+				.rest {
+					grid-template-columns: repeat(2, minmax(0, 1fr));
+				}
+			}
+			@media (max-width: 560px) {
+				.hero {
+					padding: 2.4rem 1.2rem 3.2rem;
+				}
+				.topic-bento {
+					grid-auto-rows: 160px;
+					gap: 0.8rem;
+				}
+				.topic-bento li:first-child .label h3 {
+					font-size: 1.9rem;
+				}
+				.topic-card .label h3 {
+					font-size: 1.2rem;
+				}
+				.side-card {
+					grid-template-columns: 104px minmax(0, 1fr);
+				}
+				.rest {
+					grid-template-columns: 1fr;
 				}
 			}
 		</style>
@@ -222,57 +712,198 @@ function formatDate(date: Date) {
 		<Header />
 		<main>
 			<section class="hero">
-				<div class="hero-content">
-					<h1>One home for everything your cat, dog or bird needs</h1>
-					<p>{SITE_DESCRIPTION}</p>
+				<div class="hero-grid">
+					<div class="hero-content">
+						<h1>Keep your vehicle running right, from battery to bumper</h1>
+						<p>
+							Clear, practical guides on car care, repairs, tires, electronics, towing and buying, so
+							you know what to check, what to fix and what to skip.
+						</p>
+						<div class="hero-actions">
+							<a class="btn btn-primary" href="#topics">Browse topics</a>
+							<a class="btn btn-ghost" href="#latest">Read the latest guides</a>
+						</div>
+					</div>
+
+					<div class="gauge" aria-hidden="true">
+						<svg viewBox="0 0 400 400" xmlns="http://www.w3.org/2000/svg">
+							<defs>
+								<radialGradient id="face" cx="50%" cy="45%" r="60%">
+									<stop offset="0%" stop-color="#16243a" />
+									<stop offset="100%" stop-color="#0a111b" />
+								</radialGradient>
+							</defs>
+							<circle cx="200" cy="200" r="196" fill="#2a3547" />
+							<circle cx="200" cy="200" r="188" fill="url(#face)" stroke="#3b4a60" stroke-width="2" />
+							<path d={trackArc} fill="none" stroke="rgba(255,255,255,0.08)" stroke-width="3" />
+							<path d={redline} fill="none" stroke="#ff4d3a" stroke-width="5" stroke-linecap="round" />
+							{
+								ticks.map((t) => (
+									<line
+										x1={t.x1}
+										y1={t.y1}
+										x2={t.x2}
+										y2={t.y2}
+										stroke={t.red ? '#ff6a55' : '#dfe8f5'}
+										stroke-width={t.major ? 3 : 1.4}
+										stroke-linecap="round"
+									/>
+								))
+							}
+							{
+								ticks
+									.filter((t) => t.major)
+									.map((t) => (
+										<text
+											x={t.lx}
+											y={t.ly}
+											text-anchor="middle"
+											font-size="20"
+											font-weight="700"
+											font-family="'Barlow Condensed', 'Arial Narrow', sans-serif"
+											fill={t.red ? '#ff6a55' : '#dfe8f5'}
+										>
+											{t.label}
+										</text>
+									))
+							}
+							<text
+								x="200"
+								y="258"
+								text-anchor="middle"
+								font-size="62"
+								font-weight="700"
+								font-family="'Barlow Condensed', 'Arial Narrow', sans-serif"
+								fill="#ffb020">{allPosts.length}</text
+							>
+							<text
+								x="200"
+								y="284"
+								text-anchor="middle"
+								font-size="17"
+								font-family="'Barlow Condensed', 'Arial Narrow', sans-serif"
+								fill="#9fb0c8">guides and counting</text
+							>
+							<g class="needle">
+								<polygon points="200,196 336,200 200,204" fill="#ff4d3a" />
+								<polygon points="200,196 160,200 200,204" fill="#ff4d3a" opacity="0.7" />
+							</g>
+							<circle cx="200" cy="200" r="14" fill="#1b2638" stroke="#ff4d3a" stroke-width="3" />
+						</svg>
+					</div>
 				</div>
 			</section>
 
-			<section>
-				<h2 class="section-heading">Browse by pet</h2>
-				<ul class="topic-row">
+			<section id="topics">
+				<div class="section-head">
+					<h2 class="section-heading">Browse by topic</h2>
+					<p class="section-sub">Pick the part of your vehicle you need help with.</p>
+				</div>
+				<ul class="topic-bento">
 					{
-						topics.map((topic) => (
-							<li>
-								<a class="topic-card" href={`/topic/${topic.toLowerCase().replace(/\s+/g, '-')}/`}>
-									<img src={thumbUrl(topic)} alt="" loading="lazy" onerror="this.style.display='none'" />
-									<div class="overlay" />
-									<div class="label">
-										<h3>{topic}</h3>
-										<span>{topicCounts.get(topic)} categories</span>
-									</div>
-								</a>
-							</li>
-						))
+						topics.map((topic) => {
+							const s = styleFor(topic);
+							return (
+								<li>
+									<a
+										class="topic-card"
+										href={`/topic/${topic.toLowerCase().replace(/\s+/g, '-')}/`}
+										style={`--c1:${s.c1};--c2:${s.c2}`}
+									>
+										<img src={thumbUrl(topic)} alt="" loading="lazy" onerror="this.style.display='none'" />
+										<div class="overlay" />
+										<span class="ico" set:html={s.icon} />
+										<div class="label">
+											<h3>{topic}</h3>
+											<span>{topicCounts.get(topic)} categories</span>
+										</div>
+										<span class="bar" />
+									</a>
+								</li>
+							);
+						})
 					}
 				</ul>
 			</section>
 
-			<section>
-				<h2 class="section-heading">Latest articles</h2>
-				<ul class="post-grid">
+			<section id="latest">
+				<div class="section-head">
+					<h2 class="section-heading">Latest articles</h2>
+					<p class="section-sub">Fresh from the garage.</p>
+				</div>
+				<div class="feed">
 					{
-						latestPosts.map((post) => (
-							<li>
-								<a class="post-card" href={`/${post.id}/`}>
-									<div class="post-thumb">
-										<img
-											src={thumbUrl(`${post.data.topic ?? ''} ${post.data.title}`)}
-											alt=""
-											loading="lazy"
-											onerror="this.style.display='none'"
-										/>
+						featuredPost && (
+							<div class="feature">
+								<a class="feature-card" href={`/${featuredPost.id}/`}>
+									<img
+										src={thumbUrl(`${featuredPost.data.topic ?? ''} ${featuredPost.data.title}`, 800, 560)}
+										alt=""
+										loading="lazy"
+										onerror="this.style.display='none'"
+									/>
+									<div class="feature-body">
+										{featuredPost.data.categories?.[0] && (
+											<span class="chip">{featuredPost.data.categories[0]}</span>
+										)}
+										<h3 class="feature-title">{featuredPost.data.title}</h3>
+										<span class="feature-date">{formatDate(featuredPost.data.pubDate)}</span>
 									</div>
-									{post.data.categories?.[0] && (
-										<span class="post-category">{post.data.categories[0]}</span>
-									)}
-									<h3 class="post-title">{post.data.title}</h3>
-									<span class="post-date">{formatDate(post.data.pubDate)}</span>
 								</a>
-							</li>
-						))
+							</div>
+						)
 					}
-				</ul>
+
+					<ul class="side-list">
+						{
+							sidePosts.map((post) => (
+								<li>
+									<a class="side-card" href={`/${post.id}/`}>
+										<div class="side-thumb">
+											<img
+												src={thumbUrl(`${post.data.topic ?? ''} ${post.data.title}`)}
+												alt=""
+												loading="lazy"
+												onerror="this.style.display='none'"
+											/>
+										</div>
+										<div>
+											{post.data.categories?.[0] && (
+												<span class="post-category">{post.data.categories[0]}</span>
+											)}
+											<h3 class="post-title">{post.data.title}</h3>
+											<span class="post-date">{formatDate(post.data.pubDate)}</span>
+										</div>
+									</a>
+								</li>
+							))
+						}
+					</ul>
+
+					<ul class="rest">
+						{
+							restPosts.map((post) => (
+								<li>
+									<a class="post-card" href={`/${post.id}/`}>
+										<div class="post-thumb">
+											<img
+												src={thumbUrl(`${post.data.topic ?? ''} ${post.data.title}`)}
+												alt=""
+												loading="lazy"
+												onerror="this.style.display='none'"
+											/>
+										</div>
+										{post.data.categories?.[0] && (
+											<span class="post-category">{post.data.categories[0]}</span>
+										)}
+										<h3 class="post-title">{post.data.title}</h3>
+										<span class="post-date">{formatDate(post.data.pubDate)}</span>
+									</a>
+								</li>
+							))
+						}
+					</ul>
+				</div>
 			</section>
 		</main>
 		<Footer />
