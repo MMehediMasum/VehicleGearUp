@@ -1,4 +1,5 @@
 ---
+import { slugify } from '../../utils/slug';
 import { Image } from 'astro:assets';
 import { getCollection } from 'astro:content';
 import BaseHead from '../../components/BaseHead.astro';
@@ -11,7 +12,7 @@ export async function getStaticPaths() {
 	const allPosts = await getCollection('blog');
 	const categories = [...new Set(allPosts.flatMap((post) => post.data.categories))];
 	return categories.map((category) => ({
-		params: { category: category.toLowerCase().replace(/\s+/g, '-') },
+		params: { category: slugify(category) },
 		props: { categoryName: category },
 	}));
 }

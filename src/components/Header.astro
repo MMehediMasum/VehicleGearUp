@@ -1,4 +1,5 @@
 ---
+import { slugify } from '../utils/slug';
 import { getCollection } from 'astro:content';
 import { SITE_TITLE } from '../consts';
 import HeaderLink from './HeaderLink.astro';
@@ -20,13 +21,13 @@ const topics = [...new Set(posts.map((post) => post.data.topic).filter(Boolean))
 					aria-haspopup="true"
 					aria-expanded="false"
 				>
-					Categories
+					Topics
 				</button>
 				<ul id="categories-menu" class="dropdown-menu">
 					{
 						topics.map((topic) => (
 							<li>
-								<a href={`/topic/${topic.toLowerCase().replace(/\s+/g, '-')}/`}>
+								<a href={`/topic/${slugify(topic)}/`}>
 									{topic}
 								</a>
 							</li>
