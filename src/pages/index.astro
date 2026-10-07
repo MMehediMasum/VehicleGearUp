@@ -4,6 +4,7 @@ import BaseHead from '../components/BaseHead.astro';
 import Header from '../components/Header.astro';
 import Footer from '../components/Footer.astro';
 import { SITE_TITLE, SITE_DESCRIPTION } from '../consts';
+import { slugify } from '../utils/slug';
 
 const allPosts = (await getCollection('blog')).sort(
 	(a, b) => b.data.pubDate.valueOf() - a.data.pubDate.valueOf()
@@ -807,7 +808,7 @@ const trackArc = `M ${ax1.toFixed(2)} ${ay1.toFixed(2)} A 172 172 0 1 1 ${rx2.to
 								<li>
 									<a
 										class="topic-card"
-										href={`/topic/${topic.toLowerCase().replace(/\s+/g, '-')}/`}
+										href={`/topic/${slugify(topic)}/`}
 										style={`--c1:${s.c1};--c2:${s.c2}`}
 									>
 										<img src={thumbUrl(topic)} alt="" loading="lazy" onerror="this.style.display='none'" />
