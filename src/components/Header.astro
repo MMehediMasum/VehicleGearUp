@@ -193,6 +193,7 @@ const topics = [...new Set(posts.map((post) => post.data.topic).filter(Boolean))
 		top: 100%;
 		left: 10px;
 		min-width: 160px;
+		width: max-content;
 		margin: 0;
 		padding: 0.5em 0;
 		list-style: none;
@@ -221,6 +222,7 @@ const topics = [...new Set(posts.map((post) => post.data.topic).filter(Boolean))
 		text-transform: none;
 		font-weight: 400;
 		font-size: 1em;
+		white-space: nowrap;
 	}
 	.dropdown-menu a:hover {
 		background: rgb(var(--gray-light));
@@ -318,6 +320,10 @@ const topics = [...new Set(posts.map((post) => post.data.topic).filter(Boolean))
 			transform: none;
 			display: none;
 			padding-left: 1em;
+			width: auto;
+		}
+		.dropdown-menu a {
+			white-space: normal;
 		}
 		.dropdown-menu.open {
 			display: block;
