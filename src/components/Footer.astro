@@ -1,13 +1,14 @@
 ---
 const today = new Date();
 
+const normalize = (path: string) => path.replace(/\/+$/, "") || "/";
 const footerLinks = [
-	{ href: '/about/', label: 'About' },
-	{ href: '/contact/', label: 'Contact' },
-	{ href: '/privacy-policy/', label: 'Privacy Policy' },
-	{ href: '/disclosure/', label: 'Disclosure' },
-	{ href: '/terms/', label: 'Terms' },
-];
+	{ href: '/about/', label: 'About Us', icon: '🚗' },
+	{ href: '/contact/', label: 'Contact', icon: '📬' },
+	{ href: '/privacy-policy/', label: 'Privacy Policy', icon: '🔒' },
+	{ href: '/disclosure/', label: 'Disclosure', icon: '💰' },
+	{ href: '/terms/', label: 'Terms', icon: '📜' },
+].filter((link) => normalize(link.href) !== normalize(Astro.url.pathname));
 ---
 
 <footer>
@@ -16,7 +17,7 @@ const footerLinks = [
 			{
 				footerLinks.map((link) => (
 					<li>
-						<a href={link.href}>{link.label}</a>
+						<a href={link.href}><span>{link.icon}</span> {link.label}</a>
 					</li>
 				))
 			}
@@ -71,20 +72,27 @@ const footerLinks = [
 		display: flex;
 		flex-wrap: wrap;
 		justify-content: center;
-		gap: 0.4em 1.4em;
+		gap: 0.7rem;
 		list-style: none;
 		margin: 0 0 1em;
 		padding: 0;
 	}
 	.footer-menu a {
-		color: rgb(var(--gray-dark));
+		display: inline-flex;
+		align-items: center;
+		gap: 0.4rem;
+		background: rgb(var(--gray-light));
+		color: rgb(var(--black));
 		text-decoration: none;
-		font-size: 0.9em;
+		padding: 0.5rem 1rem;
+		border-radius: 999px;
+		font-size: 0.9rem;
 		font-weight: 600;
+		transition: 0.15s ease;
 	}
 	.footer-menu a:hover {
-		color: var(--accent);
-		text-decoration: underline;
+		background: var(--accent);
+		color: #fff;
 	}
 	.social-links {
 		display: flex;
