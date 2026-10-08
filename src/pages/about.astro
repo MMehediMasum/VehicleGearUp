@@ -1,148 +1,286 @@
 ---
+import { getCollection } from 'astro:content';
 import StaticPage from '../layouts/StaticPage.astro';
+import { slugify } from '../utils/slug';
+import { styleFor } from '../utils/topicStyles';
+
+const posts = await getCollection('blog');
+const topicNames = [
+	'Batteries and Charging',
+	'Car Care, Detailing and Interior',
+	'Electronics, Dashboard and Lighting',
+	'Engine, Fuel and Performance',
+	'Keys, Locks and Security',
+	'Maintenance, Brakes and Suspension',
+	'Tires and Wheels',
+	'Truck, Towing and Exterior Gear',
+	'Vehicle Types and Buying Guides',
+];
+const topics = topicNames.map((name) => ({
+	name,
+	href: `/topic/${slugify(name)}/`,
+	count: posts.filter((p) => p.data.topic === name).length,
+	...styleFor(name),
+}));
+
+const personJsonLd = {
+	'@context': 'https://schema.org',
+	'@type': 'ProfilePage',
+	mainEntity: {
+		'@type': 'Person',
+		name: 'Herbert Langham',
+		jobTitle: 'ASE-Certified Master Technician & Garage Consultant',
+		image: 'https://vehiclegearup.com/herbert-langham.jpg',
+		worksFor: { '@type': 'Organization', name: 'Langham Auto Care' },
+		homeLocation: { '@type': 'Place', address: { '@type': 'PostalAddress', addressLocality: 'Columbus', addressRegion: 'OH', addressCountry: 'US' } },
+		knowsAbout: ['Car maintenance', 'Auto repair', 'Home garage setup', 'Automotive tools', 'Used-car buying'],
+		sameAs: ['https://www.facebook.com/HerbertLangham/'],
+	},
+};
+
+const check = '<svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2.2" stroke-linecap="round" stroke-linejoin="round" aria-hidden="true"><path d="M5 12.5l4.5 4.5L19 7.5"/></svg>';
+const wrench = '<svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="1.8" stroke-linecap="round" stroke-linejoin="round" aria-hidden="true"><path d="M14.7 6.3a1 1 0 0 0 0 1.4l1.6 1.6a1 1 0 0 0 1.4 0l3.77-3.77a6 6 0 0 1-7.94 7.94l-6.91 6.91a2.12 2.12 0 0 1-3-3l6.91-6.91a6 6 0 0 1 7.94-7.94l-3.76 3.76z"/></svg>';
+const tools = '<svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="1.8" stroke-linecap="round" stroke-linejoin="round" aria-hidden="true"><rect x="3" y="8" width="18" height="12" rx="2"/><path d="M9 8V5h6v3M3 13h18"/></svg>';
+const tag = '<svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="1.8" stroke-linecap="round" stroke-linejoin="round" aria-hidden="true"><path d="M3 12V4h8l10 10-8 8z"/><circle cx="7.5" cy="8.5" r="1.3"/></svg>';
+const doc = '<svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="1.8" stroke-linecap="round" stroke-linejoin="round" aria-hidden="true"><path d="M6 3h9l4 4v14H6z"/><path d="M9 12h7M9 16h5"/></svg>';
+const question = '<svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="1.8" stroke-linecap="round" stroke-linejoin="round" aria-hidden="true"><circle cx="12" cy="12" r="9"/><path d="M9.5 9.5a2.5 2.5 0 1 1 3.6 2.2c-.7.4-1.1.9-1.1 1.8M12 17h.01"/></svg>';
 ---
 
 <StaticPage
-	title="About Us"
-	description="Learn about VehicleGearUp, our mission, and the vehicle parts and accessories we cover for ATV, UTV, motorcycle, truck, and EV owners."
-	icon="🚗"
+	title="About Vehicle GearUp"
+	description="Meet Herbert Langham, an ASE-Certified Master Technician with 22 years of experience, and learn why Vehicle GearUp explains the why behind every repair."
+	variant="bare"
+	accent="amber"
 >
-	<p>
-		Welcome to <strong>VehicleGearUp</strong>, your ultimate destination for premium <strong>vehicles and parts</strong>, designed to enhance every ride, whether it's on-road, off-road, or somewhere in between. Our mission is simple: to empower vehicle enthusiasts, hobbyists, and everyday drivers with the tools, parts, and accessories they need to elevate performance, safety, and style.
-	</p>
-	<p>
-		At VehicleGearUp, we understand that your vehicle is more than just a mode of transportation—it's a statement, a passion, and often, a way of life. Whether you are a motorcycle aficionado, a truck enthusiast, or an off-road adventurer, we provide the <strong>highest quality parts, upgrades, and accessories</strong> to ensure your ride performs at its peak.
-	</p>
+	<script type="application/ld+json" slot="head" set:html={JSON.stringify(personJsonLd)} />
 
-	<h2>Our Story</h2>
-	<p>
-		VehicleGearUp was founded with a single vision: to create a reliable platform for vehicle enthusiasts who value performance, quality, and innovation. Our journey began with a small team of automotive experts and mechanics who shared a deep love for vehicles and a commitment to superior service. Over the years, we have grown into a trusted hub for <strong>ATV, UTV, and motorcycle parts, truck accessories, EV upgrades, and more</strong>, catering to both hobbyists and professionals alike.
-	</p>
-	<p>
-		We saw a gap in the market: a place where enthusiasts could find <strong>everything in one spot</strong>—from performance upgrades to everyday maintenance parts, from tires and wheels to trailers and towing accessories. VehicleGearUp was born to fill that need. Today, we serve thousands of satisfied customers who trust us for our expertise, quality products, and customer-first approach.
-	</p>
+	<!-- ===== Hero ===== -->
+	<section class="hero">
+		<div class="hero-text">
+			<p class="eyebrow">About Vehicle GearUp</p>
+			<h1>Straight talk from <span>under the hood.</span></h1>
+			<p class="lead">
+				Vehicle GearUp is run by a working, ASE-Certified Master Technician who explains the <strong>why</strong> behind every repair, so you can handle basic car care yourself and spot a bad repair quote before you pay it.
+			</p>
+			<div class="actions">
+				<a class="btn btn-primary" href="#story">Read my story</a>
+				<a class="btn btn-ghost" href="/#topics">Browse the guides</a>
+			</div>
+		</div>
+		<figure class="author">
+			<img src="/herbert-langham.jpg" alt="Herbert Langham in his Columbus, Ohio garage" width="500" height="500" />
+			<figcaption>
+				<strong>Herbert Langham</strong>
+				<span>ASE-Certified Master Technician &amp; Garage Consultant</span>
+				<em>📍 Columbus, Ohio</em>
+			</figcaption>
+		</figure>
+	</section>
 
-	<h2>What We Offer</h2>
-	<p>
-		At VehicleGearUp, we offer a comprehensive range of <strong>vehicle parts and accessories</strong>. Our product categories are carefully curated to ensure that we provide only the <strong>best-in-class parts</strong> that meet our high standards of quality, performance, and durability.
-	</p>
-
-	<h3>ATV, UTV &amp; Off-Road Parts</h3>
-	<p>
-		For off-road enthusiasts, we provide a wide selection of parts and accessories to maximize performance and durability. Whether you're tackling rugged trails, mud tracks, or rocky landscapes, our off-road parts—including suspension upgrades, skid plates, and custom wheels—help you get the most out of your adventure.
-	</p>
-
-	<h3>Batteries &amp; Electrical</h3>
-	<p>
-		Reliable power is essential for every vehicle. VehicleGearUp offers high-performance batteries, alternators, wiring kits, and other electrical components designed to keep your vehicle running smoothly. From motorcycles to electric vehicles (EVs), we have the power solutions you need for uninterrupted performance.
-	</p>
-
-	<h3>Interior Parts &amp; Upgrades</h3>
-	<p>
-		Your vehicle's interior should be comfortable, functional, and stylish. We provide a range of interior parts and upgrades, including seats, floor mats, dashboards, and lighting kits, to ensure your cabin reflects your personality while remaining practical for daily use.
-	</p>
-
-	<h3>Electric Vehicle (EV) Accessories</h3>
-	<p>
-		The EV revolution is here, and VehicleGearUp is at the forefront. Our selection of EV accessories includes charging solutions, performance parts, safety upgrades, and custom enhancements. We aim to make EV ownership convenient, efficient, and enjoyable for both new and experienced drivers.
-	</p>
-
-	<h3>Tires &amp; Wheels</h3>
-	<p>
-		Every ride depends on the right wheels and tires. We offer a wide variety of high-quality tires and wheels for trucks, motorcycles, ATVs, and UTVs. Whether you're seeking off-road traction, on-road comfort, or performance upgrades, our collection ensures a perfect fit for your vehicle.
-	</p>
-
-	<h3>Performance Parts &amp; Upgrades</h3>
-	<p>
-		For those who demand more from their vehicles, our performance parts and upgrades are engineered for excellence. From engine components and exhaust systems to suspension kits and tuning devices, our products are designed to enhance speed, power, and overall vehicle performance.
-	</p>
-
-	<h3>Trailer &amp; Towing</h3>
-	<p>
-		Reliable towing equipment and trailers are essential for hauling heavy loads safely. VehicleGearUp provides a range of towing solutions, including hitches, trailer parts, and towing accessories, ensuring safety, reliability, and ease of use for all your transportation needs.
-	</p>
-
-	<h3>Motorcycle Parts &amp; Accessories</h3>
-	<p>
-		Motorcycle enthusiasts can find everything they need to keep their rides in top shape. Our motorcycle parts and accessories include tires, brakes, exhausts, protective gear, and performance upgrades, all designed to deliver exceptional quality and reliability on the road.
-	</p>
-
-	<h3>Truck Parts &amp; Accessories</h3>
-	<p>
-		For truck owners, we provide a wide array of parts and accessories tailored to improve functionality, comfort, and performance. From lift kits and bed accessories to heavy-duty bumpers and lighting solutions, we help you get the most out of your truck.
-	</p>
-
-	<h3>Vehicles &amp; Parts</h3>
-	<p>
-		VehicleGearUp is your one-stop-shop for all kinds of vehicles and parts. Whether you own an ATV, UTV, motorcycle, truck, or EV, our selection ensures that you have access to high-quality, durable, and performance-focused parts at competitive prices.
-	</p>
-
-	<h2>Our Mission</h2>
-	<p>
-		Our mission is to <strong>deliver unmatched quality, reliability, and convenience</strong> to vehicle owners everywhere. We are committed to providing products that enhance vehicle performance, safety, and aesthetics, while also offering a seamless shopping experience. At VehicleGearUp, we believe that every vehicle deserves the best care, and every vehicle owner deserves the best support.
-	</p>
-	<p>We aim to:</p>
-	<ul>
-		<li><strong>Empower vehicle enthusiasts</strong> with high-quality parts and accessories.</li>
-		<li><strong>Promote safety and performance</strong> through reliable and durable products.</li>
-		<li><strong>Provide exceptional customer service</strong> that builds long-term trust.</li>
-		<li><strong>Stay ahead of industry trends</strong> by offering innovative solutions, including EV and off-road upgrades.</li>
-	</ul>
-
-	<h2>Why Choose VehicleGearUp?</h2>
-	<ul class="icon-grid">
-		<li><span class="emoji">🔧</span><span><strong>Expertise &amp; Knowledge</strong> – Our team is made up of automotive professionals, mechanics, and enthusiasts who understand the needs of vehicle owners. We know what makes a vehicle perform better, last longer, and stand out on the road.</span></li>
-		<li><span class="emoji">⭐</span><span><strong>Quality Products</strong> – We partner with trusted brands and manufacturers to ensure every product meets our rigorous standards. From batteries and brakes to tires and towing equipment, quality is never compromised.</span></li>
-		<li><span class="emoji">🤝</span><span><strong>Customer-Centric Approach</strong> – At VehicleGearUp, our customers come first. We provide expert advice, detailed product descriptions, and personalized support to help you make the best choices for your vehicle.</span></li>
-		<li><span class="emoji">⏱️</span><span><strong>Convenience &amp; Accessibility</strong> – We understand the value of your time. Our user-friendly website and comprehensive product range allow you to find everything you need in one place. Quick shipping and reliable delivery mean you can get back on the road faster.</span></li>
-		<li><span class="emoji">🔋</span><span><strong>Innovation &amp; Future-Readiness</strong> – We embrace the latest automotive technologies, including electric vehicles and smart accessories, ensuring that our customers have access to cutting-edge products that meet the evolving demands of modern transportation.</span></li>
-	</ul>
-
-	<h2>Our Commitment to Sustainability</h2>
-	<div class="note-box">
-		<span class="note-icon">🌱</span>
-		<span>
-			At VehicleGearUp, we recognize the importance of sustainability in the automotive industry. We actively seek eco-friendly solutions, from energy-efficient EV accessories to products designed for longevity and reduced environmental impact. By choosing high-quality, durable parts, our customers help reduce waste and contribute to a cleaner, greener future.
-		</span>
+	<div class="stats">
+		<div><b>22</b><span>years as a Master Automobile Technician</span></div>
+		<div><b>2011</b><span>Langham Auto Care opened in Columbus</span></div>
+		<div><b>12+</b><span>apprentice technicians trained</span></div>
+		<div><b>9</b><span>topics covered on this site</span></div>
 	</div>
 
-	<h2>Community &amp; Support</h2>
-	<p>
-		We are more than just a store—we are a community of vehicle enthusiasts who share a passion for performance, adventure, and innovation. Our blog, guides, and social media channels provide tips, tutorials, and inspiration to help you make the most of your vehicle.
-	</p>
-	<p>
-		We encourage our customers to connect, share experiences, and participate in discussions that enrich the vehicle community. Whether it's an off-road adventure, a motorcycle ride, or a truck upgrade project, VehicleGearUp is there to support your journey.
-	</p>
+	<nav class="jump" aria-label="On this page">
+		<a href="#who">Who I am</a><a href="#story">My story</a><a href="#know">What I know</a><a href="#gap">The gap</a><a href="#promise">My promise</a><a href="#find">What you'll find</a><a href="#hello">Say hello</a>
+	</nav>
 
-	<h2>Customer Testimonials</h2>
-	<p>Here's what our customers have to say:</p>
-	<div class="note-box">
-		<span class="note-icon">💬</span>
-		<span><em>"VehicleGearUp has completely transformed my off-road experience. Their UTV parts are top-notch, and the customer service is exceptional."</em> – Jake R.</span>
-	</div>
-	<div class="note-box">
-		<span class="note-icon">💬</span>
-		<span><em>"I found everything I needed for my electric vehicle upgrade in one place. The quality and convenience are unmatched."</em> – Sarah K.</span>
-	</div>
-	<div class="note-box">
-		<span class="note-icon">💬</span>
-		<span><em>"From tires to towing accessories, VehicleGearUp has been my go-to source for years. Highly recommend!"</em> – Marcus L.</span>
-	</div>
+	<!-- ===== 1 Who ===== -->
+	<section id="who" class="sec">
+		<p class="num">01</p>
+		<h2>Hi, I'm Herb.</h2>
+		<p>
+			My name is <strong>Herbert Langham</strong>, though most people just call me Herb. I'm an ASE-Certified Master Technician and the owner of <strong>Langham Auto Care</strong> in Columbus, Ohio. I've spent 22 years under the hood, and I still turn wrenches most days of the week.
+		</p>
+		<p>Away from the shop you'll usually find me with a classic muscle car project, a pile of lumber, a fishing rod, or a NASCAR race on the TV.</p>
+		<ul class="pills">
+			<li>🏎️ Classic muscle car restoration</li><li>🪵 Woodworking</li><li>🎣 Fishing</li><li>🏁 NASCAR</li><li>🎓 Training apprentice mechanics</li>
+		</ul>
+	</section>
 
-	<h2>Our Vision</h2>
-	<p>
-		Looking ahead, VehicleGearUp aims to continue expanding our product range and enhancing our services to meet the growing needs of vehicle enthusiasts. We envision a world where every vehicle owner has access to <strong>reliable, high-quality parts and accessories</strong> that improve performance, safety, and enjoyment.
-	</p>
-	<p>
-		We are committed to innovation, sustainability, and excellence, ensuring that VehicleGearUp remains the trusted choice for <strong>all things vehicles and parts</strong>.
-	</p>
+	<!-- ===== 2 Story ===== -->
+	<section id="story" class="sec">
+		<p class="num">02</p>
+		<h2>How I got here</h2>
+		<p>I didn't start as a master anything. I started in the lube bay, and I worked my way up the same way most good technicians do: one job at a time.</p>
+		<ol class="timeline">
+			<li><b>Lube-bay technician</b><span>Where the basics stick: fluids, filters, and paying attention to what a car is telling you.</span></li>
+			<li><b>ASE Master Technician</b><span>Earned my way up to ASE Master status.</span></li>
+			<li><b>Shop foreman</b><span>Ran the floor at a regional dealership service center.</span></li>
+			<li class="hl"><b>2011: Langham Auto Care</b><span>Opened my own shop in Columbus, Ohio. I'm still the owner and still on the tools.</span></li>
+			<li><b>Training the next crew</b><span>I've trained more than a dozen apprentice technicians.</span></li>
+			<li><b>On the local news</b><span>Occasionally asked to share seasonal car-care advice.</span></li>
+		</ol>
+		<blockquote class="pull">
+			I got tired of watching honest customers get talked into repairs they didn't need. This site is my answer to that.
+		</blockquote>
+	</section>
 
-	<h2>Join the VehicleGearUp Family</h2>
-	<p>
-		Whether you're a seasoned mechanic, an off-road adventurer, or someone who simply loves their ride, VehicleGearUp is here for you. We invite you to explore our extensive product range, benefit from our expert guidance, and experience a shopping journey designed with vehicle enthusiasts in mind.
-	</p>
-	<p>
-		Thank you for choosing VehicleGearUp—where your vehicle's potential meets the perfect parts and accessories. Together, let's <strong>gear up for performance, adventure, and excellence</strong>.
-	</p>
-	<p>Questions or feedback? Visit our <a href="/contact/">Contact page</a>. To see how we earn revenue, read our <a href="/disclosure/">Disclosure</a>.</p>
+	<!-- ===== 3 Know ===== -->
+	<section id="know" class="sec">
+		<p class="num">03</p>
+		<h2>What I actually know</h2>
+		<p>I'd rather be specific than impressive. This is where my hands-on experience is deepest:</p>
+		<div class="cards">
+			<div class="card"><div class="ico" set:html={wrench} /><h3>DIY maintenance &amp; repair</h3><p>Brake jobs, battery swaps, and knowing when a check-engine light is actually serious.</p></div>
+			<div class="card"><div class="ico" set:html={tools} /><h3>Home garage setup &amp; tools</h3><p>Which tools earn their space in a home garage, and which ones just look good on the shelf.</p></div>
+			<div class="card"><div class="ico" set:html={tag} /><h3>Used-car buying</h3><p>What to check, and what to question, before you hand over the money.</p></div>
+			<div class="card"><div class="ico" set:html={doc} /><h3>Reading a repair quote</h3><p>Spotting padded line items and upsells so you only pay for what the car needs.</p></div>
+		</div>
+		<div class="note-box warm">
+			<span class="note-icon">⚠️</span>
+			<span><strong>Where my advice stops.</strong> I can't see your car through a screen. If a job involves airbags, pressurized fuel systems, or high-voltage EV components, or you simply aren't confident, hand it to a qualified shop. Knowing where DIY ends is part of the job.</span>
+		</div>
+	</section>
+
+	<!-- ===== 4 Gap ===== -->
+	<section id="gap" class="sec">
+		<p class="num">04</p>
+		<h2>What I couldn't find</h2>
+		<p>Plenty of car advice is online. Much of it leaves the driver on the wrong side of the counter:</p>
+		<div class="cards">
+			<div class="card"><div class="ico" set:html={question} /><h3>Steps with no reasons</h3><p>Guides tell you which bolt to turn but not why, so you can't tell a needed repair from an upsell.</p></div>
+			<div class="card"><div class="ico" set:html={tools} /><h3>Gear lists, no garage</h3><p>"Best of" roundups that were never tested by someone who works on cars for a living.</p></div>
+			<div class="card"><div class="ico" set:html={doc} /><h3>Nobody checking the quote</h3><p>Lots of advice for mechanics, very little for the driver deciding if a quote is fair.</p></div>
+		</div>
+	</section>
+
+	<!-- ===== 5 Promise ===== -->
+	<section id="promise" class="sec">
+		<p class="num">05</p>
+		<h2>My promise to you</h2>
+		<ul class="checks">
+			<li><span class="tick" set:html={check} /><span><strong>I explain the why.</strong> Every guide covers the reasoning, not just the steps, so you stop getting overcharged.</span></li>
+			<li><span class="tick" set:html={check} /><span><strong>Test it, then explain it plainly.</strong> I won't recommend anything that hasn't earned it.</span></li>
+			<li><span class="tick" set:html={check} /><span><strong>I'll help you read the quote.</strong> You'll know what questions to ask before you say yes.</span></li>
+			<li><span class="tick" set:html={check} /><span><strong>I'm upfront about money.</strong> Some links are affiliate links; see our <a href="/disclosure/">Disclosure</a>. It never changes what I recommend.</span></li>
+		</ul>
+	</section>
+
+	<!-- ===== 6 Plan ===== -->
+	<section id="find" class="sec">
+		<p class="num">06</p>
+		<h2>What you'll find here</h2>
+		<p>
+			Vehicle GearUp is for everyday car owners who want to save money on maintenance and avoid shop upsells. Expect step-by-step repair guides, tool and gear reviews, buying guides, and plain-English troubleshooting across nine topics:
+		</p>
+		<div class="topics">
+			{
+				topics.map((t) => {
+					const Tag = t.count ? 'a' : 'div';
+					return (
+						<Tag class="topic" href={t.count ? t.href : undefined} style={`--c1:${t.c1};--c2:${t.c2}`}>
+							<span class="t-ico" set:html={t.icon} />
+							<span class="t-name">{t.name}</span>
+							<span class="t-count">{t.count ? `${t.count} ${t.count === 1 ? 'guide' : 'guides'} →` : 'Coming soon'}</span>
+						</Tag>
+					);
+				})
+			}
+		</div>
+	</section>
+
+	<!-- ===== 7 Finish ===== -->
+	<section id="hello" class="cta">
+		<h2>Pull up a stool.</h2>
+		<p>You're not just reading a lecture, you're joining the conversation. Start with the latest guides, and if you've got a question about your car, send it my way.</p>
+		<div class="actions">
+			<a class="btn btn-primary" href="/#latest">Read the latest guides</a>
+			<a class="btn btn-ghost" href="/contact/">Contact us</a>
+		</div>
+		<p class="small">Or email <a href="mailto:support@vehiclegearup.com">support@vehiclegearup.com</a></p>
+	</section>
 </StaticPage>
+
+<style>
+	.hero {
+		position: relative; overflow: hidden; border-radius: 24px; color: #f3f6fb; padding: 3rem 2.6rem 3.6rem; margin-bottom: 1.2rem;
+		display: grid; grid-template-columns: minmax(0, 1.2fr) minmax(0, 0.8fr); gap: 2.4rem; align-items: center;
+		background:
+			radial-gradient(ellipse 55% 70% at 8% 105%, rgba(255, 176, 32, 0.22), transparent 65%),
+			radial-gradient(ellipse 45% 60% at 92% 0%, rgba(80, 160, 255, 0.18), transparent 65%),
+			linear-gradient(160deg, #0c131d 0%, #111c2b 60%, #172334 100%);
+	}
+	.hero::after { content: ''; position: absolute; left: 0; right: 0; bottom: 1.2rem; height: 4px; opacity: 0.55; background: repeating-linear-gradient(90deg, var(--amber) 0 38px, transparent 38px 76px); }
+	.eyebrow { margin: 0 0 0.4rem; font-size: 0.8rem; letter-spacing: 0.16em; text-transform: uppercase; color: var(--amber); font-weight: 700; }
+	.hero h1 { font-family: var(--display); font-size: clamp(2.5rem, 5.2vw, 4rem); line-height: 1.03; margin: 0 0 0.45em; color: #fff; }
+	.hero h1 span { color: var(--amber); }
+	.lead { color: #b4c0d2; font-size: 1.08rem; line-height: 1.6; margin: 0 0 1.6rem; max-width: 48ch; }
+	.lead strong { color: #fff; }
+	.actions { display: flex; flex-wrap: wrap; gap: 0.8rem; }
+	.btn { display: inline-block; padding: 0.75rem 1.5rem; border-radius: 10px; font-weight: 700; font-size: 0.97rem; text-decoration: none; box-shadow: none !important; transition: transform 0.15s ease, background 0.15s ease; }
+	.btn:hover { transform: translateY(-2px); }
+	.btn-primary { background: var(--amber); color: #1b1303 !important; }
+	.btn-primary:hover { background: #ffc24d; }
+	.btn-ghost { color: #fff !important; border: 1.5px solid rgba(255, 255, 255, 0.35); }
+	.btn-ghost:hover { background: rgba(255, 255, 255, 0.1); }
+
+	.author { margin: 0; position: relative; z-index: 1; text-align: center; }
+	.author img { width: min(260px, 100%); aspect-ratio: 1; object-fit: cover; border-radius: 50%; border: 5px solid var(--amber); box-shadow: 0 0 0 10px rgba(255, 176, 32, 0.15), 0 20px 40px rgba(0, 0, 0, 0.4); }
+	.author figcaption { display: grid; gap: 0.15rem; margin-top: 1.3rem; }
+	.author strong { font-family: var(--display); font-size: 1.6rem; color: #fff; }
+	.author span { color: #b4c0d2; font-size: 0.92rem; line-height: 1.4; }
+	.author em { color: var(--amber); font-style: normal; font-size: 0.9rem; }
+
+	.stats { display: grid; grid-template-columns: repeat(4, 1fr); gap: 0.8rem; margin-bottom: 1.8rem; }
+	.stats div { background: rgb(var(--card)); border: 1px solid rgba(var(--gray), 0.22); border-radius: 14px; padding: 1rem; text-align: center; }
+	.stats b { display: block; font-family: var(--display); font-size: 2.3rem; line-height: 1; color: #c47d00; }
+	:global(:root[data-theme='dark']) .stats b { color: var(--amber); }
+	.stats span { font-size: 0.8rem; line-height: 1.35; color: rgb(var(--gray)); display: block; margin-top: 0.3rem; }
+
+	.jump { display: flex; flex-wrap: wrap; gap: 0.5rem; justify-content: center; margin-bottom: 1rem; }
+	.jump a { font-size: 0.85rem; text-decoration: none; padding: 0.35rem 0.85rem; border-radius: 999px; background: rgb(var(--gray-light)); color: rgb(var(--black)); box-shadow: none; }
+	.jump a:hover { background: var(--amber); color: #1b1303; box-shadow: none; }
+	html { scroll-behavior: smooth; }
+
+	.sec { max-width: 760px; margin: 3.2rem auto 0; scroll-margin-top: 1rem; }
+	.sec h2 { font-family: var(--display); font-size: clamp(1.9rem, 3.6vw, 2.5rem); margin: 0 0 0.5em; padding: 0; border: 0; }
+	.sec p { line-height: 1.7; }
+	.num { font-family: var(--display); font-weight: 700; font-size: 1rem; letter-spacing: 0.12em; color: #c47d00; margin: 0 0 0.2rem; }
+	:global(:root[data-theme='dark']) .num { color: var(--amber); }
+	.sec .cards { margin-bottom: 1.5rem; }
+
+	.pills { display: flex; flex-wrap: wrap; gap: 0.5rem; list-style: none; padding: 0 !important; margin: 1.2rem 0 0; }
+	.pills li { margin: 0; font-size: 0.88rem; padding: 0.4rem 0.9rem; border-radius: 999px; background: rgb(var(--gray-light)); }
+
+	.timeline { list-style: none; padding: 0 !important; margin: 1.6rem 0; border-left: 3px solid rgba(var(--gray), 0.3); margin-left: 0.5rem; }
+	.timeline li { position: relative; padding: 0 0 1.3rem 1.6rem; margin: 0; }
+	.timeline li::before { content: ''; position: absolute; left: -9px; top: 0.4rem; width: 15px; height: 15px; border-radius: 50%; background: rgb(var(--card)); border: 3px solid var(--amber); }
+	.timeline li.hl::before { background: var(--amber); box-shadow: 0 0 0 5px rgba(255, 176, 32, 0.25); }
+	.timeline b { display: block; font-size: 1.05rem; color: rgb(var(--black)); }
+	.timeline span { font-size: 0.95rem; color: rgb(var(--gray)); line-height: 1.5; display: block; }
+	.pull { margin: 2rem 0 0; padding: 1.4rem 1.6rem; border-radius: 16px; font-family: var(--display); font-size: clamp(1.4rem, 3vw, 1.8rem); line-height: 1.25; color: #fff; border-left: 6px solid var(--amber); background: linear-gradient(160deg, #0c131d, #172334); }
+
+	.checks { list-style: none; padding: 0 !important; margin: 1.2rem 0 0; display: grid; gap: 0.8rem; }
+	.checks li { display: flex; gap: 0.9rem; align-items: flex-start; margin: 0; background: rgb(var(--card)); border: 1px solid rgba(var(--gray), 0.22); border-radius: 14px; padding: 1rem 1.2rem; line-height: 1.55; font-size: 0.97rem; }
+	.tick { flex: none; width: 28px; height: 28px; border-radius: 50%; display: grid; place-items: center; background: var(--amber); color: #1b1303; }
+	.tick :global(svg) { width: 16px; height: 16px; }
+
+	.topics { display: grid; grid-template-columns: repeat(auto-fill, minmax(215px, 1fr)); gap: 0.9rem; margin-top: 1.5rem; }
+	.sec:has(.topics) { max-width: none; }
+	.sec:has(.topics) > p, .sec:has(.topics) > h2, .sec:has(.topics) > .num { max-width: 760px; }
+	.topic { display: grid; gap: 0.5rem; align-content: start; padding: 1.2rem; border-radius: 16px; color: #fff !important; text-decoration: none; background: linear-gradient(145deg, var(--c1), var(--c2)); box-shadow: none !important; transition: transform 0.15s ease; min-height: 150px; }
+	a.topic:hover { transform: translateY(-3px); }
+	div.topic { opacity: 0.8; }
+	.t-ico { width: 40px; height: 40px; border-radius: 11px; display: grid; place-items: center; background: rgba(255, 255, 255, 0.18); }
+	.t-ico :global(svg) { width: 22px; height: 22px; }
+	.t-name { font-family: var(--display); font-size: 1.3rem; line-height: 1.1; font-weight: 700; }
+	.t-count { font-size: 0.8rem; opacity: 0.85; align-self: end; }
+
+	.cta { margin-top: 3.8rem; padding: 2.6rem 2rem; border-radius: 24px; text-align: center; color: #f3f6fb; position: relative; overflow: hidden; background: radial-gradient(ellipse 60% 90% at 50% 120%, rgba(255, 176, 32, 0.28), transparent 70%), linear-gradient(160deg, #0c131d, #172334); }
+	.cta h2 { font-family: var(--display); color: #fff; font-size: clamp(2rem, 4vw, 2.8rem); border: 0; padding: 0; margin: 0 0 0.4em; }
+	.cta p { max-width: 52ch; margin: 0 auto 1.5rem; color: #b4c0d2; }
+	.cta .actions { justify-content: center; }
+	.cta .small { margin: 1.2rem 0 0; font-size: 0.9rem; }
+	.cta .small a { color: var(--amber) !important; }
+
+	@media (max-width: 800px) {
+		.hero { grid-template-columns: 1fr; padding: 2.2rem 1.4rem 3rem; }
+		.author { order: -1; }
+		.author img { width: 170px; }
+		.stats { grid-template-columns: repeat(2, 1fr); }
+	}
+</style>

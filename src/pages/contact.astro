@@ -4,15 +4,48 @@ import StaticPage from '../layouts/StaticPage.astro';
 
 <StaticPage
 	title="Contact Us"
-	description="Get in touch with the VehicleGearUp team with questions about our content, product guides, support, or feedback."
-	icon="📬"
+	description="Contact the Vehicle GearUp team with car-care questions, corrections, feedback, or collaboration ideas."
+	icon="mail"
+	accent="teal"
+	eyebrow="Let's talk cars"
+	lead="Got a question, a correction, or an idea? Send it over. A real person reads every message."
 >
-	<p>
-		We love hearing from our customers, enthusiasts, and partners! Whether you have questions about our products, need support, or just want to share your feedback, the team at <strong>VehicleGearUp</strong> is here to help.
-	</p>
+	<div class="mail-card">
+		<div>
+			<p class="k">Email us</p>
+			<a class="addr" href="mailto:support@vehiclegearup.com">support@vehiclegearup.com</a>
+		</div>
+		<a class="go" href="mailto:support@vehiclegearup.com?subject=Question%20from%20Vehicle%20GearUp">Write a message →</a>
+	</div>
 
-	<h2>Email</h2>
-	<p>
-		The fastest way to reach us is by email: <a href="mailto:support@vehiclegearup.com">support@vehiclegearup.com</a>
-	</p>
+	<h2>What can we help with?</h2>
+	<div class="cards">
+		<div class="card"><div class="ico">🔧</div><h3>Car-care questions</h3><p>Stuck on a repair or a quote that doesn't feel right? Tell us what's going on.</p></div>
+		<div class="card"><div class="ico">✏️</div><h3>Corrections</h3><p>Spotted something outdated or wrong in a guide? We want to fix it fast.</p></div>
+		<div class="card"><div class="ico">🤝</div><h3>Collaborations</h3><p>Speaking, partnerships, or product ideas? Send the details and we'll take a look.</p></div>
+	</div>
+
+	<h2>Help us help you</h2>
+	<p>If you're writing about a vehicle problem, include as much of this as you can:</p>
+	<ul>
+		<li><strong>Year, make, model, and engine</strong> of the vehicle</li>
+		<li><strong>What's happening</strong>: the symptom, when it started, and any warning lights</li>
+		<li><strong>What you've already tried</strong> or been quoted</li>
+	</ul>
+
+	<div class="note-box">
+		<span class="note-icon">ℹ️</span>
+		<span>
+			We can't diagnose a car over email or give an exact repair price, and we don't sell parts or take orders. For anything about an order, shipping, or returns, please contact the retailer directly. See also our <a href="/disclosure/">Disclosure</a>.
+		</span>
+	</div>
 </StaticPage>
+
+<style>
+	.mail-card { display: flex; flex-wrap: wrap; gap: 1rem; align-items: center; justify-content: space-between; padding: 1.5rem 1.7rem; border-radius: 18px; background: rgb(var(--card)); border: 1px solid rgba(var(--gray), 0.22); border-left: 6px solid var(--pg); }
+	.k { margin: 0; font-size: 0.8rem; letter-spacing: 0.12em; text-transform: uppercase; color: rgb(var(--gray)); font-weight: 700; }
+	.addr { font-size: clamp(1.1rem, 3.4vw, 1.5rem); font-weight: 700; word-break: break-all; }
+	.go { background: var(--pg); color: #04201a !important; padding: 0.7rem 1.4rem; border-radius: 10px; font-weight: 700; text-decoration: none; box-shadow: none !important; }
+	.go:hover { filter: brightness(1.1); }
+	.card .ico { font-size: 1.3rem; }
+</style>

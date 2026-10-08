@@ -1,28 +1,37 @@
 ---
 import StaticPage from '../layouts/StaticPage.astro';
 
-const lastUpdated = 'October 5, 2026';
+const lastUpdated = 'October 8, 2026';
 ---
 
 <StaticPage
 	title="Terms & Conditions"
-	description="The terms and conditions governing your use of the VehicleGearUp website."
-	icon="📜"
+	description="The terms and conditions governing your use of the Vehicle GearUp website."
+	icon="scroll"
+	accent="blue"
+	eyebrow="The ground rules"
+	lead="Simple rules for using this site. Please read them before you rely on our guides."
+	updated={lastUpdated}
+	toc
 >
-	<p class="updated" style="margin-top:-1rem;">Last updated: {lastUpdated}</p>
+	<div class="cards">
+		<div class="card"><div class="ico">📖</div><h3>Information only</h3><p>Guides are general advice, not professional repair service.</p></div>
+		<div class="card"><div class="ico">🔗</div><h3>Affiliate links</h3><p>We may earn commissions, at no extra cost to you.</p></div>
+		<div class="card"><div class="ico">©️</div><h3>Our content</h3><p>Please don't copy it without written permission.</p></div>
+	</div>
 
 	<p>
-		Welcome to <strong>VehicleGearUp</strong>. By accessing or using our website, you agree to comply with and be bound by the following <strong>Terms &amp; Conditions</strong>. Please read them carefully before using our services.
+		Welcome to <strong>Vehicle GearUp</strong>. By accessing or using our website, you agree to comply with and be bound by the following <strong>Terms &amp; Conditions</strong>. Please read them carefully before using our services.
 	</p>
 
 	<h2>1. Acceptance of terms</h2>
 	<p>
-		By visiting VehicleGearUp (www.vehiclegearup.com) or using our products, services, or content, you acknowledge that you have read, understood, and agree to be bound by these Terms &amp; Conditions, our <a href="/privacy-policy/"><strong>Privacy Policy</strong></a>, and our <a href="/disclosure/"><strong>Disclosure</strong></a>. If you do not agree to these terms, please do not use our website.
+		By visiting Vehicle GearUp (vehiclegearup.com) or using our content, you acknowledge that you have read, understood, and agree to be bound by these Terms &amp; Conditions, our <a href="/privacy-policy/"><strong>Privacy Policy</strong></a>, and our <a href="/disclosure/"><strong>Disclosure</strong></a>. If you do not agree to these terms, please do not use our website.
 	</p>
 
 	<h2>2. Use of the website</h2>
 	<p>
-		VehicleGearUp provides information, guides, and product recommendations related to <strong>vehicles, parts, and accessories</strong>. You agree to use the website only for lawful purposes and in a way that does not infringe upon the rights of others, restrict, or inhibit anyone else's use of the website.
+		Vehicle GearUp provides information, guides, and product recommendations related to <strong>vehicles, parts, tools, and accessories</strong>. You agree to use the website only for lawful purposes and in a way that does not infringe upon the rights of others, restrict, or inhibit anyone else's use of the website.
 	</p>
 	<p>You must not:</p>
 	<ul>
@@ -33,41 +42,39 @@ const lastUpdated = 'October 5, 2026';
 
 	<h2>3. Affiliate links &amp; commissions</h2>
 	<p>
-		VehicleGearUp participates in affiliate programs. Some links on our website may earn us a <strong>commission</strong> if you make a purchase through them. These commissions are at no extra cost to you.
+		Vehicle GearUp participates in affiliate programs. Some links on our website may earn us a <strong>commission</strong> if you make a purchase through them. These commissions are at no extra cost to you.
 	</p>
 	<p>
 		We only recommend products we believe are <strong>high-quality and valuable</strong>. Affiliate relationships do not influence our reviews or content. Please read our <a href="/disclosure/"><strong>Disclosure</strong></a> page for more details.
 	</p>
 
-	<h2>4. Product information</h2>
+	<h2>4. DIY &amp; safety disclaimer</h2>
 	<p>
-		While we strive to provide accurate and up-to-date information about products, VehicleGearUp does not guarantee the <strong>completeness, reliability, or accuracy</strong> of any product descriptions, pricing, or availability.
-	</p>
-	<p>
-		All product purchases are made directly from the manufacturer, retailer, or service provider. VehicleGearUp is <strong>not responsible</strong> for any issues arising from purchases, including shipping, returns, or warranties.
+		Vehicle repair and maintenance carry real risk. Our guides are general information and are <strong>not a substitute for professional service</strong> or your vehicle's service manual. You are responsible for deciding whether a task is safe for you to perform, and for using proper tools and safety equipment. If you are unsure, consult a qualified technician.
 	</p>
 
-	<h2>5. User-generated content</h2>
+	<h2>5. Product information</h2>
 	<p>
-		Users may submit comments, reviews, or feedback on VehicleGearUp. By submitting content, you grant VehicleGearUp a <strong>non-exclusive, worldwide, royalty-free license</strong> to use, modify, reproduce, and display your content on the website.
+		While we strive to provide accurate and up-to-date information about products, Vehicle GearUp does not guarantee the <strong>completeness, reliability, or accuracy</strong> of any product descriptions, pricing, or availability.
 	</p>
-	<p>You agree not to post content that is:</p>
-	<ul>
-		<li>Illegal, offensive, or defamatory</li>
-		<li>Infringing on intellectual property rights</li>
-		<li>Spam or promotional in nature</li>
-	</ul>
-	<p>VehicleGearUp reserves the right to remove any content at its discretion.</p>
-
-	<h2>6. Intellectual property</h2>
 	<p>
-		All content on VehicleGearUp, including text, images, graphics, logos, and videos, is the <strong>property of VehicleGearUp</strong> or its content partners and is protected by copyright laws.
+		All product purchases are made directly from the manufacturer, retailer, or service provider. Vehicle GearUp is <strong>not responsible</strong> for any issues arising from purchases, including shipping, returns, or warranties.
 	</p>
-	<p>You may not copy, reproduce, or distribute content from VehicleGearUp without <strong>prior written permission</strong>.</p>
 
-	<h2>7. Limitation of liability</h2>
+	<h2>6. Feedback you send us</h2>
 	<p>
-		VehicleGearUp is a platform for information, guides, and product recommendations. By using the website, you agree that VehicleGearUp <strong>will not be liable</strong> for any direct, indirect, incidental, or consequential damages arising from:
+		If you send us feedback, corrections, or suggestions, you grant Vehicle GearUp a <strong>non-exclusive, worldwide, royalty-free license</strong> to use them to improve the website. Please don't send anything illegal, defamatory, or infringing.
+	</p>
+
+	<h2>7. Intellectual property</h2>
+	<p>
+		All content on Vehicle GearUp, including text, images, graphics, logos, and videos, is the <strong>property of Vehicle GearUp</strong> or its content partners and is protected by copyright laws.
+	</p>
+	<p>You may not copy, reproduce, or distribute content from Vehicle GearUp without <strong>prior written permission</strong>.</p>
+
+	<h2>8. Limitation of liability</h2>
+	<p>
+		Vehicle GearUp is a platform for information, guides, and product recommendations. By using the website, you agree that Vehicle GearUp <strong>will not be liable</strong> for any direct, indirect, incidental, or consequential damages arising from:
 	</p>
 	<ul>
 		<li>The use or inability to use the website</li>
@@ -75,28 +82,28 @@ const lastUpdated = 'October 5, 2026';
 		<li>Errors or omissions in content or product information</li>
 	</ul>
 
-	<h2>8. Indemnification</h2>
+	<h2>9. Indemnification</h2>
 	<p>
-		You agree to indemnify and hold VehicleGearUp, its affiliates, employees, and partners harmless from any claims, damages, losses, or expenses arising from your use of the website, violation of these Terms &amp; Conditions, or infringement of any rights.
+		You agree to indemnify and hold Vehicle GearUp, its affiliates, employees, and partners harmless from any claims, damages, losses, or expenses arising from your use of the website, violation of these Terms &amp; Conditions, or infringement of any rights.
 	</p>
 
-	<h2>9. External links</h2>
+	<h2>10. External links</h2>
 	<p>
-		VehicleGearUp may contain links to external websites. We <strong>do not control or endorse</strong> the content, products, or services of these sites. Accessing these links is at your own risk, and VehicleGearUp is not responsible for any damages or losses resulting from their use.
+		Vehicle GearUp may contain links to external websites. We <strong>do not control or endorse</strong> the content, products, or services of these sites. Accessing these links is at your own risk, and Vehicle GearUp is not responsible for any damages or losses resulting from their use.
 	</p>
 
-	<h2>10. Privacy</h2>
+	<h2>11. Privacy</h2>
 	<p>
-		Your use of VehicleGearUp is also governed by our <a href="/privacy-policy/"><strong>Privacy Policy</strong></a>, which explains how we collect, use, and protect your personal information. Please review it carefully.
+		Your use of Vehicle GearUp is also governed by our <a href="/privacy-policy/"><strong>Privacy Policy</strong></a>, which explains how we collect, use, and protect your personal information. Please review it carefully.
 	</p>
 
-	<h2>11. Changes to Terms &amp; Conditions</h2>
+	<h2>12. Changes to Terms &amp; Conditions</h2>
 	<p>
-		VehicleGearUp reserves the right to <strong>modify, update, or revise</strong> these Terms &amp; Conditions at any time without prior notice. Changes will be effective immediately upon posting. Your continued use of the website constitutes acceptance of any updated terms.
+		Vehicle GearUp reserves the right to <strong>modify, update, or revise</strong> these Terms &amp; Conditions at any time without prior notice. Changes will be effective immediately upon posting. Your continued use of the website constitutes acceptance of any updated terms.
 	</p>
 
-	<h2>12. Governing law</h2>
+	<h2>13. Governing law</h2>
 	<p>
-		These Terms &amp; Conditions are governed by and interpreted in accordance with the laws of the country in which VehicleGearUp operates. Any disputes arising from the use of the website will be subject to the exclusive jurisdiction of the relevant courts.
+		These Terms &amp; Conditions are governed by and interpreted in accordance with the laws of the State of Ohio, United States. Any disputes arising from the use of the website will be subject to the exclusive jurisdiction of the relevant courts.
 	</p>
 </StaticPage>

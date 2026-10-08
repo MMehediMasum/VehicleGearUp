@@ -1,25 +1,35 @@
 ---
 import StaticPage from '../layouts/StaticPage.astro';
 
-const lastUpdated = 'October 5, 2026';
+const lastUpdated = 'October 8, 2026';
 ---
 
 <StaticPage
 	title="Disclosure"
-	description="VehicleGearUp's disclosure covering affiliate links, product reviews, sponsored content, and external links."
-	icon="💰"
+	description="Vehicle GearUp's disclosure covering affiliate links, product reviews, sponsored content, and DIY safety."
+	icon="coin"
+	accent="gold"
+	eyebrow="Full transparency"
+	lead="How this site earns money, and why it never changes what we recommend."
+	updated={lastUpdated}
+	toc
 >
-	<p class="updated" style="margin-top:-1rem;">Last updated: {lastUpdated}</p>
+	<div class="cards">
+		<div class="card"><div class="ico">💵</div><h3>Affiliate links</h3><p>We may earn a small commission if you buy through a link.</p></div>
+		<div class="card"><div class="ico">💲</div><h3>Same price for you</h3><p>It never costs you extra.</p></div>
+		<div class="card"><div class="ico">🧰</div><h3>Honest picks</h3><p>Commissions don't decide what we recommend.</p></div>
+	</div>
 
 	<p>
-		At <strong>VehicleGearUp</strong>, transparency and honesty are the cornerstones of our relationship with our customers. We believe it is important for you to understand how our website operates, how we earn revenue, and how we provide recommendations for products and services.
+		At <strong>Vehicle GearUp</strong>, transparency and honesty are the cornerstones of our relationship with our customers. We believe it is important for you to understand how our website operates, how we earn revenue, and how we provide recommendations for products and services.
 	</p>
 
 	<h2>Affiliate disclosure</h2>
+	<p><strong>Vehicle GearUp is a participant in the Amazon Services LLC Associates Program.</strong> As an Amazon Associate, we earn from qualifying purchases.</p>
 	<div class="note-box">
 		<span class="note-icon">💵</span>
 		<span>
-			Some of the links on VehicleGearUp are affiliate links. This means that if you click on a link and make a purchase, we may earn a small commission <strong>at no additional cost to you</strong>.
+			Some of the links on Vehicle GearUp are affiliate links. This means that if you click on a link and make a purchase, we may earn a small commission <strong>at no additional cost to you</strong>.
 		</span>
 	</div>
 	<p>
@@ -31,40 +41,47 @@ const lastUpdated = 'October 5, 2026';
 
 	<h2>Product reviews &amp; recommendations</h2>
 	<p>
-		VehicleGearUp provides in-depth product reviews, guides, and comparisons across a wide range of <strong>vehicles and parts</strong>, including:
+		Vehicle GearUp provides in-depth product reviews, guides, and comparisons across a wide range of <strong>vehicles and parts</strong>, including:
 	</p>
 	<ul>
-		<li>ATV, UTV, and off-road parts</li>
-		<li>Batteries and electrical components</li>
-		<li>Interior upgrades and accessories</li>
-		<li>Electric vehicle (EV) accessories</li>
+		<li>Batteries and charging</li>
+		<li>Car care, detailing, and interior</li>
+		<li>Electronics, dashboard, and lighting</li>
+		<li>Engine, fuel, and performance</li>
+		<li>Keys, locks, and security</li>
+		<li>Maintenance, brakes, and suspension</li>
 		<li>Tires and wheels</li>
-		<li>Performance upgrades</li>
-		<li>Trailer and towing solutions</li>
-		<li>Motorcycle and truck parts</li>
+		<li>Truck, towing, and exterior gear</li>
+		<li>Vehicle types and buying guides</li>
 	</ul>
 	<p>
 		All product information is based on research, manufacturer specifications, and firsthand experience where possible. We aim to give you accurate, honest, and useful insights so you can make informed purchasing decisions.
 	</p>
 
+	<h2>DIY &amp; safety</h2>
+	<div class="note-box">
+		<span class="note-icon">⚠️</span>
+		<span>Our guides are general information, not a substitute for professional service. Work on brakes, fuel systems, airbags, and high-voltage components can cause injury. If you're unsure, take the vehicle to a qualified shop.</span>
+	</div>
+
 	<h2>Sponsorships &amp; partnerships</h2>
 	<p>
-		VehicleGearUp may occasionally feature sponsored content or paid promotions. When this occurs, it will always be clearly disclosed. Our commitment is to ensure that sponsored content does not compromise the quality or reliability of the information we provide.
+		Vehicle GearUp may occasionally feature sponsored content or paid promotions. When this occurs, it will always be clearly disclosed. Our commitment is to ensure that sponsored content does not compromise the quality or reliability of the information we provide.
 	</p>
 
 	<h2>External links</h2>
 	<p>
-		Our website may contain links to external websites, including partner retailers and manufacturers. VehicleGearUp is not responsible for the content, privacy policies, or practices of these external sites. We encourage you to read their terms and policies before making any purchases or sharing personal information. See also our <a href="/privacy-policy/">Privacy Policy</a> and <a href="/terms/">Terms &amp; Conditions</a>.
+		Our website may contain links to external websites, including partner retailers and manufacturers. Vehicle GearUp is not responsible for the content, privacy policies, or practices of these external sites. We encourage you to read their terms and policies before making any purchases or sharing personal information. See also our <a href="/privacy-policy/">Privacy Policy</a> and <a href="/terms/">Terms &amp; Conditions</a>.
 	</p>
 
 	<h2>Transparency &amp; trust</h2>
 	<p>
-		We value your trust above all else. All content, reviews, and recommendations on VehicleGearUp are created with the intention of helping you <strong>make better decisions about vehicle parts and accessories</strong>. We never promote products solely for profit, and our goal is to provide value to our audience first.
+		We value your trust above all else. All content, reviews, and recommendations on Vehicle GearUp are created with the intention of helping you <strong>make better decisions about vehicle parts and accessories</strong>. We never promote products solely for profit, and our goal is to provide value to our audience first.
 	</p>
 	<div class="note-box warm">
 		<span class="note-icon">🤝</span>
 		<span>
-			By using our website, you acknowledge and agree to this disclosure. VehicleGearUp is committed to full transparency and will update this page as needed to reflect changes in our practices or partnerships.
+			By using our website, you acknowledge and agree to this disclosure. Vehicle GearUp is committed to full transparency and will update this page as needed to reflect changes in our practices or partnerships.
 		</span>
 	</div>
 </StaticPage>

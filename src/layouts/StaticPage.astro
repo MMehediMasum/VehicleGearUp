@@ -6,228 +6,182 @@ import Footer from '../components/Footer.astro';
 interface Props {
 	title: string;
 	description: string;
-	icon?: string;
+	icon?: 'car' | 'mail' | 'lock' | 'coin' | 'scroll';
+	accent?: 'amber' | 'teal' | 'violet' | 'gold' | 'blue';
+	eyebrow?: string;
+	lead?: string;
+	updated?: string;
+	toc?: boolean;
+	variant?: 'default' | 'bare'; // bare = page supplies its own hero (About)
 }
 
-const { title, description, icon = '🐾' } = Astro.props;
+const { title, description, icon = 'car', accent = 'amber', eyebrow, lead, updated, toc = false, variant = 'default' } = Astro.props;
 
-const relatedPages = [
+const accents = {
+	amber: ['#ffb020', '#1b2a44'],
+	teal: ['#14a37f', '#08372f'],
+	violet: ['#8b6cf0', '#321a63'],
+	gold: ['#e39a14', '#5a3205'],
+	blue: ['#2f9bd8', '#122b63'],
+};
+const [pg, pgDark] = accents[accent];
+
+const s = (inner: string) =>
+	`<svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="1.8" stroke-linecap="round" stroke-linejoin="round" aria-hidden="true">${inner}</svg>`;
+const icons = {
+	car: s('<path d="M3 13l2-6h14l2 6v5H3z"/><circle cx="7.5" cy="18" r="1.8"/><circle cx="16.5" cy="18" r="1.8"/>'),
+	mail: s('<rect x="3" y="5" width="18" height="14" rx="2"/><path d="M3 7l9 6 9-6"/>'),
+	lock: s('<rect x="4" y="11" width="16" height="10" rx="2"/><path d="M8 11V7a4 4 0 0 1 8 0v4"/>'),
+	coin: s('<circle cx="12" cy="12" r="9"/><path d="M14.5 9.2c-.5-.8-1.4-1.2-2.5-1.2-1.4 0-2.5.7-2.5 1.8s1 1.5 2.5 1.9 2.5.8 2.5 1.9-1.1 1.9-2.5 1.9c-1.1 0-2-.5-2.5-1.3M12 6v2M12 16v2"/>'),
+	scroll: s('<path d="M8 3h9a2 2 0 0 1 2 2v14a2 2 0 0 1-2 2H7a2 2 0 0 1-2-2V6"/><path d="M5 6a3 3 0 0 1 3-3v14M10 9h6M10 13h6"/>'),
+};
+
+const pages = [
 	{ href: '/', label: 'Home', icon: '🏠' },
-	{ href: '/about/', label: 'About Us', icon: '🐾' },
+	{ href: '/about/', label: 'About', icon: '🚗' },
 	{ href: '/contact/', label: 'Contact', icon: '📬' },
 	{ href: '/privacy-policy/', label: 'Privacy Policy', icon: '🔒' },
 	{ href: '/disclosure/', label: 'Disclosure', icon: '💰' },
 	{ href: '/terms/', label: 'Terms', icon: '📜' },
-].filter((p) => p.label !== title);
+];
+const here = Astro.url.pathname.replace(/\/?$/, '/');
+const relatedPages = pages.filter((p) => p.href !== here);
 ---
 
 <!doctype html>
 <html lang="en">
 	<head>
 		<BaseHead title={title} description={description} />
+		<link rel="preconnect" href="https://fonts.googleapis.com" />
+		<link rel="preconnect" href="https://fonts.gstatic.com" crossorigin />
+		<link href="https://fonts.googleapis.com/css2?family=Barlow+Condensed:wght@600;700&display=swap" rel="stylesheet" />
+		<slot name="head" />
+		<style is:global>
+			:root { --card: 255, 255, 255; --display: 'Barlow Condensed', 'Oswald', 'Arial Narrow', sans-serif; --amber: #ffb020; }
+			:root[data-theme='dark'] { --card: 22, 27, 38; }
+		</style>
 		<style>
-			main {
-				width: min(720px, 90vw);
-				margin: 0 auto;
-				padding: 2.5rem 0 4rem;
+			main { width: min(var(--w, 760px), 92vw); margin: 0 auto; padding: 1.5rem 0 4rem; }
+			main.bare { --w: 1100px; }
+
+			/* ---------- Hero (always dark, like the home page) ---------- */
+			.pg-hero {
+				position: relative; overflow: hidden; color: #f3f6fb;
+				border-radius: 24px; padding: 2.8rem 2.4rem 3.4rem; margin-bottom: 2.2rem;
+				background:
+					radial-gradient(ellipse 60% 80% at 100% 0%, color-mix(in srgb, var(--pg) 38%, transparent), transparent 65%),
+					linear-gradient(155deg, #0c131d 0%, var(--pg-dark) 130%);
 			}
-			.page-icon {
-				width: 56px;
-				height: 56px;
-				border-radius: 50%;
-				background: rgb(var(--gray-light));
-				display: flex;
-				align-items: center;
-				justify-content: center;
-				font-size: 1.7rem;
-				margin-bottom: 1rem;
+			.pg-hero::after {
+				content: ''; position: absolute; left: 0; right: 0; bottom: 1.1rem; height: 4px; opacity: 0.55;
+				background: repeating-linear-gradient(90deg, var(--pg) 0 38px, transparent 38px 76px);
 			}
-			.page-title {
-				font-size: clamp(1.8rem, 3.5vw, 2.4rem);
-				margin-bottom: 0.3em;
+			.pg-badge {
+				width: 60px; height: 60px; border-radius: 16px; display: grid; place-items: center; color: #0c131d;
+				background: var(--pg); margin-bottom: 1.1rem; box-shadow: 0 8px 24px color-mix(in srgb, var(--pg) 45%, transparent);
 			}
-			.updated {
-				color: rgb(var(--gray));
-				font-size: 0.9rem;
-				margin-bottom: 2.5rem;
+			.pg-badge :global(svg) { width: 30px; height: 30px; }
+			.eyebrow { margin: 0 0 0.3rem; font-size: 0.8rem; letter-spacing: 0.16em; text-transform: uppercase; color: var(--pg); font-weight: 700; }
+			.pg-hero h1 { font-family: var(--display); font-weight: 700; font-size: clamp(2.2rem, 5vw, 3.4rem); line-height: 1.05; margin: 0 0 0.4em; color: #fff; }
+			.pg-hero .lead { margin: 0 0 1.1rem; max-width: 52ch; color: #b4c0d2; font-size: 1.05rem; line-height: 1.6; }
+			.chip { display: inline-block; font-size: 0.8rem; padding: 0.3rem 0.8rem; border-radius: 999px; background: rgba(255,255,255,0.1); color: #dfe6f1; }
+
+			/* ---------- On-this-page chips ---------- */
+			.toc { display: flex; flex-wrap: wrap; gap: 0.5rem; margin: 0 0 2rem; }
+			.toc :global(a) {
+				font-size: 0.82rem; text-decoration: none; padding: 0.3rem 0.75rem; border-radius: 999px;
+				background: rgb(var(--gray-light)); color: rgb(var(--black)); box-shadow: none;
 			}
+			.toc :global(a:hover) { background: var(--pg); color: #0c131d; box-shadow: none; }
+
+			/* ---------- Article typography ---------- */
 			.static-page :global(h2) {
-				font-size: 1.35rem;
-				margin-top: 2.2em;
-				margin-bottom: 0.6em;
-				padding-left: 0.7em;
-				border-left: 4px solid var(--accent);
+				font-size: 1.3rem; margin: 2.2em 0 0.6em; padding-left: 0.7em; border-left: 4px solid var(--pg); scroll-margin-top: 1rem;
 			}
-			.static-page :global(h3) {
-				font-size: 1.1rem;
-				margin-top: 1.6em;
-				margin-bottom: 0.5em;
-			}
-			.static-page :global(p) {
-				line-height: 1.7;
-				margin-bottom: 1.1em;
-			}
-			.static-page :global(ul),
-			.static-page :global(ol) {
-				line-height: 1.7;
-				margin-bottom: 1.1em;
-				padding-left: 1.3em;
-			}
-			.static-page :global(li) {
-				margin-bottom: 0.4em;
-			}
-			.static-page :global(a) {
-				color: var(--accent-dark);
-			}
-			.static-page :global(strong) {
-				color: rgb(var(--black));
-			}
+			.static-page :global(h3) { font-size: 1.08rem; margin: 1.6em 0 0.5em; }
+			.static-page :global(p), .static-page :global(ul), .static-page :global(ol) { line-height: 1.7; margin-bottom: 1.1em; }
+			.static-page :global(ul), .static-page :global(ol) { padding-left: 1.3em; }
+			.static-page :global(li) { margin-bottom: 0.4em; }
+			.static-page :global(li)::marker { color: var(--pg); }
+			.static-page :global(p a), .static-page :global(li a) { color: var(--accent-dark); }
+			:root[data-theme='dark'] .static-page :global(a) { color: var(--pg); }
+			.static-page :global(strong) { color: rgb(var(--black)); }
+
+			/* ---------- Shared components ---------- */
 			:global(.note-box) {
-				background: rgb(var(--gray-light));
-				border-left: 4px solid var(--accent);
-				border-radius: 10px;
-				padding: 1rem 1.3rem;
-				margin: 1.5rem 0;
-				font-size: 0.92rem;
-				display: flex;
-				gap: 0.7rem;
+				background: rgb(var(--gray-light)); border-left: 4px solid var(--pg, var(--accent)); border-radius: 12px;
+				padding: 1rem 1.3rem; margin: 1.5rem 0; font-size: 0.95rem; display: flex; gap: 0.8rem; line-height: 1.6;
 			}
-			:global(.note-box .note-icon) {
-				flex: none;
-				font-size: 1.2rem;
-				line-height: 1.5;
+			:global(.note-box .note-icon) { flex: none; font-size: 1.3rem; line-height: 1.4; }
+			:global(.cards) { display: grid; grid-template-columns: repeat(auto-fit, minmax(210px, 1fr)); gap: 1rem; margin: 1.4rem 0 2rem; }
+			:global(.card) {
+				background: rgb(var(--card)); border: 1px solid rgba(var(--gray), 0.22); border-top: 4px solid var(--pg);
+				border-radius: 14px; padding: 1.1rem 1.2rem; font-size: 0.95rem; line-height: 1.55;
 			}
-			:global(.note-box.warm) {
-				border-left-color: #d97757;
-				background: #fdf3ec;
+			:global(.card .ico) {
+				width: 42px; height: 42px; border-radius: 12px; display: grid; place-items: center; margin-bottom: 0.7rem;
+				background: color-mix(in srgb, var(--pg) 18%, transparent); color: var(--pg);
 			}
-			:root[data-theme='dark'] :global(.note-box.warm) {
-				background: rgb(var(--gray-light));
-			}
+			:global(.card .ico svg) { width: 22px; height: 22px; }
+			:global(.card h3) { margin: 0 0 0.3em; font-size: 1.05rem; }
+			:global(.card p) { margin: 0; }
 
-			/* ---------- Icon feature grid (used on About) ---------- */
-			:global(.icon-grid) {
-				display: grid;
-				grid-template-columns: repeat(auto-fit, minmax(260px, 1fr));
-				gap: 1rem;
-				list-style: none;
-				padding: 0;
-				margin: 1.5rem 0;
-			}
-			:global(.icon-grid li) {
-				display: flex;
-				gap: 0.9rem;
-				align-items: flex-start;
-				background: rgb(var(--gray-light));
-				border-radius: 12px;
-				padding: 1rem 1.1rem;
-				margin: 0;
-			}
-			:global(.icon-grid .emoji) {
-				flex: none;
-				font-size: 1.4rem;
-			}
-
-			/* ---------- Author card (used on About) ---------- */
-			:global(.author-card) {
-				display: flex;
-				align-items: center;
-				gap: 1.2rem;
-				margin: 1.5rem 0 2rem;
-			}
-			:global(.author-photo) {
-				width: 96px;
-				height: 96px;
-				border-radius: 50%;
-				object-fit: cover;
-				flex: none;
-				border: 3px solid var(--accent);
-				box-shadow: var(--box-shadow);
-			}
-			:global(.author-name) {
-				margin: 0;
-				font-size: 1.15rem;
-				font-weight: 700;
-				color: rgb(var(--black));
-			}
-			:global(.author-role) {
-				margin: 0.15rem 0 0;
-				font-size: 0.9rem;
-				color: rgb(var(--gray));
-			}
-			@media (max-width: 480px) {
-				:global(.author-card) {
-					gap: 0.9rem;
-				}
-				:global(.author-photo) {
-					width: 72px;
-					height: 72px;
-				}
-			}
-
-			/* ---------- Interlinking footer nav ---------- */
-			.related-nav {
-				margin-top: 3.5rem;
-				padding-top: 2rem;
-				border-top: 1px solid rgb(var(--gray-light));
-			}
-			.related-nav h2 {
-				font-size: 1rem;
-				color: rgb(var(--gray));
-				font-weight: 600;
-				margin-bottom: 1rem;
-				border: none;
-				padding: 0;
-			}
-			.related-links {
-				display: flex;
-				flex-wrap: wrap;
-				gap: 0.7rem;
-				list-style: none;
-				padding: 0;
-				margin: 0;
-			}
+			/* ---------- Footer nav ---------- */
+			.related-nav { margin-top: 3.5rem; padding-top: 2rem; border-top: 1px solid rgba(var(--gray), 0.25); }
+			.related-nav h2 { font-size: 1rem; color: rgb(var(--gray)); font-weight: 600; margin-bottom: 1rem; }
+			.related-links { display: flex; flex-wrap: wrap; gap: 0.7rem; list-style: none; padding: 0; margin: 0; }
 			.related-links a {
-				display: inline-flex;
-				align-items: center;
-				gap: 0.4rem;
-				background: rgb(var(--gray-light));
-				color: rgb(var(--black));
-				text-decoration: none;
-				padding: 0.5rem 1rem;
-				border-radius: 999px;
-				font-size: 0.9rem;
-				transition: 0.15s ease;
+				display: inline-flex; align-items: center; gap: 0.4rem; background: rgb(var(--gray-light)); color: rgb(var(--black));
+				text-decoration: none; padding: 0.5rem 1rem; border-radius: 999px; font-size: 0.9rem; transition: 0.15s ease;
 			}
-			.related-links a:hover {
-				background: var(--accent);
-				color: white;
-			}
+			.related-links a:hover { background: var(--pg); color: #0c131d; }
+			@media (max-width: 560px) { .pg-hero { padding: 2rem 1.3rem 2.8rem; } }
 		</style>
 	</head>
 	<body>
 		<Header />
-		<main>
-			<div class="page-icon">{icon}</div>
-			<h1 class="page-title">{title}</h1>
+		<main class={variant === 'bare' ? 'bare' : ''} style={`--pg:${pg};--pg-dark:${pgDark}`}>
+			{
+				variant === 'default' && (
+					<section class="pg-hero">
+						<div class="pg-badge" set:html={icons[icon]} />
+						{eyebrow && <p class="eyebrow">{eyebrow}</p>}
+						<h1>{title}</h1>
+						{lead && <p class="lead">{lead}</p>}
+						{updated && <span class="chip">Last updated: {updated}</span>}
+					</section>
+				)
+			}
+			{toc && <nav class="toc" id="toc" aria-label="On this page"></nav>}
 			<div class="static-page">
 				<slot />
 			</div>
 			<nav class="related-nav" aria-label="More pages">
-				<h2>More on PawsomeFlock</h2>
+				<h2>More on Vehicle GearUp</h2>
 				<ul class="related-links">
-					{
-						relatedPages.map((p) => (
-							<li>
-								<a href={p.href}>
-									<span>{p.icon}</span> {p.label}
-								</a>
-							</li>
-						))
-					}
+					{relatedPages.map((p) => (
+						<li><a href={p.href}><span>{p.icon}</span> {p.label}</a></li>
+					))}
 				</ul>
 			</nav>
 		</main>
 		<Footer />
+		{
+			toc && (
+				<script is:inline>
+					(function () {
+						var nav = document.getElementById('toc');
+						if (!nav) return;
+						document.querySelectorAll('.static-page h2').forEach(function (h, i) {
+							h.id = h.id || 'sec-' + (i + 1);
+							var a = document.createElement('a');
+							a.href = '#' + h.id;
+							a.textContent = h.textContent.replace(/^\d+\.\s*/, '');
+							nav.appendChild(a);
+						});
+					})();
+				</script>
+			)
+		}
 	</body>
 </html>
