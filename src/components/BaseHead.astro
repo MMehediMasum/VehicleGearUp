@@ -5,7 +5,6 @@ import '../styles/global.css';
 import type { ImageMetadata } from 'astro';
 import FallbackImage from '../assets/blog-placeholder-1.jpg';
 import { SITE_TITLE } from '../consts';
-import { Font } from 'astro:assets';
 
 interface Props {
 	title: string;
@@ -71,7 +70,13 @@ const siteJsonLd = {
 	document.documentElement.setAttribute('data-theme', savedTheme);
 </script>
 
-<Font cssVariable="--font-atkinson" preload />
+<!-- Fonts: Barlow Condensed (headings) + Inter (body) -->
+<link rel="preconnect" href="https://fonts.googleapis.com" />
+<link rel="preconnect" href="https://fonts.gstatic.com" crossorigin />
+<link
+	href="https://fonts.googleapis.com/css2?family=Barlow+Condensed:wght@600;700&family=Inter:wght@400;500;600;700&display=swap"
+	rel="stylesheet"
+/>
 
 <!-- Canonical URL -->
 <link rel="canonical" href={canonicalURL} />

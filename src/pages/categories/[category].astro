@@ -1,13 +1,13 @@
 ---
 import { slugify } from '../../utils/slug';
-import { Image } from 'astro:assets';
+import { styleFor } from '../../utils/topicStyles';
 import { getCollection } from 'astro:content';
 import BaseHead from '../../components/BaseHead.astro';
 import Footer from '../../components/Footer.astro';
 import FormattedDate from '../../components/FormattedDate.astro';
 import Header from '../../components/Header.astro';
-import { SITE_DESCRIPTION, SITE_TITLE } from '../../consts';
- 
+import { SITE_TITLE } from '../../consts';
+
 export async function getStaticPaths() {
 	const allPosts = await getCollection('blog');
 	const categories = [...new Set(allPosts.flatMap((post) => post.data.categories))];
@@ -16,141 +16,176 @@ export async function getStaticPaths() {
 		props: { categoryName: category },
 	}));
 }
- 
+
 const { categoryName } = Astro.props;
 const allPosts = await getCollection('blog');
 const postsInCategory = allPosts
 	.filter((post) => post.data.categories.includes(categoryName))
 	.sort((a, b) => b.data.pubDate.valueOf() - a.data.pubDate.valueOf());
- 
+
 const [featuredPost, ...restPosts] = postsInCategory;
+const topicName = featuredPost?.data.topic;
+const s = styleFor(topicName ?? '');
+
+const thumb = (post: (typeof postsInCategory)[number], w = 474, h = 274) =>
+	post.data.heroImage ??
+	`https://tse1.mm.bing.net/th?q=${encodeURIComponent(post.data.title)}&w=${w}&h=${h}&c=7`;
+
+const description = `${postsInCategory.length} ${postsInCategory.length === 1 ? 'guide' : 'guides'} on ${categoryName.toLowerCase()}: practical, plain-English advice from ASE-Certified Master Technician Herbert Langham.`;
 ---
- 
+
 <!doctype html>
 <html lang="en">
 	<head>
-		<BaseHead title={`${categoryName} - ${SITE_TITLE}`} description={SITE_DESCRIPTION} />
+		<BaseHead title={`${categoryName} - ${SITE_TITLE}`} description={description} />
 		<style>
 			main {
-				width: 960px;
+				width: min(1100px, 92vw);
+				max-width: none;
+				padding: 1.8rem 0 3rem;
 			}
-			.category-title {
-				text-align: center;
-				margin-bottom: 2rem;
+			.crumbs {
+				display: flex; flex-wrap: wrap; gap: 0.4rem; margin: 0 0 1rem;
+				font-size: 0.85rem; color: rgb(var(--gray));
 			}
-			ul {
-				display: flex;
-				flex-wrap: wrap;
-				gap: 2rem;
-				list-style-type: none;
-				margin: 0;
-				padding: 0;
+			.crumbs a { color: inherit; text-decoration: none; }
+			.crumbs a:hover { color: var(--accent); }
+
+			.cat-hero {
+				position: relative; overflow: hidden; color: #fff;
+				border-radius: 24px; padding: 2.6rem 2.6rem 3.2rem; margin-bottom: 2.2rem;
+				background:
+					radial-gradient(ellipse 55% 90% at 100% 0%, color-mix(in srgb, var(--c2) 50%, transparent), transparent 65%),
+					linear-gradient(155deg, #0c131d 0%, var(--c1) 135%);
+				box-shadow: 0 18px 40px rgba(10, 16, 28, 0.22);
 			}
-			ul li {
-				width: calc(33.333% - 1.4rem);
+			.cat-hero::after {
+				content: ''; position: absolute; left: 0; right: 0; bottom: 1rem; height: 4px; opacity: 0.55;
+				background: repeating-linear-gradient(90deg, var(--amber) 0 38px, transparent 38px 76px);
 			}
-			ul li * {
-				text-decoration: none;
-				transition: 0.2s ease;
+			.eyebrow {
+				margin: 0 0 0.3rem; font-size: 0.8rem; letter-spacing: 0.16em;
+				text-transform: uppercase; color: var(--amber); font-weight: 700;
 			}
-			ul li.featured {
-				width: 100%;
-				margin-bottom: 1rem;
-				text-align: center;
+			.eyebrow a { color: inherit; text-decoration: none; }
+			.eyebrow a:hover { text-decoration: underline; }
+			.cat-hero h1 {
+				font-size: clamp(2.2rem, 5vw, 3.5rem); line-height: 1.04;
+				margin: 0 0 0.4em; color: #fff; max-width: 20ch;
 			}
-			ul li.featured img {
-				width: 100%;
+			.count-chip {
+				display: inline-block; font-size: 0.85rem; font-weight: 600; padding: 0.35rem 0.9rem;
+				border-radius: 999px; background: rgba(255, 255, 255, 0.12); color: #eef2f9;
 			}
-			ul li.featured .title {
-				font-size: 2.369rem;
+
+			/* featured */
+			.featured {
+				display: grid; grid-template-columns: minmax(0, 1.15fr) minmax(0, 1fr);
+				margin-bottom: 2.4rem; border-radius: 20px; overflow: hidden;
+				text-decoration: none; color: rgb(var(--black));
+				background: rgb(var(--gray-light));
+				border: 1px solid rgba(var(--gray), 0.2);
+				border-left: 6px solid var(--amber);
+				transition: box-shadow 0.2s ease, transform 0.2s ease;
 			}
-			ul li img {
-				margin-bottom: 0.5rem;
-				border-radius: 12px;
+			.featured:hover { box-shadow: var(--box-shadow); transform: translateY(-3px); }
+			.featured .f-img { min-height: 280px; background: linear-gradient(150deg, var(--c1), var(--c2)); }
+			.featured img { width: 100%; height: 100%; object-fit: cover; display: block; border-radius: 0; }
+			.f-body { padding: 1.8rem 1.8rem 1.6rem; display: flex; flex-direction: column; justify-content: center; }
+			.tag {
+				align-self: flex-start; padding: 0.2rem 0.75rem; border-radius: 999px; margin-bottom: 0.7rem;
+				background: var(--amber); color: #1b1303; font-size: 0.78rem; font-weight: 700;
 			}
-			ul li a {
-				display: block;
+			.f-title { font-size: clamp(1.7rem, 3vw, 2.3rem); line-height: 1.1; margin: 0 0 0.6rem; }
+			.featured:hover .f-title { color: var(--accent); }
+			.date { margin: 0; font-size: 0.85rem; color: rgb(var(--gray)); }
+
+			.section-heading {
+				font-size: 2rem; margin: 0 0 1.2rem; padding-left: 0.8rem;
+				border-left: 5px solid var(--amber); line-height: 1.1;
 			}
-			.title {
-				margin: 0;
-				color: rgb(var(--black));
-				line-height: 1.2;
+			.post-grid {
+				display: grid; grid-template-columns: repeat(3, minmax(0, 1fr)); gap: 1.6rem;
+				list-style: none; margin: 0; padding: 0;
 			}
-			.date {
-				margin: 0;
-				color: rgb(var(--gray));
+			.post-grid li { margin: 0; }
+			.post-card { display: flex; flex-direction: column; height: 100%; text-decoration: none; color: rgb(var(--black)); }
+			.post-thumb {
+				aspect-ratio: 474 / 274; border-radius: 14px; overflow: hidden; margin-bottom: 0.8rem;
+				background: linear-gradient(150deg, var(--c1), var(--c2));
 			}
-			ul li a:hover .title,
-			ul li a:hover .date {
-				color: var(--accent);
-			}
-			ul a:hover img {
-				box-shadow: var(--box-shadow);
-			}
-			.empty {
-				text-align: center;
-				color: rgb(var(--gray));
-			}
+			.post-thumb img { width: 100%; height: 100%; object-fit: cover; display: block; border-radius: 0; transition: transform 0.4s ease; }
+			.post-card:hover .post-thumb img { transform: scale(1.05); }
+			.post-title { font-size: 1.45rem; line-height: 1.15; margin: 0 0 0.4rem; }
+			.post-card:hover .post-title { color: var(--accent); }
+			.post-card .date { margin-top: auto; padding-top: 0.2rem; }
+			.empty { text-align: center; color: rgb(var(--gray)); }
+
 			@media (max-width: 900px) {
-				ul li {
-					width: calc(50% - 1rem);
-				}
+				.post-grid { grid-template-columns: repeat(2, minmax(0, 1fr)); }
+				.featured { grid-template-columns: 1fr; }
+				.featured .f-img { min-height: 220px; aspect-ratio: 16 / 9; }
 			}
-			@media (max-width: 720px) {
-				ul {
-					gap: 0.5em;
-				}
-				ul li {
-					width: 100%;
-					text-align: center;
-				}
-				ul li.featured {
-					margin-bottom: 0;
-				}
-				ul li.featured .title {
-					font-size: 1.563em;
-				}
+			@media (max-width: 560px) {
+				.cat-hero { padding: 2rem 1.3rem 2.8rem; }
+				.post-grid { grid-template-columns: 1fr; }
 			}
 		</style>
 	</head>
 	<body>
 		<Header />
-		<main>
-			<h1 class="category-title">{categoryName}</h1>
-			<section>
-				{
-					postsInCategory.length === 0 ? (
-						<p class="empty">No posts found in this category yet.</p>
-					) : (
-						<ul>
-							<li class="featured">
-								<a href={`/${featuredPost.id}/`}>
-									{featuredPost.data.heroImage && (
-										<img width="960" height="480" src={featuredPost.data.heroImage} alt="" loading="lazy" />
-									)}
-									<h2 class="title">{featuredPost.data.title}</h2>
-									<p class="date">
-										<FormattedDate date={featuredPost.data.pubDate} />
-									</p>
-								</a>
-							</li>
-							{restPosts.map((post) => (
-								<li>
-									<a href={`/${post.id}/`}>
-										{post.data.heroImage && (
-											<img width="480" height="280" src={post.data.heroImage} alt="" loading="lazy" />
-										)}
-										<h4 class="title">{post.data.title}</h4>
-										<p class="date">
-											<FormattedDate date={post.data.pubDate} />
-										</p>
-									</a>
-								</li>
-							))}
-						</ul>
-					)
-				}
+		<main style={`--c1:${s.c1};--c2:${s.c2}`}>
+			<nav class="crumbs" aria-label="Breadcrumb">
+				<a href="/">Home</a><span>/</span>
+				{topicName && (<><a href={`/topic/${slugify(topicName)}/`}>{topicName}</a><span>/</span></>)}
+				<span>{categoryName}</span>
+			</nav>
+
+			<section class="cat-hero">
+				<p class="eyebrow">
+					{topicName ? <a href={`/topic/${slugify(topicName)}/`}>{topicName}</a> : 'Category'}
+				</p>
+				<h1>{categoryName}</h1>
+				<span class="count-chip">{postsInCategory.length} {postsInCategory.length === 1 ? 'guide' : 'guides'}</span>
 			</section>
+
+			{
+				postsInCategory.length === 0 ? (
+					<p class="empty">No posts found in this category yet.</p>
+				) : (
+					<>
+						<a class="featured" href={`/${featuredPost.id}/`}>
+							<div class="f-img">
+								<img src={thumb(featuredPost, 800, 560)} alt="" loading="lazy" onerror="this.style.display='none'" />
+							</div>
+							<div class="f-body">
+								<span class="tag">Latest guide</span>
+								<h2 class="f-title">{featuredPost.data.title}</h2>
+								<p class="date"><FormattedDate date={featuredPost.data.pubDate} /></p>
+							</div>
+						</a>
+
+						{restPosts.length > 0 && (
+							<>
+								<h2 class="section-heading">More in {categoryName}</h2>
+								<ul class="post-grid">
+									{restPosts.map((post) => (
+										<li>
+											<a class="post-card" href={`/${post.id}/`}>
+												<div class="post-thumb">
+													<img src={thumb(post)} alt="" loading="lazy" onerror="this.style.display='none'" />
+												</div>
+												<h3 class="post-title">{post.data.title}</h3>
+												<p class="date"><FormattedDate date={post.data.pubDate} /></p>
+											</a>
+										</li>
+									))}
+								</ul>
+							</>
+						)}
+					</>
+				)
+			}
 		</main>
 		<Footer />
 	</body>

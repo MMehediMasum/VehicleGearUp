@@ -152,18 +152,11 @@ const trackArc = `M ${ax1.toFixed(2)} ${ay1.toFixed(2)} A 172 172 0 1 1 ${rx2.to
 <html lang="en">
 	<head>
 		<BaseHead title={SITE_TITLE} description={SITE_DESCRIPTION} />
-		<link rel="preconnect" href="https://fonts.googleapis.com" />
-		<link rel="preconnect" href="https://fonts.gstatic.com" crossorigin />
-		<link
-			href="https://fonts.googleapis.com/css2?family=Barlow+Condensed:wght@600;700&display=swap"
-			rel="stylesheet"
-		/>
 		<style>
 			main {
 				width: min(1100px, 92vw);
+				max-width: none;
 				margin: 0 auto;
-				--display: 'Barlow Condensed', 'Oswald', 'Arial Narrow', sans-serif;
-				--amber: #ffb020;
 			}
 
 			html {
@@ -184,7 +177,8 @@ const trackArc = `M ${ax1.toFixed(2)} ${ay1.toFixed(2)} A 172 172 0 1 1 ${rx2.to
 					linear-gradient(160deg, #0c131d 0%, #111c2b 60%, #172334 100%);
 				border-radius: 24px;
 				padding: 4rem 3rem 4.6rem;
-				margin: 1.5rem auto 3.5rem;
+				margin: 1.8rem auto 3.5rem;
+				box-shadow: 0 22px 48px rgba(10, 16, 28, 0.25);
 			}
 			/* lane marking along the bottom edge */
 			.hero::after {
@@ -631,19 +625,21 @@ const trackArc = `M ${ax1.toFixed(2)} ${ay1.toFixed(2)} A 172 172 0 1 1 ${rx2.to
 				transform: scale(1.04);
 			}
 			.post-category {
-				font-size: 0.8rem;
-				color: var(--accent-dark);
-				font-weight: 600;
+				font-size: 0.78rem;
+				color: var(--accent);
+				font-weight: 700;
+				text-transform: uppercase;
+				letter-spacing: 0.06em;
 				margin-bottom: 0.25rem;
 			}
 			.post-title {
-				font-size: 1.05rem;
-				line-height: 1.35;
+				font-size: 1.5rem;
+				line-height: 1.12;
 				font-weight: 700;
 				margin: 0 0 0.4rem;
 			}
 			.side-card .post-title {
-				font-size: 1rem;
+				font-size: 1.3rem;
 				margin-bottom: 0.3rem;
 			}
 			.post-card:hover .post-title,

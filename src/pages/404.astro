@@ -15,9 +15,12 @@ import { SITE_TITLE } from '../consts';
 				padding: 4em 1em;
 			}
 			.not-found .code {
-				font-size: 6em;
+				font-family: var(--display);
+				font-weight: 700;
+				font-size: 8rem;
 				margin: 0;
-				color: var(--accent);
+				color: var(--amber);
+				text-shadow: 4px 4px 0 rgba(var(--gray), 0.25);
 				line-height: 1;
 			}
 			.not-found h1 {
@@ -31,20 +34,20 @@ import { SITE_TITLE } from '../consts';
 				display: inline-block;
 				margin-top: 1.5em;
 				padding: 0.7em 1.6em;
-				background: var(--accent);
-				color: #fff;
-				border-radius: 8px;
+				background: var(--amber);
+				color: #1b1303;
+				border-radius: 10px;
 				text-decoration: none;
-				font-weight: 600;
+				font-weight: 700;
 				transition: background 0.2s ease;
 			}
 			.not-found .home-link:hover {
-				background: var(--accent-dark);
-				color: #fff;
+				background: #ffc24d;
+				color: #1b1303;
 			}
 			@media (max-width: 480px) {
 				.not-found .code {
-					font-size: 4em;
+					font-size: 5rem;
 				}
 			}
 		</style>

@@ -10,7 +10,12 @@ const topics = [...new Set(posts.map((post) => post.data.topic).filter(Boolean))
 
 <header>
 	<nav>
-		<h2><a href="/">{SITE_TITLE}</a></h2>
+		<a class="brand" href="/" aria-label={`${SITE_TITLE} home`}>
+			<span class="brand-mark" aria-hidden="true">
+				<svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linecap="round" stroke-linejoin="round"><path d="M3 13l2-6h14l2 6v5H3z"/><circle cx="7.5" cy="18" r="1.8"/><circle cx="16.5" cy="18" r="1.8"/></svg>
+			</span>
+			<span class="brand-text">Vehicle <b>GearUp</b></span>
+		</a>
 		<div class="internal-links" id="internal-links">
 			<HeaderLink href="/">Home</HeaderLink>
 			<div class="dropdown">
@@ -35,6 +40,8 @@ const topics = [...new Set(posts.map((post) => post.data.topic).filter(Boolean))
 					}
 				</ul>
 			</div>
+			<HeaderLink href="/about/">About</HeaderLink>
+			<HeaderLink href="/contact/">Contact</HeaderLink>
 		</div>
 		<div class="header-actions">
 			<button id="theme-toggle" aria-label="Toggle dark mode" type="button">
@@ -111,61 +118,103 @@ const topics = [...new Set(posts.map((post) => post.data.topic).filter(Boolean))
 </script>
 <style>
 	header {
+		position: sticky;
+		top: 0;
+		z-index: 50;
 		margin: 0;
-		padding: 0 1em;
-		background: white;
-		box-shadow: 0 2px 8px rgba(var(--black), 5%);
-	}
-	h2 {
-		margin: 0;
-		font-size: 1em;
-	}
-	h2 a,
-	h2 a.active {
-		text-decoration: none;
+		padding: 0 1.2em;
+		background: #0c131d;
+		border-bottom: 3px solid var(--amber);
+		box-shadow: 0 4px 18px rgba(0, 0, 0, 0.25);
 	}
 	nav {
 		display: flex;
 		align-items: center;
 		justify-content: space-between;
+		width: min(1100px, 100%);
+		margin: 0 auto;
+		min-height: 64px;
+	}
+	.brand {
+		display: inline-flex;
+		align-items: center;
+		gap: 0.65rem;
+		text-decoration: none;
+		color: #fff;
+	}
+	.brand:hover {
+		color: #fff;
+	}
+	.brand-mark {
+		width: 38px;
+		height: 38px;
+		border-radius: 10px;
+		display: grid;
+		place-items: center;
+		background: var(--amber);
+		color: #1b1303;
+		transition: transform 0.2s ease;
+	}
+	.brand:hover .brand-mark {
+		transform: rotate(-6deg) scale(1.05);
+	}
+	.brand-mark svg {
+		width: 24px;
+		height: 24px;
+	}
+	.brand-text {
+		font-family: var(--display);
+		font-size: 1.65rem;
+		font-weight: 700;
+		letter-spacing: 0.01em;
+		line-height: 1;
+	}
+	.brand-text b {
+		color: var(--amber);
 	}
 	.internal-links {
 		display: flex;
 		align-items: center;
+		gap: 0.2rem;
 	}
-	.internal-links > :global(a) {
+	.internal-links > :global(a),
+	.dropdown-trigger {
 		position: relative;
-		padding: 1em 0.5em;
-		margin-left: 10px;
-		color: rgb(var(--black));
+		padding: 1.3em 0.8em;
+		color: #dfe6f1;
 		text-decoration: none;
 		text-transform: uppercase;
-		font-weight: 700;
-		font-size: 0.85em;
-		opacity: 0.7;
-		transition: opacity 0.2s ease;
+		letter-spacing: 0.06em;
+		font-weight: 600;
+		font-size: 0.8rem;
+		transition: color 0.2s ease;
 	}
-	.internal-links > :global(a.active) {
-		opacity: 1;
+	.internal-links > :global(a:hover),
+	.internal-links > :global(a.active),
+	.dropdown-trigger:hover,
+	.dropdown-trigger[aria-expanded='true'] {
+		color: #fff;
 	}
-	.internal-links > :global(a::after) {
+	.internal-links > :global(a::after),
+	.dropdown-trigger::after {
 		content: '';
 		position: absolute;
-		left: 0.5em;
-		right: 0.5em;
-		bottom: 0.75em;
-		height: 2px;
-		background: rgb(var(--gray));
+		left: 0.8em;
+		right: 0.8em;
+		bottom: 0.7em;
+		height: 3px;
+		border-radius: 2px;
+		background: var(--amber);
 		transform: scaleX(0);
 		transform-origin: left;
 		transition: transform 0.25s ease;
 	}
-	.internal-links > :global(a:hover::after) {
+	.internal-links > :global(a:hover::after),
+	.dropdown-trigger:hover::after {
 		transform: scaleX(1);
 	}
 	.internal-links > :global(a.active::after) {
 		transform: scaleX(1);
-		background: var(--accent);
 	}
 	.dropdown {
 		position: relative;
@@ -175,36 +224,30 @@ const topics = [...new Set(posts.map((post) => post.data.topic).filter(Boolean))
 		border: none;
 		font-family: inherit;
 		cursor: pointer;
-		padding: 1em 0.5em;
-		margin-left: 10px;
-		color: rgb(var(--black));
-		text-transform: uppercase;
-		font-weight: 700;
-		font-size: 0.85em;
-		opacity: 0.7;
-		transition: opacity 0.2s ease;
 	}
-	.dropdown-trigger:hover,
-	.dropdown-trigger[aria-expanded='true'] {
-		opacity: 1;
+	.dropdown-trigger::before {
+		content: '';
+		display: inline-block;
+		order: 2;
 	}
 	.dropdown-menu {
 		position: absolute;
-		top: 100%;
-		left: 10px;
-		min-width: 160px;
+		top: calc(100% - 0.4rem);
+		left: 0;
+		min-width: 270px;
 		width: max-content;
 		margin: 0;
-		padding: 0.5em 0;
+		padding: 0.5em;
 		list-style: none;
-		background: white;
-		border-radius: 8px;
-		box-shadow: var(--box-shadow);
+		background: #fff;
+		border-radius: 14px;
+		border-top: 4px solid var(--amber);
+		box-shadow: 0 18px 40px rgba(8, 12, 20, 0.35);
 		opacity: 0;
 		visibility: hidden;
 		transform: translateY(-6px);
 		transition: opacity 0.2s ease, transform 0.2s ease, visibility 0.2s;
-		z-index: 20;
+		z-index: 60;
 	}
 	.dropdown-menu.open {
 		opacity: 1;
@@ -216,29 +259,34 @@ const topics = [...new Set(posts.map((post) => post.data.topic).filter(Boolean))
 	}
 	.dropdown-menu a {
 		display: block;
-		padding: 0.5em 1em;
-		color: rgb(var(--black));
+		padding: 0.6em 0.9em;
+		border-radius: 8px;
+		color: #1b2433;
 		text-decoration: none;
-		text-transform: none;
-		font-weight: 400;
-		font-size: 1em;
+		font-weight: 500;
+		font-size: 0.95rem;
 		white-space: nowrap;
 	}
 	.dropdown-menu a:hover {
-		background: rgb(var(--gray-light));
-		color: var(--accent);
+		background: #fff3dc;
+		color: #9a3412;
 	}
 	.header-actions {
 		display: flex;
 		align-items: center;
 	}
 	#theme-toggle {
-		background: none;
-		border: none;
+		background: rgba(255, 255, 255, 0.08);
+		border: 1px solid rgba(255, 255, 255, 0.18);
+		border-radius: 10px;
 		cursor: pointer;
-		font-size: 1.3em;
-		padding: 0.5em;
+		font-size: 1.1rem;
+		padding: 0.4rem 0.55rem;
 		line-height: 1;
+		transition: background 0.2s ease;
+	}
+	#theme-toggle:hover {
+		background: rgba(255, 255, 255, 0.18);
 	}
 	.mobile-menu-toggle {
 		display: none;
@@ -248,14 +296,14 @@ const topics = [...new Set(posts.map((post) => post.data.topic).filter(Boolean))
 		background: none;
 		border: none;
 		cursor: pointer;
-		padding: 0.5em;
+		padding: 0.6em;
 		margin-left: 0.3em;
 	}
 	.mobile-menu-toggle span {
 		display: block;
-		width: 20px;
+		width: 22px;
 		height: 2px;
-		background: rgb(var(--black));
+		background: #fff;
 		transition: transform 0.2s ease, opacity 0.2s ease;
 	}
 	.mobile-menu-toggle.active span:nth-child(1) {
@@ -268,19 +316,26 @@ const topics = [...new Set(posts.map((post) => post.data.topic).filter(Boolean))
 		transform: translateY(-6px) rotate(-45deg);
 	}
 	:root[data-theme='dark'] header {
-		background: #14161c;
-		box-shadow: 0 2px 8px rgba(0, 0, 0, 40%);
+		background: #080c13;
 	}
 	:root[data-theme='dark'] .dropdown-menu {
-		background: #14161c;
+		background: #161b26;
 	}
-	:root[data-theme='dark'] .mobile-menu-toggle span {
-		background: rgb(var(--black));
+	:root[data-theme='dark'] .dropdown-menu a {
+		color: #e2e8f0;
+	}
+	:root[data-theme='dark'] .dropdown-menu a:hover {
+		background: rgba(255, 176, 32, 0.14);
+		color: var(--amber);
 	}
 
-	@media (max-width: 640px) {
+	@media (max-width: 760px) {
 		nav {
 			flex-wrap: wrap;
+			min-height: 58px;
+		}
+		.brand-text {
+			font-size: 1.45rem;
 		}
 		.mobile-menu-toggle {
 			display: flex;
@@ -289,18 +344,22 @@ const topics = [...new Set(posts.map((post) => post.data.topic).filter(Boolean))
 			display: none;
 			flex-direction: column;
 			align-items: stretch;
+			gap: 0;
 			width: 100%;
 			order: 3;
-			padding: 0.5em 0 1em 0;
+			padding: 0.3em 0 1em 0;
+			border-top: 1px solid rgba(255, 255, 255, 0.12);
 		}
 		.internal-links.mobile-open {
 			display: flex;
 		}
-		.internal-links > :global(a) {
-			margin-left: 0;
-			padding: 0.8em 0;
+		.internal-links > :global(a),
+		.dropdown-trigger {
+			padding: 0.9em 0;
+			text-align: left;
 		}
-		.internal-links > :global(a::after) {
+		.internal-links > :global(a::after),
+		.dropdown-trigger::after {
 			display: none;
 		}
 		.dropdown {
@@ -308,22 +367,26 @@ const topics = [...new Set(posts.map((post) => post.data.topic).filter(Boolean))
 		}
 		.dropdown-trigger {
 			width: 100%;
-			text-align: left;
-			margin-left: 0;
-			padding: 0.8em 0;
 		}
 		.dropdown-menu {
 			position: static;
+			min-width: 0;
 			box-shadow: none;
+			border-top: 0;
+			background: rgba(255, 255, 255, 0.06);
 			opacity: 1;
 			visibility: visible;
 			transform: none;
 			display: none;
-			padding-left: 1em;
 			width: auto;
 		}
 		.dropdown-menu a {
+			color: #dfe6f1;
 			white-space: normal;
+		}
+		.dropdown-menu a:hover {
+			background: rgba(255, 176, 32, 0.15);
+			color: var(--amber);
 		}
 		.dropdown-menu.open {
 			display: block;

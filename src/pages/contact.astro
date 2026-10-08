@@ -1,31 +1,65 @@
 ---
 import StaticPage from '../layouts/StaticPage.astro';
+
+const email = 'herbertalangham@gmail.com';
+const mapQuery = encodeURIComponent('2457 Oakridge Drive, Columbus, OH 43221');
+
+const contactJsonLd = {
+	'@context': 'https://schema.org',
+	'@type': 'ContactPage',
+	mainEntity: {
+		'@type': 'Person',
+		name: 'Herbert Langham',
+		jobTitle: 'ASE-Certified Master Technician & Garage Consultant',
+		email,
+		address: {
+			'@type': 'PostalAddress',
+			streetAddress: '2457 Oakridge Drive',
+			addressLocality: 'Columbus',
+			addressRegion: 'OH',
+			postalCode: '43221',
+			addressCountry: 'US',
+		},
+	},
+};
 ---
 
 <StaticPage
 	title="Contact Us"
-	description="Contact the Vehicle GearUp team with car-care questions, corrections, feedback, or collaboration ideas."
+	description="Contact Herbert Langham at Vehicle GearUp with car-care questions, corrections, feedback, or collaboration ideas."
 	icon="mail"
-	accent="teal"
+	accent="amber"
 	eyebrow="Let's talk cars"
-	lead="Got a question, a correction, or an idea? Send it over. A real person reads every message."
+	lead="Got a question, a correction, or an idea? Send it over. I read every message myself."
 >
-	<div class="mail-card">
-		<div>
-			<p class="k">Email us</p>
-			<a class="addr" href="mailto:support@vehiclegearup.com">support@vehiclegearup.com</a>
+	<script type="application/ld+json" slot="head" set:html={JSON.stringify(contactJsonLd)} />
+
+	<div class="contact-grid">
+		<div class="mail-card">
+			<p class="k">Email</p>
+			<a class="addr" href={`mailto:${email}`}>{email}</a>
+			<a class="go" href={`mailto:${email}?subject=Question%20from%20Vehicle%20GearUp`}>Write a message →</a>
 		</div>
-		<a class="go" href="mailto:support@vehiclegearup.com?subject=Question%20from%20Vehicle%20GearUp">Write a message →</a>
+		<div class="mail-card">
+			<p class="k">Mailing address</p>
+			<address class="addr-block">
+				<strong>Herbert Langham</strong><br />
+				Vehicle GearUp<br />
+				2457 Oakridge Drive<br />
+				Columbus, OH 43221, USA
+			</address>
+			<a class="go ghost" href={`https://www.google.com/maps/search/?api=1&query=${mapQuery}`} target="_blank" rel="noopener noreferrer">View on map →</a>
+		</div>
 	</div>
 
-	<h2>What can we help with?</h2>
+	<h2>What can I help with?</h2>
 	<div class="cards">
-		<div class="card"><div class="ico">🔧</div><h3>Car-care questions</h3><p>Stuck on a repair or a quote that doesn't feel right? Tell us what's going on.</p></div>
-		<div class="card"><div class="ico">✏️</div><h3>Corrections</h3><p>Spotted something outdated or wrong in a guide? We want to fix it fast.</p></div>
-		<div class="card"><div class="ico">🤝</div><h3>Collaborations</h3><p>Speaking, partnerships, or product ideas? Send the details and we'll take a look.</p></div>
+		<div class="card"><div class="ico">🔧</div><h3>Car-care questions</h3><p>Stuck on a repair or a quote that doesn't feel right? Tell me what's going on.</p></div>
+		<div class="card"><div class="ico">✏️</div><h3>Corrections</h3><p>Spotted something outdated or wrong in a guide? I want to fix it fast.</p></div>
+		<div class="card"><div class="ico">🤝</div><h3>Collaborations</h3><p>Speaking, consulting, or partnership ideas? Send the details and I'll take a look.</p></div>
 	</div>
 
-	<h2>Help us help you</h2>
+	<h2>Help me help you</h2>
 	<p>If you're writing about a vehicle problem, include as much of this as you can:</p>
 	<ul>
 		<li><strong>Year, make, model, and engine</strong> of the vehicle</li>
@@ -36,16 +70,20 @@ import StaticPage from '../layouts/StaticPage.astro';
 	<div class="note-box">
 		<span class="note-icon">ℹ️</span>
 		<span>
-			We can't diagnose a car over email or give an exact repair price, and we don't sell parts or take orders. For anything about an order, shipping, or returns, please contact the retailer directly. See also our <a href="/disclosure/">Disclosure</a>.
+			I can't diagnose a car over email or give an exact repair price, and this site doesn't sell parts or take orders. For anything about an order, shipping, or returns, please contact the retailer directly. See also our <a href="/disclosure/">Disclosure</a>.
 		</span>
 	</div>
 </StaticPage>
 
 <style>
-	.mail-card { display: flex; flex-wrap: wrap; gap: 1rem; align-items: center; justify-content: space-between; padding: 1.5rem 1.7rem; border-radius: 18px; background: rgb(var(--card)); border: 1px solid rgba(var(--gray), 0.22); border-left: 6px solid var(--pg); }
-	.k { margin: 0; font-size: 0.8rem; letter-spacing: 0.12em; text-transform: uppercase; color: rgb(var(--gray)); font-weight: 700; }
-	.addr { font-size: clamp(1.1rem, 3.4vw, 1.5rem); font-weight: 700; word-break: break-all; }
-	.go { background: var(--pg); color: #04201a !important; padding: 0.7rem 1.4rem; border-radius: 10px; font-weight: 700; text-decoration: none; box-shadow: none !important; }
-	.go:hover { filter: brightness(1.1); }
+	.contact-grid { display: grid; grid-template-columns: repeat(auto-fit, minmax(300px, 1fr)); gap: 1.2rem; }
+	.mail-card { display: flex; flex-direction: column; align-items: flex-start; gap: 0.5rem; padding: 1.5rem 1.6rem; border-radius: 18px; background: rgb(var(--card)); border: 1px solid rgba(var(--gray), 0.22); border-left: 6px solid var(--pg); box-shadow: 0 6px 18px rgba(10, 16, 28, 0.06); }
+	.k { margin: 0; font-size: 0.78rem; letter-spacing: 0.14em; text-transform: uppercase; color: rgb(var(--gray)); font-weight: 700; }
+	.addr { font-size: clamp(1.05rem, 3.2vw, 1.3rem); font-weight: 700; word-break: break-all; }
+	.addr-block { font-style: normal; line-height: 1.6; font-size: 1.05rem; color: rgb(var(--black)); }
+	.go { margin-top: auto; background: var(--pg); color: #1b1303 !important; padding: 0.65rem 1.3rem; border-radius: 10px; font-weight: 700; text-decoration: none; box-shadow: none !important; font-size: 0.95rem; }
+	.go:hover { filter: brightness(1.08); }
+	.go.ghost { background: transparent; border: 1.5px solid var(--pg); color: rgb(var(--black)) !important; }
+	.go.ghost:hover { background: var(--pg); color: #1b1303 !important; }
 	.card .ico { font-size: 1.3rem; }
 </style>

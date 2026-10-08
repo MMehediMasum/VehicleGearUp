@@ -1,121 +1,186 @@
 ---
 const today = new Date();
 
-const normalize = (path: string) => path.replace(/\/+$/, "") || "/";
+const normalize = (path: string) => path.replace(/\/+$/, '') || '/';
 const footerLinks = [
-	{ href: '/about/', label: 'About Us', icon: '🚗' },
-	{ href: '/contact/', label: 'Contact', icon: '📬' },
-	{ href: '/privacy-policy/', label: 'Privacy Policy', icon: '🔒' },
-	{ href: '/disclosure/', label: 'Disclosure', icon: '💰' },
-	{ href: '/terms/', label: 'Terms', icon: '📜' },
+	{ href: '/about/', label: 'About Us' },
+	{ href: '/contact/', label: 'Contact' },
+	{ href: '/privacy-policy/', label: 'Privacy Policy' },
+	{ href: '/disclosure/', label: 'Disclosure' },
+	{ href: '/terms/', label: 'Terms' },
 ].filter((link) => normalize(link.href) !== normalize(Astro.url.pathname));
 ---
 
 <footer>
-	<nav class="footer-menu" aria-label="Footer">
-		<ul>
-			{
-				footerLinks.map((link) => (
+	<div class="footer-inner">
+		<div class="footer-grid">
+			<div class="f-brand">
+				<a class="brand" href="/">
+					<span class="brand-mark" aria-hidden="true">
+						<svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linecap="round" stroke-linejoin="round"><path d="M3 13l2-6h14l2 6v5H3z"/><circle cx="7.5" cy="18" r="1.8"/><circle cx="16.5" cy="18" r="1.8"/></svg>
+					</span>
+					<span class="brand-text">Vehicle <b>GearUp</b></span>
+				</a>
+				<p class="tagline">Straight talk from under the hood.</p>
+				<p class="blurb">
+					Practical car-care guides by Herbert Langham, ASE-Certified Master Technician, so you can handle the basics and spot a bad repair quote.
+				</p>
+			</div>
+
+			<nav class="f-col" aria-label="Footer">
+				<h2>Explore</h2>
+				<ul>
+					<li><a href="/">Home</a></li>
+					{footerLinks.map((link) => <li><a href={link.href}>{link.label}</a></li>)}
+				</ul>
+			</nav>
+
+			<address class="f-col">
+				<h2>Contact</h2>
+				<ul>
 					<li>
-						<a href={link.href}><span>{link.icon}</span> {link.label}</a>
+						<span class="k">Email</span>
+						<a href="mailto:herbertalangham@gmail.com">herbertalangham@gmail.com</a>
 					</li>
-				))
-			}
-		</ul>
-	</nav>
+					<li>
+						<span class="k">Address</span>
+						2457 Oakridge Drive<br />Columbus, OH 43221, USA
+					</li>
+				</ul>
+				<div class="social-links">
+					<a href="https://www.facebook.com/HerbertLangham/" target="_blank" rel="nofollow noopener noreferrer">
+						<span class="sr-only">Follow Herbert Langham on Facebook</span>
+						<svg viewBox="0 0 16 16" aria-hidden="true" width="22" height="22">
+							<path
+								fill="currentColor"
+								d="M9.25 16V8.703h2.45l.367-2.845H9.25V4.04c0-.824.229-1.386 1.411-1.386h1.508V.11A20.21 20.21 0 0 0 9.97 0C7.795 0 6.305 1.327 6.305 3.764v2.094H3.846v2.845h2.459V16h2.945z"
+							></path>
+						</svg>
+					</a>
+					<a href="mailto:herbertalangham@gmail.com">
+						<span class="sr-only">Email Herbert Langham</span>
+						<svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="1.8" stroke-linecap="round" stroke-linejoin="round" aria-hidden="true" width="22" height="22"><rect x="3" y="5" width="18" height="14" rx="2"/><path d="M3 7l9 6 9-6"/></svg>
+					</a>
+				</div>
+			</address>
+		</div>
 
-	&copy; {today.getFullYear()} Vehicle GearUp. All rights reserved.
-	<div class="social-links">
-	    <a
-            href="https://www.facebook.com/HerbertLangham/" target="_blank" rel="nofollow noopener noreferrer">
-            <span class="sr-only">Follow Vehicle GearUp on Facebook</span>
-            <svg viewBox="0 0 16 16" aria-hidden="true" width="32" height="32">
-                <path
-                    fill="currentColor"
-                    d="M9.25 16V8.703h2.45l.367-2.845H9.25V4.04c0-.824.229-1.386 1.411-1.386h1.508V.11A20.21 20.21 0 0 0 9.97 0C7.795 0 6.305 1.327 6.305 3.764v2.094H3.846v2.845h2.459V16h2.945z"
-                ></path>
-            </svg>
-        </a>
-		<a href="#" target="_blank">
-			<span class="sr-only">Follow Vehicle GearUp on Twitter</span>
-			<svg viewBox="0 0 16 16" aria-hidden="true" width="32" height="32" astro-icon="social/twitter"
-				><path
-					fill="currentColor"
-					d="M5.026 15c6.038 0 9.341-5.003 9.341-9.334 0-.14 0-.282-.006-.422A6.685 6.685 0 0 0 16 3.542a6.658 6.658 0 0 1-1.889.518 3.301 3.301 0 0 0 1.447-1.817 6.533 6.533 0 0 1-2.087.793A3.286 3.286 0 0 0 7.875 6.03a9.325 9.325 0 0 1-6.767-3.429 3.289 3.289 0 0 0 1.018 4.382A3.323 3.323 0 0 1 .64 6.575v.045a3.288 3.288 0 0 0 2.632 3.218 3.203 3.203 0 0 1-.865.115 3.23 3.23 0 0 1-.614-.057 3.283 3.283 0 0 0 3.067 2.277A6.588 6.588 0 0 1 .78 13.58a6.32 6.32 0 0 1-.78-.045A9.344 9.344 0 0 0 5.026 15z"
-				></path></svg
-			>
-		</a>
-		<a href="#" target="_blank">
-			<span class="sr-only">Go to Vehicle GearUp's GitHub repo</span>
-			<svg viewBox="0 0 16 16" aria-hidden="true" width="32" height="32" astro-icon="social/github"
-				><path
-					fill="currentColor"
-					d="M8 0C3.58 0 0 3.58 0 8c0 3.54 2.29 6.53 5.47 7.59.4.07.55-.17.55-.38 0-.19-.01-.82-.01-1.49-2.01.37-2.53-.49-2.69-.94-.09-.23-.48-.94-.82-1.13-.28-.15-.68-.52-.01-.53.63-.01 1.08.58 1.23.82.72 1.21 1.87.87 2.33.66.07-.52.28-.87.51-1.07-1.78-.2-3.64-.89-3.64-3.95 0-.87.31-1.59.82-2.15-.08-.2-.36-1.02.08-2.12 0 0 .67-.21 2.2.82.64-.18 1.32-.27 2-.27.68 0 1.36.09 2 .27 1.53-1.04 2.2-.82 2.2-.82.44 1.1.16 1.92.08 2.12.51.56.82 1.27.82 2.15 0 3.07-1.87 3.75-3.65 3.95.29.25.54.73.54 1.48 0 1.07-.01 1.93-.01 2.2 0 .21.15.46.55.38A8.012 8.012 0 0 0 16 8c0-4.42-3.58-8-8-8z"
-				></path></svg
-			>
-		</a>
+		<p class="affiliate-note">
+			Vehicle GearUp is a participant in the Amazon Services LLC Associates Program. As an Amazon
+			Associate, we earn from qualifying purchases. <a href="/disclosure/">Learn more</a>.
+		</p>
+		<p class="copy">&copy; {today.getFullYear()} Vehicle GearUp. All rights reserved.</p>
 	</div>
-
-	<p class="affiliate-note">
-		Vehicle GearUp is a participant in the Amazon Services LLC Associates Program. As an Amazon
-		Associate, we earn from qualifying purchases. <a href="/disclosure/">Learn more</a>.
-	</p>
 </footer>
+
 <style>
 	footer {
-		padding: 2em 1em 6em 1em;
-		background: linear-gradient(var(--gray-gradient)) no-repeat;
-		color: rgb(var(--gray));
-		text-align: center;
+		margin-top: 4rem;
+		padding: 3.2rem 1.2rem 2rem;
+		background: #0c131d;
+		border-top: 4px solid var(--amber);
+		color: #aebbd0;
+		position: relative;
 	}
-	.footer-menu ul {
-		display: flex;
-		flex-wrap: wrap;
-		justify-content: center;
-		gap: 0.7rem;
-		list-style: none;
-		margin: 0 0 1em;
-		padding: 0;
+	footer::before {
+		content: '';
+		position: absolute;
+		left: 0;
+		right: 0;
+		top: 10px;
+		height: 3px;
+		opacity: 0.35;
+		background: repeating-linear-gradient(90deg, var(--amber) 0 38px, transparent 38px 76px);
 	}
-	.footer-menu a {
+	.footer-inner {
+		width: min(1100px, 100%);
+		margin: 0 auto;
+	}
+	.footer-grid {
+		display: grid;
+		grid-template-columns: 1.4fr 0.8fr 1.2fr;
+		gap: 2.6rem;
+		text-align: left;
+	}
+	.brand {
 		display: inline-flex;
 		align-items: center;
-		gap: 0.4rem;
-		background: rgb(var(--gray-light));
-		color: rgb(var(--black));
+		gap: 0.6rem;
 		text-decoration: none;
-		padding: 0.5rem 1rem;
-		border-radius: 999px;
-		font-size: 0.9rem;
-		font-weight: 600;
-		transition: 0.15s ease;
-	}
-	.footer-menu a:hover {
-		background: var(--accent);
 		color: #fff;
 	}
-	.social-links {
-		display: flex;
-		justify-content: center;
-		gap: 1em;
-		margin-top: 1em;
+	.brand:hover { color: #fff; }
+	.brand-mark {
+		width: 36px;
+		height: 36px;
+		border-radius: 10px;
+		display: grid;
+		place-items: center;
+		background: var(--amber);
+		color: #1b1303;
 	}
+	.brand-mark svg { width: 22px; height: 22px; }
+	.brand-text { font-family: var(--display); font-size: 1.6rem; font-weight: 700; line-height: 1; }
+	.brand-text b { color: var(--amber); }
+	.tagline {
+		margin: 1rem 0 0.3rem;
+		font-family: var(--display);
+		font-size: 1.25rem;
+		color: var(--amber);
+		letter-spacing: 0.02em;
+	}
+	.blurb { margin: 0; font-size: 0.92rem; line-height: 1.65; max-width: 38ch; }
+	.f-col h2 {
+		margin: 0 0 0.9rem;
+		font-family: var(--display);
+		font-size: 1.15rem;
+		letter-spacing: 0.12em;
+		text-transform: uppercase;
+		color: #fff;
+	}
+	.f-col ul { list-style: none; margin: 0; padding: 0; display: grid; gap: 0.55rem; }
+	.f-col li { margin: 0; font-size: 0.93rem; line-height: 1.55; }
+	address { font-style: normal; }
+	.k {
+		display: block;
+		font-size: 0.7rem;
+		letter-spacing: 0.14em;
+		text-transform: uppercase;
+		color: #7e8da6;
+		font-weight: 700;
+	}
+	footer a { color: #dfe6f1; text-decoration: none; }
+	footer a:hover { color: var(--amber); }
+	.f-col li a { border-bottom: 1px solid rgba(255, 255, 255, 0.18); }
+	.f-col li a:hover { border-color: var(--amber); }
+	.social-links { display: flex; gap: 0.7rem; margin-top: 1.1rem; }
 	.social-links a {
-		text-decoration: none;
-		color: rgb(var(--gray));
+		width: 40px;
+		height: 40px;
+		border-radius: 50%;
+		display: grid;
+		place-items: center;
+		background: rgba(255, 255, 255, 0.08);
+		border: 0;
+		transition: background 0.2s ease, color 0.2s ease, transform 0.2s ease;
 	}
-	.social-links a:hover {
-		color: rgb(var(--gray-dark));
-	}
+	.social-links a:hover { background: var(--amber); color: #1b1303; transform: translateY(-2px); }
 	.affiliate-note {
-		max-width: 46em;
-		margin: 1.5em auto 0;
-		font-size: 0.78em;
-		line-height: 1.5;
-		opacity: 0.85;
+		margin: 2.4rem 0 0.6rem;
+		padding-top: 1.4rem;
+		border-top: 1px solid rgba(255, 255, 255, 0.12);
+		font-size: 0.8rem;
+		line-height: 1.6;
+		text-align: center;
 	}
-	.affiliate-note a {
-		color: rgb(var(--gray-dark));
-		text-decoration: underline;
+	.affiliate-note a { text-decoration: underline; }
+	.copy { margin: 0; font-size: 0.8rem; text-align: center; color: #7e8da6; }
+
+	@media (max-width: 800px) {
+		.footer-grid { grid-template-columns: 1fr 1fr; gap: 2rem; }
+		.f-brand { grid-column: 1 / -1; }
+	}
+	@media (max-width: 480px) {
+		.footer-grid { grid-template-columns: 1fr; }
 	}
 </style>
