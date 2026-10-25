@@ -23,6 +23,14 @@ def slug_from_url(url):
     return urlparse(str(url)).path.strip("/").split("/")[-1]
 
 
+def both_variants(src, dst, code="301"):
+    """Cloudflare Pages treats /foo/ and /foo as different URLs -> emit both."""
+    src, dst = "/" + src.strip("/") + "/", "/" + dst.strip("/") + "/"
+    if src == dst:  # self-redirect = infinite loop
+        return []
+    return [f"{src} {dst} {code}", f"{src.rstrip('/')} {dst} {code}"]
+
+
 def norm(text):
     return re.sub(r"\s+", " ", str(text or "").strip().lower())
 
@@ -62,7 +70,7 @@ def main():
                 skipped.append({"slug": slug, "why": "kept post not found"})
                 continue
             kept_slug = slug_from_url(kept_url)
-            redirect_lines.append(f"/{slug}/ /{kept_slug}/ 301")
+            redirect_lines.extend(both_variants(slug, kept_slug))
             if md_path.exists():
                 md_path.unlink()
                 deleted += 1
@@ -89,8 +97,11 @@ def main():
             if REDIRECTS_PATH.exists()
             else ""
         )
+        existing = existing.replace("\r\n", "\n")  # force LF line endings
+        have = {l.split()[0] for l in existing.splitlines() if len(l.split()) >= 2}
+        new = [l for l in dict.fromkeys(redirect_lines) if l.split()[0] not in have]
         REDIRECTS_PATH.write_text(
-            existing.rstrip("\n") + "\n" + "\n".join(redirect_lines) + "\n",
+            existing.rstrip("\n") + "\n" + "\n".join(new) + "\n",
             encoding="utf-8",
         )
 
