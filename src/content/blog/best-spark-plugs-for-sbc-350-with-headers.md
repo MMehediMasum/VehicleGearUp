@@ -22,10 +22,10 @@ Products like ACCEL 8198 Performance U-Groove plugs and NGK V Power plugs offer 
 
 
 
-## <a href="https://www.amazon.com/dp/B000BW8NYC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Accel 8198 Performance U-groove Header Spark Plug</a>
+## <a href="https://www.amazon.com/dp/B000BW8NYC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Accel 8198 Performance U-groove Header Spark Plug</a>
 
 
-<a href="https://www.amazon.com/dp/B000BW8NYC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ACCEL 8198 Performance U-Groove Header Spark Plug - Pack of 8" src="https://m.media-amazon.com/images/I/4121LBJ2AbL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000BW8NYC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ACCEL 8198 Performance U-Groove Header Spark Plug - Pack of 8" src="https://m.media-amazon.com/images/I/4121LBJ2AbL._SL500_.jpg"/></a>
 
 
 The **ACCEL 8198 Performance U-Groove Header Spark Plug - Pack of 8** is ideal for automotive enthusiasts and professionals seeking enhanced engine performance and reliability. This product is perfect for those who want to upgrade their vehicle’s ignition system to achieve better fuel efficiency, increased horsepower, and a smoother driving experience.
@@ -48,10 +48,10 @@ The **ACCEL 8198 Performance U-Groove Header Spark Plug** boasts a unique U-groo
 
 Additionally, the pack of 8 spark plugs caters to a wide range of engines, particularly those with multiple cylinders, providing a complete solution for ignition system upgrades. The lightweight and compact dimensions facilitate straightforward installation without compromising durability. Users benefit from improved fuel economy and smoother engine operation, which translates to enhanced driving comfort and reduced maintenance costs over time.
 
-## <a href="https://www.amazon.com/dp/B06XC2ZX63?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jdmspeed New 10.5mm Spark Plug Wire Set</a>
+## <a href="https://www.amazon.com/dp/B06XC2ZX63?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jdmspeed New 10.5mm Spark Plug Wire Set</a>
 
 
-<a href="https://www.amazon.com/dp/B06XC2ZX63?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JDMSPEED New 10.5mm Spark Plug Wire Set Replacement for HEI SBC BBC 350 383 454 Electronic" src="https://m.media-amazon.com/images/I/510CwAp8bvL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B06XC2ZX63?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JDMSPEED New 10.5mm Spark Plug Wire Set Replacement for HEI SBC BBC 350 383 454 Electronic" src="https://m.media-amazon.com/images/I/510CwAp8bvL._SL500_.jpg"/></a>
 
 
 The **JDMSPEED New 10.5mm Spark Plug Wire Set Replacement** is ideal for automotive enthusiasts and mechanics looking to upgrade or replace the ignition wires on classic American V8 engines such as the **HEI SBC**, **BBC 350**, **383**, and **454 Electronic** systems. If you own a vehicle with these engine types and want reliable performance with a stylish touch, this spark plug wire set is designed for you.
@@ -73,10 +73,10 @@ The **JDMSPEED spark plug wire set** is engineered to offer superior ignition pe
 
 Beyond functionality, the bright red color enhances engine aesthetics, giving your vehicle a custom, high-performance look. The exact fitment dimensions allow for hassle-free installation, saving time and effort for both professionals and DIYers. Overall, this spark plug wire set combines style, reliability, and compatibility, making it a smart upgrade for those maintaining or restoring classic American V8 engines.
 
-## <a href="https://www.amazon.com/dp/B07R5QKX18?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ngk V Power Spark Plug Ur4 (8 Pack)</a>
+## <a href="https://www.amazon.com/dp/B07R5QKX18?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ngk V Power Spark Plug Ur4 (8 Pack)</a>
 
 
-<a href="https://www.amazon.com/dp/B07R5QKX18?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="NGK V Power Spark Plug UR4 (8 Pack) for CHEVROLET P20 1976-1984 5.7L/350" src="https://m.media-amazon.com/images/I/41B6K-AhQFL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07R5QKX18?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="NGK V Power Spark Plug UR4 (8 Pack) for CHEVROLET P20 1976-1984 5.7L/350" src="https://m.media-amazon.com/images/I/41B6K-AhQFL._SL500_.jpg"/></a>
 
 
 The **NGK V Power Spark Plug UR4 (8 Pack)** is ideal for classic car enthusiasts and mechanics who own or service the **CHEVROLET P20 1976-1984 5.7L/350** model. If you are looking to maintain or restore the performance of your vintage Chevrolet with reliable and high-quality spark plugs, this product is designed specifically to meet those needs.
@@ -97,10 +97,10 @@ The **NGK V Power Spark Plug UR4** features precision engineering that enhances 
 
 Additionally, the spark plug's optimal heat range and electrode design contribute to improved combustion efficiency, reducing emissions and engine knocking. Users benefit from a product that not only matches original equipment specifications but also offers enhanced durability, ensuring long-term engine health and performance. With the NGK V Power Spark Plug, maintaining your classic Chevrolet's engine is both straightforward and effective.
 
-## <a href="https://www.amazon.com/dp/B0196D53NU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Shinehome Spark Plug Wire Heat Shield Sleeve</a>
+## <a href="https://www.amazon.com/dp/B0196D53NU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Shinehome Spark Plug Wire Heat Shield Sleeve</a>
 
 
-<a href="https://www.amazon.com/dp/B0196D53NU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SHINEHOME Spark Plug Wire Heat Shield Sleeve 2500° Spark Plug Boot Protector Boots Wrap for SBC BBC 350 454 8PCS Plug Wire Covers" src="https://m.media-amazon.com/images/I/51uPLerAqNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0196D53NU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SHINEHOME Spark Plug Wire Heat Shield Sleeve 2500° Spark Plug Boot Protector Boots Wrap for SBC BBC 350 454 8PCS Plug Wire Covers" src="https://m.media-amazon.com/images/I/51uPLerAqNL._SL500_.jpg"/></a>
 
 
 The **SHINEHOME Spark Plug Wire Heat Shield Sleeve** is an essential purchase for car enthusiasts and mechanics who want to ensure the longevity and efficiency of their vehicle's ignition system. If you frequently drive in high-temperature environments or participate in motorsport activities, this product is designed to protect your spark plug wires from excessive heat, thereby enhancing performance and preventing engine misfires.
@@ -121,10 +121,10 @@ The SHINEHOME Spark Plug Wire Heat Shield Sleeve is crafted to resist extreme te
 
 Another notable feature is its **easy installation** process. Designed to fit most **SBC** and **BBC** engines, the sleeves provide a snug fit, ensuring comprehensive protection. The **durability** of the material means that once installed, you can trust these covers to perform consistently over time, providing peace of mind and reducing maintenance costs associated with heat damage. Despite the limited color option, the **black** design offers a sleek and professional appearance, seamlessly blending into any engine bay.
 
-## <a href="https://www.amazon.com/dp/B078WHXLDZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jegs Red Hot Pow’r Wires</a>
+## <a href="https://www.amazon.com/dp/B078WHXLDZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jegs Red Hot Pow’r Wires</a>
 
 
-<a href="https://www.amazon.com/dp/B078WHXLDZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JEGS Red Hot Pow’r Wires | 8mm | Made in USA | For Small Block Chevy | Designed to Fit Under Headers | 90 Degree Spark Plug and Distributor Boots" src="https://m.media-amazon.com/images/I/51MxeAZagcL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B078WHXLDZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JEGS Red Hot Pow’r Wires | 8mm | Made in USA | For Small Block Chevy | Designed to Fit Under Headers | 90 Degree Spark Plug and Distributor Boots" src="https://m.media-amazon.com/images/I/51MxeAZagcL._SL500_.jpg"/></a>
 
 
 The **JEGS Red Hot Pow’r Wires** are ideal for automotive enthusiasts and professional mechanics who own a **Small Block Chevy** engine and are looking for reliable, high-performance ignition wires. These wires are perfect for those who need a product that fits neatly under headers and offers durability with a clean, professional installation. If you want to enhance your engine’s spark delivery while maintaining compatibility with tight engine spaces, this item is an excellent choice.
@@ -147,10 +147,10 @@ These **JEGS Red Hot Pow’r Wires** boast a robust construction with an 8mm dia
 
 Additionally, the wires' ability to fit neatly under headers means they protect the wires from excess heat while maintaining a clean engine bay appearance. The bright red color not only adds an aesthetic appeal but also makes it easier to troubleshoot ignition issues by quickly identifying the wires. Overall, these wires provide a balance of performance, durability, and style, making them a valuable upgrade for anyone aiming to boost their small block Chevy’s ignition system.
 
-## <a href="https://www.amazon.com/dp/B095KLVQQ6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Moroso 51028 Ultra Series Black Spark Plug Wires</a>
+## <a href="https://www.amazon.com/dp/B095KLVQQ6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Moroso 51028 Ultra Series Black Spark Plug Wires</a>
 
 
-<a href="https://www.amazon.com/dp/B095KLVQQ6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Moroso 51028 Ultra Series Black Spark Plug Wires, Small Block Chevy, Under Header Routing, 90 Degree Plug Ends, HEI Distributor" src="https://m.media-amazon.com/images/I/41xnOZyGK0S._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B095KLVQQ6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Moroso 51028 Ultra Series Black Spark Plug Wires, Small Block Chevy, Under Header Routing, 90 Degree Plug Ends, HEI Distributor" src="https://m.media-amazon.com/images/I/41xnOZyGK0S._SL500_.jpg"/></a>
 
 
 The **Moroso 51028 Ultra Series Black Spark Plug Wires** are ideal for automotive enthusiasts and mechanics who own a **Small Block Chevy** engine and require reliable, high-performance ignition components. If you are looking to enhance your vehicle’s ignition system with durable wires that offer efficient routing and strong compatibility with **HEI distributors**, this product is tailored for you. These spark plug wires are especially suited for those who want an under-header routing setup with 90-degree plug ends for better fitment and cleaner engine bay aesthetics.
@@ -173,10 +173,10 @@ The **Moroso 51028 Ultra Series Black Spark Plug Wires** feature precise dimensi
 
 Additionally, these wires are manufactured by **Moroso**, a trusted brand known for high-performance automotive components. Their compatibility with **HEI distributors** ensures optimal spark delivery, improving engine efficiency and throttle response. The black color adds a professional look, blending seamlessly with most engine designs. Overall, these spark plug wires provide a combination of durability, performance, and ease of installation, making them a valuable upgrade for Small Block Chevy owners seeking reliable ignition improvements.
 
-## <a href="https://www.amazon.com/dp/B095L13FKT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Moroso 51528 Ultra Series Spark Plug Wires</a>
+## <a href="https://www.amazon.com/dp/B095L13FKT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Moroso 51528 Ultra Series Spark Plug Wires</a>
 
 
-<a href="https://www.amazon.com/dp/B095L13FKT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Moroso 51528 Ultra Series Black Sleeved Spark Plug Wires, Small Block Chevy, Under Header Routing, 90 Degree Plug Ends, HEI Distributor" src="https://m.media-amazon.com/images/I/51hUmaU1fmS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B095L13FKT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Moroso 51528 Ultra Series Black Sleeved Spark Plug Wires, Small Block Chevy, Under Header Routing, 90 Degree Plug Ends, HEI Distributor" src="https://m.media-amazon.com/images/I/51hUmaU1fmS._SL500_.jpg"/></a>
 
 
 The **Moroso 51528 Ultra Series Black Sleeved Spark Plug Wires** are ideal for automotive enthusiasts and mechanics who own or work on **Small Block Chevy** engines. These wires are perfect for those seeking reliable, high-performance ignition components, especially for vehicles with **Under Header Routing** and **HEI Distributor** setups. If you want durable, efficient spark plug wires with a sleek black design and 90-degree plug ends for better fitment, this product is a great choice.
@@ -199,10 +199,10 @@ The **Moroso 51528 Ultra Series Spark Plug Wires** deliver exceptional performan
 
 Additionally, these wires are manufactured by **Moroso**, a trusted name in automotive performance parts, ensuring high-quality materials and construction. The lightweight and compact dimensions make installation straightforward, and the wires' robust insulation helps prevent electrical interference for improved engine efficiency. Overall, these spark plug wires offer a reliable, efficient upgrade for anyone looking to enhance the ignition system of their **Small Block Chevy** engine.
 
-## <a href="https://www.amazon.com/dp/B00SKEDJTW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Acdelco Cr43ts Professional Conventional Spark Plug</a>
+## <a href="https://www.amazon.com/dp/B00SKEDJTW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Acdelco Cr43ts Professional Conventional Spark Plug</a>
 
 
-<a href="https://www.amazon.com/dp/B00SKEDJTW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ACDelco CR43TS 5614029 (05614029) Professional Conventional Spark Plug BOX OF 8" src="https://m.media-amazon.com/images/I/41nu3GNTDZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00SKEDJTW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ACDelco CR43TS 5614029 (05614029) Professional Conventional Spark Plug BOX OF 8" src="https://m.media-amazon.com/images/I/41nu3GNTDZL._SL500_.jpg"/></a>
 
 
 The **ACDelco CR43TS 5614029 (05614029) Professional Conventional Spark Plug BOX OF 8** is ideal for vehicle owners and automotive enthusiasts looking for reliable and efficient ignition components. If you are seeking a durable spark plug that delivers consistent performance for everyday driving or routine maintenance, this product is designed to meet your needs. It is particularly suited for those who want to maintain engine efficiency and prolong the life of their vehicle’s ignition system.
@@ -224,10 +224,10 @@ The **ACDelco CR43TS spark plugs** are engineered to provide dependable ignition
 
 With a focus on durability, the spark plugs come in a practical **box of 8**, allowing users to easily replace multiple plugs at once or keep spares on hand. The robust build quality means they can withstand harsh engine conditions, delivering long-lasting performance. Overall, the ACDelco CR43TS spark plugs offer a balanced combination of quality, convenience, and affordability for anyone aiming to keep their engine running smoothly.
 
-## <a href="https://www.amazon.com/dp/B019XEJJY6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Moroso Spark Plug Wire Set</a>
+## <a href="https://www.amazon.com/dp/B019XEJJY6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Moroso Spark Plug Wire Set</a>
 
 
-<a href="https://www.amazon.com/dp/B019XEJJY6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Moroso Spark Plug Wire Set, Ultra 40, Spiral Core, 8.65 mm, Black, 90 Degree Plug Boots, HEI Style Terminal, Sprint Car, V8, Kit" src="https://m.media-amazon.com/images/I/41eiiW1tXZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B019XEJJY6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Moroso Spark Plug Wire Set, Ultra 40, Spiral Core, 8.65 mm, Black, 90 Degree Plug Boots, HEI Style Terminal, Sprint Car, V8, Kit" src="https://m.media-amazon.com/images/I/41eiiW1tXZL._SL500_.jpg"/></a>
 
 
 The **Moroso Spark Plug Wire Set, Ultra 40** is ideal for automotive enthusiasts and professional mechanics who demand high performance and reliability in their ignition systems. This set is perfect for those who own **Sprint Cars** or **V8 engines** and require durable, efficient spark plug wires that can withstand intense racing conditions and deliver consistent power.
@@ -249,10 +249,10 @@ The **Moroso Ultra 40 Spark Plug Wire Set** features a robust spiral core that m
 
 Additionally, the inclusion of **90-degree plug boots** makes installation easier in confined spaces, reducing strain on the wires and connectors. The **HEI style terminals** provide a snug and reliable connection to the ignition system, preventing misfires and power loss. Overall, this wire set is engineered to improve ignition reliability and boost engine responsiveness, making it a valuable upgrade for serious racers and V8 engine owners.
 
-## <a href="https://www.amazon.com/dp/B088LJ4QF6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">10.5mm High Performance Spark Plug Wire Set</a>
+## <a href="https://www.amazon.com/dp/B088LJ4QF6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">10.5mm High Performance Spark Plug Wire Set</a>
 
 
-<a href="https://www.amazon.com/dp/B088LJ4QF6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="10.5mm High Performance Spark Plug Wire Set Fit for HEI BBC SBC 350 454 383 Electronic by Lucky Seven" src="https://m.media-amazon.com/images/I/415gkYvCFYL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B088LJ4QF6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="10.5mm High Performance Spark Plug Wire Set Fit for HEI BBC SBC 350 454 383 Electronic by Lucky Seven" src="https://m.media-amazon.com/images/I/415gkYvCFYL._SL500_.jpg"/></a>
 
 
 The **10.5mm High Performance Spark Plug Wire Set** by **Lucky Seven** is ideal for automotive enthusiasts and mechanics seeking a reliable upgrade for their **HEI BBC SBC 350 454 383 Electronic ignition systems**. If you own classic American V8 engines and want to enhance your vehicle's ignition performance, this spark plug wire set is designed to deliver consistent power and durability.

@@ -23,10 +23,10 @@ Models like the XS Power D3400 and Skar Audio 12V AGM offer different sizes and 
 
 
 
-## <a href="https://www.amazon.com/dp/B005FYJ5B6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Xs Power D3400 3300 Amp Agm Battery With M6 Terminal Hardware</a>
+## <a href="https://www.amazon.com/dp/B005FYJ5B6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Xs Power D3400 3300 Amp Agm Battery With M6 Terminal Hardware</a>
 
 
-<a href="https://www.amazon.com/dp/B005FYJ5B6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="XS Power D3400 3300 Amp AGM Battery with M6 Terminal Hardware - 12 Volt 80Ah 1150CA Deep Cycle AGM Powercell for Winch, Car Audio Systems - 49.97 lbs, Maintenance Free, Sealed Design" src="https://m.media-amazon.com/images/I/51hY3cAtUVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B005FYJ5B6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="XS Power D3400 3300 Amp AGM Battery with M6 Terminal Hardware - 12 Volt 80Ah 1150CA Deep Cycle AGM Powercell for Winch, Car Audio Systems - 49.97 lbs, Maintenance Free, Sealed Design" src="https://m.media-amazon.com/images/I/51hY3cAtUVL._SL500_.jpg"/></a>
 
 
 The **XS Power D3400 3300 Amp AGM Battery** is ideal for automotive enthusiasts, off-road adventurers, and professionals who require a reliable and powerful energy source for their vehicles. Whether you are powering a **winch** on your truck or running high-performance **car audio systems**, this **12 Volt 80Ah deep cycle AGM battery** offers the durability and strength needed to handle demanding electrical loads. Its maintenance-free and sealed design makes it perfect for users seeking a hassle-free, long-lasting power solution.
@@ -49,10 +49,10 @@ The **XS Power D3400 battery** features advanced **AGM technology**, which provi
 
 Additionally, the battery’s deep cycle capability means it can be repeatedly discharged and recharged without losing efficiency, which is essential for users who rely on sustained power output over time. The included **M6 terminal hardware** ensures easy installation and secure connections, reducing the risk of electrical faults. Overall, this battery is a robust and dependable choice for anyone needing a strong, maintenance-free power source.
 
-## <a href="https://www.amazon.com/dp/B0089NRCQ0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Xs Power Xp3000 Agm Secondary Battery</a>
+## <a href="https://www.amazon.com/dp/B0089NRCQ0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Xs Power Xp3000 Agm Secondary Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B0089NRCQ0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="XS Power XP3000 3000 Amp AGM Secondary Battery with M6 Terminal Hardware - 12 Volt 120Ah 3000W Deep Cycle AGM Battery for Car Audio Stereo Systems - 73 lbs, Maintenance Free, Sealed Powercell" src="https://m.media-amazon.com/images/I/51u7hrzh5wL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0089NRCQ0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="XS Power XP3000 3000 Amp AGM Secondary Battery with M6 Terminal Hardware - 12 Volt 120Ah 3000W Deep Cycle AGM Battery for Car Audio Stereo Systems - 73 lbs, Maintenance Free, Sealed Powercell" src="https://m.media-amazon.com/images/I/51u7hrzh5wL._SL500_.jpg"/></a>
 
 
 The **XS Power XP3000 3000 Amp AGM Secondary Battery** is ideal for car audio enthusiasts and professionals who demand reliable, high-performance power for their sound systems. If you are looking to enhance your vehicle’s stereo setup with a robust, maintenance-free power source that supports deep cycle use, this battery is designed for you. Its **12 Volt 120Ah** capacity and **3000W** output make it perfect for those needing consistent, high-current power in demanding environments.
@@ -75,10 +75,10 @@ The **XS Power XP3000** battery features advanced **Absorbent Glass Mat (AGM) te
 
 Additionally, the battery’s **deep cycle capability** means it can handle multiple discharge and recharge cycles without significant performance degradation. This makes it especially beneficial for users who run powerful amplifiers or other electronic devices that require steady and continuous power. The included **M6 terminal hardware** further simplifies installation, ensuring a secure connection and minimizing power loss, thereby optimizing your car audio experience.
 
-## <a href="https://www.amazon.com/dp/B001GN0CNU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Xs Power D680 Agm Battery</a>
+## <a href="https://www.amazon.com/dp/B001GN0CNU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Xs Power D680 Agm Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B001GN0CNU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="XS Power D680 1000 Amp AGM Battery with M6 Terminal Hardware - 12 Volt 20Ah 370CA Deep Cycle AGM Battery for Car Audio Stereo Systems - 13.69 lbs, Maintenance Free, Sealed Powercell" src="https://m.media-amazon.com/images/I/51YUYvvZPoL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B001GN0CNU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="XS Power D680 1000 Amp AGM Battery with M6 Terminal Hardware - 12 Volt 20Ah 370CA Deep Cycle AGM Battery for Car Audio Stereo Systems - 13.69 lbs, Maintenance Free, Sealed Powercell" src="https://m.media-amazon.com/images/I/51YUYvvZPoL._SL500_.jpg"/></a>
 
 
 The **XS Power D680 1000 Amp AGM Battery** is ideal for car audio enthusiasts and professionals who require a reliable and powerful battery to support high-performance stereo systems. If you are looking for a **maintenance-free, deep cycle battery** that delivers consistent power and durability, this battery is designed to meet those needs. Perfect for anyone upgrading their vehicle's audio setup or needing a dependable power source for demanding applications.
@@ -102,10 +102,10 @@ The **XS Power D680** battery features advanced **Absorbent Glass Mat (AGM) tech
 
 Designed to support **car audio stereo systems**, this 12-volt, 20Ah battery delivers a strong 370 cold cranking amps (CCA) rating, providing the necessary power to drive demanding sound systems without voltage drop. Its deep cycle capability means it can handle repeated discharges and recharges, extending the life of your audio setup and ensuring consistent performance during long listening sessions or vehicle use.
 
-## <a href="https://www.amazon.com/dp/B003TQ09TY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Xs Power D1200 12 Volt Agm Battery</a>
+## <a href="https://www.amazon.com/dp/B003TQ09TY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Xs Power D1200 12 Volt Agm Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B003TQ09TY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="XS Power D1200 2600 Amp AGM Battery with M6 Terminal Hardware - 12 Volt 55Ah 740CA Deep Cycle AGM Powercell for UTV, Car Audio Systems - 35.30 lbs, Maintenance Free, Sealed Design" src="https://m.media-amazon.com/images/I/51qaY7DNmoL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B003TQ09TY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="XS Power D1200 2600 Amp AGM Battery with M6 Terminal Hardware - 12 Volt 55Ah 740CA Deep Cycle AGM Powercell for UTV, Car Audio Systems - 35.30 lbs, Maintenance Free, Sealed Design" src="https://m.media-amazon.com/images/I/51qaY7DNmoL._SL500_.jpg"/></a>
 
 
 The **XS Power D1200 2600 Amp AGM Battery** is an ideal choice for **enthusiasts of car audio systems** and **UTV owners** who demand high performance and reliability. This **battery** is perfect for those who require a **maintenance-free** and **sealed design** power source that can deliver consistent power with **deep cycle capabilities**. If you need a battery that can withstand rigorous use and provide **superior power** for extended periods, this is the product for you.
@@ -126,10 +126,10 @@ The **XS Power D1200** is engineered with a **sealed AGM design** that eliminate
 
 Another standout feature is the **deep cycle capability**, which provides consistent power delivery without the degradation typically seen in other battery types. This makes it particularly beneficial for users who require sustained power over long periods, such as during off-road excursions or lengthy audio sessions. The **compact dimensions** also mean it can fit into a variety of setups without occupying excessive space, adding to its versatility as a power solution.
 
-## <a href="https://www.amazon.com/dp/B08R6Z11HQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Reikken Pr2400 Energie</a>
+## <a href="https://www.amazon.com/dp/B08R6Z11HQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Reikken Pr2400 Energie</a>
 
 
-<a href="https://www.amazon.com/dp/B08R6Z11HQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Reikken PR2400 Energie 2400 Watt 12 Volt Power Cell" src="https://m.media-amazon.com/images/I/415ZNwKSVTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08R6Z11HQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Reikken PR2400 Energie 2400 Watt 12 Volt Power Cell" src="https://m.media-amazon.com/images/I/415ZNwKSVTL._SL500_.jpg"/></a>
 
 
 The **Reikken PR2400 Energie 2400 Watt 12 Volt Power Cell** is ideal for outdoor enthusiasts, RV owners, and anyone in need of a reliable and portable power source. This item is perfect for those who require a high-capacity energy solution to power their devices and appliances on the go, whether camping, during power outages, or off-grid adventures.
@@ -152,10 +152,10 @@ The **Reikken PR2400 Energie 2400 Watt 12 Volt Power Cell** offers a potent comb
 
 Additionally, the power cell’s manageable weight and dimensions allow for easy transport and storage without sacrificing performance. Whether used as a backup power source or a primary energy supply in remote locations, this power cell promises consistent and dependable performance, making it a valuable investment for those seeking freedom from traditional power constraints.
 
-## <a href="https://www.amazon.com/dp/B07VMDZN5M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Xs Power Ps1200l</a>
+## <a href="https://www.amazon.com/dp/B07VMDZN5M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Xs Power Ps1200l</a>
 
 
-<a href="https://www.amazon.com/dp/B07VMDZN5M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="XS Power PS1200L 2600A Amp 12V Power Cell AGM Car Audio Battery 1500W / 3000W" src="https://m.media-amazon.com/images/I/515FXHkr5fL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07VMDZN5M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="XS Power PS1200L 2600A Amp 12V Power Cell AGM Car Audio Battery 1500W / 3000W" src="https://m.media-amazon.com/images/I/515FXHkr5fL._SL500_.jpg"/></a>
 
 
 The **XS Power PS1200L 2600A Amp 12V Power Cell AGM Car Audio Battery** is ideal for car audio enthusiasts and professionals who demand high performance and reliability from their power source. If you are looking to power high wattage audio systems up to **1500W** continuous and **3000W** peak output, this battery is designed to meet those needs, ensuring your equipment runs smoothly without power drops. It is perfect for users who require a robust, compact, and durable power solution for their automotive audio setups.
@@ -178,10 +178,10 @@ The **XS Power PS1200L** features an Absorbent Glass Mat (AGM) design that offer
 
 With a continuous power rating of **1500W** and a peak power of **3000W**, this battery supports demanding audio amplifiers and other high-draw equipment. Users benefit from longer playtime and reduced risk of power failure during intense audio sessions. Additionally, the robust build and trusted brand reputation of **XS Power** provide peace of mind for those investing in quality car audio components. Overall, this power cell is engineered to enhance your audio experience by providing dependable, high-performance energy storage.
 
-## <a href="https://www.amazon.com/dp/B01CYLHS20?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mighty Max Battery Viper</a>
+## <a href="https://www.amazon.com/dp/B01CYLHS20?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mighty Max Battery Viper</a>
 
 
-<a href="https://www.amazon.com/dp/B01CYLHS20?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mighty Max Battery Viper by Mighty Max Battery VP-600-12 Volt 18 AH, 600 Watt Car Audio High Current Power Cell Battery" src="https://m.media-amazon.com/images/I/51ca+jW8lgL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01CYLHS20?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mighty Max Battery Viper by Mighty Max Battery VP-600-12 Volt 18 AH, 600 Watt Car Audio High Current Power Cell Battery" src="https://m.media-amazon.com/images/I/51ca+jW8lgL._SL500_.jpg"/></a>
 
 
 The **Mighty Max Battery Viper** by Mighty Max Battery VP-600-12 Volt 18 AH is ideal for car audio enthusiasts and professionals who require a reliable and high-current power source. If you are looking to enhance your vehicle's audio system with a durable and efficient battery that delivers consistent performance, this power cell battery is designed to meet those needs.
@@ -204,10 +204,10 @@ The **Mighty Max Battery Viper VP-600-12 Volt** is engineered to support high cu
 
 Additionally, the battery's compact size allows for easy installation in various vehicle models, even those with limited space. The robust construction by **Mighty Max Battery** guarantees durability and consistent energy delivery, which is essential for maintaining the integrity of sensitive audio equipment. Overall, this battery offers a dependable solution for anyone looking to upgrade their car audio power source.
 
-## <a href="https://www.amazon.com/dp/B0CWLYQ37R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Skar Audio 12v Agm 300 Amp 20ah High Performance Car Audio Battery</a>
+## <a href="https://www.amazon.com/dp/B0CWLYQ37R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Skar Audio 12v Agm 300 Amp 20ah High Performance Car Audio Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B0CWLYQ37R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Skar Audio 12V AGM 300 Amp 20Ah High Performance Car Audio Battery with Terminals | SK-BATT20AH" src="https://m.media-amazon.com/images/I/417ywEJGf0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CWLYQ37R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Skar Audio 12V AGM 300 Amp 20Ah High Performance Car Audio Battery with Terminals | SK-BATT20AH" src="https://m.media-amazon.com/images/I/417ywEJGf0L._SL500_.jpg"/></a>
 
 
 The **Skar Audio 12V AGM 300 Amp 20Ah High Performance Car Audio Battery** is ideal for car audio enthusiasts and professionals who require a reliable and powerful battery to support high-demand sound systems. If you are looking to enhance your vehicle's audio performance with a battery that delivers consistent power and durability, this product is designed to meet those needs effectively.
@@ -230,10 +230,10 @@ The **Skar Audio 12V AGM 300 Amp 20Ah battery** features advanced **AGM technolo
 
 Additionally, the battery's high current output ensures consistent power delivery to your car audio equipment, minimizing distortion and providing clearer sound quality. The inclusion of terminals simplifies the connection process, saving time during setup. Overall, this battery is engineered to support the demanding energy requirements of modern car audio enthusiasts, ensuring your system operates at peak performance.
 
-## <a href="https://www.amazon.com/dp/B09ZVLS29Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Xs Power Xp1500</a>
+## <a href="https://www.amazon.com/dp/B09ZVLS29Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Xs Power Xp1500</a>
 
 
-<a href="https://www.amazon.com/dp/B09ZVLS29Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="XS Power XP1500 12V 1500 Amp Deep Cycle AGM Car Audio Battery/Power Cell" src="https://m.media-amazon.com/images/I/41EkjElgrsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09ZVLS29Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="XS Power XP1500 12V 1500 Amp Deep Cycle AGM Car Audio Battery/Power Cell" src="https://m.media-amazon.com/images/I/41EkjElgrsL._SL500_.jpg"/></a>
 
 
 The **XS Power XP1500 12V 1500 Amp Deep Cycle AGM Car Audio Battery/Power Cell** is ideal for car audio enthusiasts and professionals who demand reliable and high-performance power solutions. If you are looking to power advanced sound systems or require a durable battery for deep cycle applications, this battery is designed to meet those needs with exceptional efficiency and longevity.
@@ -255,10 +255,10 @@ The **XS Power XP1500** features advanced **Absorbent Glass Mat (AGM)** technolo
 
 With its compact yet sturdy design, the battery fits well into most vehicle compartments without taking up excessive space. The silver color and robust construction not only add aesthetic appeal but also improve resistance to vibrations and external impacts. Overall, the **XS Power XP1500** offers users a dependable and efficient power source that enhances audio performance while enduring the rigors of daily use.
 
-## <a href="https://www.amazon.com/dp/B005FYJ67O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Xs Power D6500 Agm Battery</a>
+## <a href="https://www.amazon.com/dp/B005FYJ67O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Xs Power D6500 Agm Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B005FYJ67O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="XS Power D6500 3800 Amp AGM Battery with M6 Terminal Hardware - 12 Volt 86Ah 1100CA Deep Cycle AGM Powercell for Car Audio Systems or Electronics - 53.81 lbs, Maintenance Free, Sealed Design" src="https://m.media-amazon.com/images/I/41PZqDbeBwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B005FYJ67O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="XS Power D6500 3800 Amp AGM Battery with M6 Terminal Hardware - 12 Volt 86Ah 1100CA Deep Cycle AGM Powercell for Car Audio Systems or Electronics - 53.81 lbs, Maintenance Free, Sealed Design" src="https://m.media-amazon.com/images/I/41PZqDbeBwL._SL500_.jpg"/></a>
 
 
 The **XS Power D6500 3800 Amp AGM Battery** is ideal for car audio enthusiasts, professional installers, and anyone seeking a reliable power source for high-performance electronics. If you need a **maintenance-free** and **sealed 12 Volt 86Ah deep cycle battery** that can deliver consistent power for demanding applications, this battery is a perfect choice.

@@ -23,10 +23,10 @@ Windproof and insulated materials block cold air, keeping heat inside. Face mask
 
 
 
-## <a href="https://www.amazon.com/dp/B08F517NJP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Venustas Men's Heated Jacket</a>
+## <a href="https://www.amazon.com/dp/B08F517NJP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Venustas Men's Heated Jacket</a>
 
 
-<a href="https://www.amazon.com/dp/B08F517NJP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Venustas Men's Heated Jacket with Battery Pack, Windproof Electric Insulated Coat with Detachable Hood" src="https://m.media-amazon.com/images/I/41LhWbzRvyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08F517NJP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Venustas Men's Heated Jacket with Battery Pack, Windproof Electric Insulated Coat with Detachable Hood" src="https://m.media-amazon.com/images/I/41LhWbzRvyL._SL500_.jpg"/></a>
 
 
 The **Venustas Men's Heated Jacket with Battery Pack** is ideal for outdoor enthusiasts, commuters, and anyone who frequently faces cold and windy weather. Whether you enjoy hiking, camping, or simply need extra warmth during chilly days, this **windproof electric insulated coat** with a detachable hood offers a perfect blend of comfort and technology to keep you warm and protected.
@@ -48,10 +48,10 @@ The **Venustas Men's Heated Jacket** features an innovative electric heating sys
 
 The **detachable hood** adds versatility, allowing users to remove it when not needed or when layering with other gear. The jacket’s sleek black design makes it suitable for both casual and outdoor wear, blending functionality with style. Manufactured by **XIAMEN XIABA ELECTRONIC TECHNOLOGY CO., LTD**, this jacket is built with quality materials to ensure durability and long-lasting performance. Overall, the Venustas Heated Jacket offers a smart solution to staying warm without sacrificing mobility or convenience.
 
-## <a href="https://www.amazon.com/dp/B0DB8NC269?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Electric Heated Underwear Set</a>
+## <a href="https://www.amazon.com/dp/B0DB8NC269?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Electric Heated Underwear Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0DB8NC269?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Electric Heated Underwear Set Fleece Lined Thermal Body Suit Men Winter APP Control Temperature Motorcycle Top Pants (Black, XL)" src="https://m.media-amazon.com/images/I/411o6KPUxfL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DB8NC269?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Electric Heated Underwear Set Fleece Lined Thermal Body Suit Men Winter APP Control Temperature Motorcycle Top Pants (Black, XL)" src="https://m.media-amazon.com/images/I/411o6KPUxfL._SL500_.jpg"/></a>
 
 
 The **Electric Heated Underwear Set** is perfect for men who face extreme cold conditions, especially those who enjoy outdoor activities such as motorcycling, hiking, or working in low temperatures. Ideal for anyone seeking advanced warmth and comfort, this **fleece-lined thermal body suit** offers customizable heat via **APP control**, making it a practical choice for winter enthusiasts and professionals alike.
@@ -75,10 +75,10 @@ This **Electric Heated Underwear Set** combines cutting-edge technology with pra
 
 Additionally, the set is tailored to meet the needs of **motorcycle riders** who require mobility without sacrificing warmth. The sleek black color and XL sizing provide a versatile and comfortable fit, while the trusted **Foern brand** guarantees quality and durability. Whether commuting, working outdoors, or enjoying winter sports, this heated thermal suit offers an innovative solution to staying warm and comfortable in the coldest environments.
 
-## <a href="https://www.amazon.com/dp/B09L1QDM8N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gerbing 12v Battery Heated Motorcycle Socks</a>
+## <a href="https://www.amazon.com/dp/B09L1QDM8N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gerbing 12v Battery Heated Motorcycle Socks</a>
 
 
-<a href="https://www.amazon.com/dp/B09L1QDM8N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gerbing 12V Battery Heated Motorcycle Socks, Unisex, Patented Microwire Heating for Powersports, Snowmobiling, UTV L" src="https://m.media-amazon.com/images/I/41YudFoHQeL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09L1QDM8N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gerbing 12V Battery Heated Motorcycle Socks, Unisex, Patented Microwire Heating for Powersports, Snowmobiling, UTV L" src="https://m.media-amazon.com/images/I/41YudFoHQeL._SL500_.jpg"/></a>
 
 
 Ideal for **motorcycle riders**, **snowmobilers**, and **powersports enthusiasts** who face cold weather conditions, the **Gerbing 12V Battery Heated Motorcycle Socks** provide essential warmth and comfort. These **unisex heated socks** are perfect for anyone looking to maintain foot warmth during extended outdoor activities in winter or chilly environments.
@@ -101,10 +101,10 @@ The **Gerbing 12V Battery Heated Motorcycle Socks** feature innovative **Microwi
 
 Designed with both functionality and comfort in mind, these heated socks are lightweight and fit comfortably inside most footwear. Their durable build is tailored to withstand the rigors of **powersports and snowmobiling**, making them a dependable choice for outdoor enthusiasts. By maintaining optimal foot warmth, users can enhance circulation, reduce fatigue, and enjoy longer periods of activity without discomfort.
 
-## <a href="https://www.amazon.com/dp/B018MNW7NE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gerbing Heated Jacket Liner</a>
+## <a href="https://www.amazon.com/dp/B018MNW7NE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gerbing Heated Jacket Liner</a>
 
 
-<a href="https://www.amazon.com/dp/B018MNW7NE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gerbing Heated Jacket Liner - 12V Motorcycle Gear - 7 Heat Zones S" src="https://m.media-amazon.com/images/I/41nyp8o7L0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B018MNW7NE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gerbing Heated Jacket Liner - 12V Motorcycle Gear - 7 Heat Zones S" src="https://m.media-amazon.com/images/I/41nyp8o7L0L._SL500_.jpg"/></a>
 
 
 The **Gerbing Heated Jacket Liner - 12V Motorcycle Gear - 7 Heat Zones S** is ideal for motorcycle enthusiasts and outdoor adventurers who face cold weather conditions. This product is perfect for riders who want to maintain warmth and comfort during chilly rides without adding bulky layers. It’s especially suited for those seeking reliable, adjustable heating solutions integrated into their riding gear.
@@ -127,10 +127,10 @@ The **Gerbing Heated Jacket Liner** features seven strategically placed heat zon
 
 Additionally, the liner’s slim and lightweight construction allows it to fit discreetly under most riding jackets without bulkiness, preserving mobility and comfort. Made by the reputable **Gerbing** brand, the jacket liner emphasizes durability and quality, ensuring that riders invest in a product built to withstand rigorous outdoor use. Overall, this heated liner enhances the riding experience by providing reliable warmth, helping to maintain focus and safety during cold weather excursions.
 
-## <a href="https://www.amazon.com/dp/B08GKG6RBV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ilm Motorcycle Balaclava Face Mask</a>
+## <a href="https://www.amazon.com/dp/B08GKG6RBV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ilm Motorcycle Balaclava Face Mask</a>
 
 
-<a href="https://www.amazon.com/dp/B08GKG6RBV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ILM Motorcycle Balaclava Face Mask for Ski Snowboard Cycling Working Men Women Cold Weather Snow Mask" src="https://m.media-amazon.com/images/I/41I5N+dGPpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08GKG6RBV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ILM Motorcycle Balaclava Face Mask for Ski Snowboard Cycling Working Men Women Cold Weather Snow Mask" src="https://m.media-amazon.com/images/I/41I5N+dGPpL._SL500_.jpg"/></a>
 
 
 The **ILM Motorcycle Balaclava Face Mask** is perfect for individuals who often find themselves in **cold weather** conditions, such as **motorcyclists, skiers, snowboarders, and cyclists**. It's also ideal for those who work outdoors in chilly climates. This mask is designed to provide warmth and protection against the elements, making it an essential accessory for anyone who needs to stay warm while being active outside.
@@ -150,10 +150,10 @@ The **ILM Motorcycle Balaclava Face Mask** features a sleek design in **Adult Bl
 
 One of the standout benefits of this face mask is its versatility. Whether you're a **cyclist** navigating through chilly morning air or someone who works outdoors, the mask serves as a reliable companion. The **ILM** brand is known for its durable products, ensuring that this mask will withstand frequent use across different outdoor activities. Its lightweight construction also means that it can be easily carried in a pocket or backpack, providing convenience and accessibility whenever the need arises.
 
-## <a href="https://www.amazon.com/dp/B07WQW472G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sireck Cold Weather Balaclava Ski Mask</a>
+## <a href="https://www.amazon.com/dp/B07WQW472G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sireck Cold Weather Balaclava Ski Mask</a>
 
 
-<a href="https://www.amazon.com/dp/B07WQW472G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Sireck Cold Weather Balaclava Ski Mask, Water Resistant and Windproof Fleece Thermal Face Mask, Cycling Motorcycle Neck Warmer Hood Winter Gear for Men Women" src="https://m.media-amazon.com/images/I/41VbJquOnkL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07WQW472G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Sireck Cold Weather Balaclava Ski Mask, Water Resistant and Windproof Fleece Thermal Face Mask, Cycling Motorcycle Neck Warmer Hood Winter Gear for Men Women" src="https://m.media-amazon.com/images/I/41VbJquOnkL._SL500_.jpg"/></a>
 
 
 The **Sireck Cold Weather Balaclava Ski Mask** is ideal for outdoor enthusiasts who need reliable protection against harsh winter elements. Whether you are a cyclist, motorcyclist, skier, or simply someone who spends a lot of time outdoors in cold weather, this mask offers excellent insulation and comfort. Men and women looking for a versatile and durable winter gear accessory will find this product especially useful.
@@ -175,10 +175,10 @@ The **Sireck Cold Weather Balaclava Ski Mask** is crafted with **high-quality fl
 
 Additionally, this balaclava is lightweight and compact, which means it won’t weigh you down or feel bulky under helmets or hats. The **water resistant and windproof** features enhance durability and user comfort, ensuring you stay dry and shielded in unpredictable weather conditions. Overall, the **Sireck Ski Mask** combines functionality with comfort, making it a reliable choice for anyone looking to stay warm and protected during winter adventures.
 
-## <a href="https://www.amazon.com/dp/B0CP4792PK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rock88 Winter Thermal Heated Underwear Set</a>
+## <a href="https://www.amazon.com/dp/B0CP4792PK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rock88 Winter Thermal Heated Underwear Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0CP4792PK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rock88 Winter Thermal Heated Underwear Set USB Electric Fleece T-Shirts Pants Outdoors Ski Wear Soft Motorcycle Heated Base Layer,Black,S(Bust:92cm)" src="https://m.media-amazon.com/images/I/410C4JJW9HL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CP4792PK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rock88 Winter Thermal Heated Underwear Set USB Electric Fleece T-Shirts Pants Outdoors Ski Wear Soft Motorcycle Heated Base Layer,Black,S(Bust:92cm)" src="https://m.media-amazon.com/images/I/410C4JJW9HL._SL500_.jpg"/></a>
 
 
 The **Rock88 Winter Thermal Heated Underwear Set** is ideal for individuals who spend extended periods outdoors in cold weather, such as skiers, motorcyclists, hikers, and outdoor workers. Those seeking reliable warmth combined with comfort and flexibility will find this heated base layer particularly beneficial. It is perfect for anyone wanting to maintain body heat without bulky clothing during winter activities.
@@ -202,10 +202,10 @@ The **Rock88 Winter Thermal Heated Underwear Set** combines advanced electric he
 
 Additionally, the set's design as a base layer makes it highly versatile—it can be worn discreetly under regular clothing without adding bulk. This means users can enjoy the benefits of thermal heating while maintaining freedom of movement, which is crucial during activities like skiing or motorcycling. The durable construction by **Rock88** ensures long-lasting performance, making this heated underwear set a valuable investment for winter outdoor gear.
 
-## <a href="https://www.amazon.com/dp/B0DHZK75B5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Foern Heated Thermals Underwear Set</a>
+## <a href="https://www.amazon.com/dp/B0DHZK75B5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Foern Heated Thermals Underwear Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0DHZK75B5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Foern Heated Thermals Underwear Set for Men Women 28 App Control Electric Tops and Pants for Hunting, Dog-Walking, Shoveling (Black, L(Chest38.6in))" src="https://m.media-amazon.com/images/I/41lOrQfqiqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DHZK75B5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Foern Heated Thermals Underwear Set for Men Women 28 App Control Electric Tops and Pants for Hunting, Dog-Walking, Shoveling (Black, L(Chest38.6in))" src="https://m.media-amazon.com/images/I/41lOrQfqiqL._SL500_.jpg"/></a>
 
 
 The **Foern Heated Thermals Underwear Set for Men Women** is ideal for individuals who spend extended periods outdoors in cold weather, such as hunters, dog walkers, or anyone shoveling snow. This set is perfect for those seeking reliable warmth and comfort through advanced heating technology integrated into their clothing. If you want to stay cozy without bulky layers, this electric heated thermal set is designed just for you.
@@ -228,10 +228,10 @@ The **Foern Heated Thermals Underwear Set** integrates innovative electric heati
 
 Designed with versatility in mind, the set caters to both men and women, and its sleek **black color** makes it easy to layer under regular clothing discreetly. The advanced heating technology extends wearable warmth for hours, significantly enhancing outdoor experiences in freezing temperatures. Whether shoveling snow or enjoying a winter hike, users will appreciate the consistent heat and comfort this set delivers, backed by the reputable **Foern brand**.
 
-## <a href="https://www.amazon.com/dp/B0DN1QRF45?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Heated Balaclava Winter</a>
+## <a href="https://www.amazon.com/dp/B0DN1QRF45?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Heated Balaclava Winter</a>
 
 
-<a href="https://www.amazon.com/dp/B0DN1QRF45?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Heated Balaclava Winter，Heated ski Mask Suitable for Men and Women，Windproof Heated Hat for Motorcycle Riding (No Battery Black" src="https://m.media-amazon.com/images/I/317ATz+r36L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DN1QRF45?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Heated Balaclava Winter，Heated ski Mask Suitable for Men and Women，Windproof Heated Hat for Motorcycle Riding (No Battery Black" src="https://m.media-amazon.com/images/I/317ATz+r36L._SL500_.jpg"/></a>
 
 
 The **Heated Balaclava Winter** is perfect for individuals who spend significant time outdoors in cold weather, such as motorcyclists, skiers, and winter sports enthusiasts. It is designed for both **men and women** who need reliable protection against wind and cold temperatures while maintaining comfort and warmth during their activities.
@@ -254,10 +254,10 @@ This **heated ski mask** is crafted to deliver excellent protection from cold wi
 
 Although it does not include a built-in battery, the balaclava’s design allows it to be used with external heating accessories, making it a flexible choice for those who prefer customizable warmth. The neutral **black color** and unisex fit make it a practical option for anyone seeking reliable winter headwear. Overall, this item combines functionality with simplicity, catering to outdoor enthusiasts who need dependable protection against winter’s chill.
 
-## <a href="https://www.amazon.com/dp/B08GCCTZ6Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Astroai Ski Mask Windproof Balaclava</a>
+## <a href="https://www.amazon.com/dp/B08GCCTZ6Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Astroai Ski Mask Windproof Balaclava</a>
 
 
-<a href="https://www.amazon.com/dp/B08GCCTZ6Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AstroAI Ski Mask Windproof Balaclava for Cold Weather, Winter Face Mask Breathable Stretchable for Skiing, Snowboarding, Black" src="https://m.media-amazon.com/images/I/41ESDL5Wk2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08GCCTZ6Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AstroAI Ski Mask Windproof Balaclava for Cold Weather, Winter Face Mask Breathable Stretchable for Skiing, Snowboarding, Black" src="https://m.media-amazon.com/images/I/41ESDL5Wk2L._SL500_.jpg"/></a>
 
 
 The **AstroAI Ski Mask Windproof Balaclava** is perfect for outdoor enthusiasts who love skiing, snowboarding, or any cold-weather activity. This **winter face mask** is designed for those who need protection from harsh winds and chilly temperatures while ensuring comfort and breathability. If you are someone who enjoys winter sports or spends a lot of time outdoors in cold climates, this balaclava is an ideal addition to your gear.

@@ -23,10 +23,10 @@ Reflective jackets improve visibility during low light, increasing safety. Balac
 
 
 
-## <a href="https://www.amazon.com/dp/B079KD8H4M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hwk Mesh Motorcycle Jacket For Men &amp; Women</a>
+## <a href="https://www.amazon.com/dp/B079KD8H4M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hwk Mesh Motorcycle Jacket For Men &amp; Women</a>
 
 
-<a href="https://www.amazon.com/dp/B079KD8H4M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HWK Mesh Motorcycle Jacket for Men &amp; Women, Breathable Summer Jacket for Hot Weather Rides, Hi Vis Motorcycle Gear with CE Armor for Enduro, Motocross, Motorbike Riding (3X-Large, Red)" src="https://m.media-amazon.com/images/I/41U6sSfKPwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B079KD8H4M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HWK Mesh Motorcycle Jacket for Men &amp; Women, Breathable Summer Jacket for Hot Weather Rides, Hi Vis Motorcycle Gear with CE Armor for Enduro, Motocross, Motorbike Riding (3X-Large, Red)" src="https://m.media-amazon.com/images/I/41U6sSfKPwL._SL500_.jpg"/></a>
 
 
 The **HWK Mesh Motorcycle Jacket** is perfect for riders who seek comfort and safety during hot weather rides. Ideal for both men and women, especially those involved in **enduro**, **motocross**, or general motorbike riding, this jacket offers excellent breathability combined with high-visibility features. If you want a lightweight, protective, and stylish option for summer motorcycling, this jacket is designed for you.
@@ -48,10 +48,10 @@ The **HWK Mesh Motorcycle Jacket** features a lightweight and breathable mesh co
 
 In addition to comfort and protection, the jacket’s **hi-vis red color** enhances rider visibility on the road, which is a critical safety feature for motorcyclists. This vibrant color helps other drivers notice the rider quickly, reducing the risk of accidents. The jacket's design also accommodates a wide range of body types with a 3X-Large size available, making it inclusive for riders who require a roomier fit. Overall, this jacket combines style, safety, and comfort, making it a valuable addition to any motorcyclist’s gear collection.
 
-## <a href="https://www.amazon.com/dp/B0912V9JY3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hilitchi Black Men Waterproof Rainstorm Rainy Day Rain Suit Raingear Motorcycle Outdoor Protective Gear</a>
+## <a href="https://www.amazon.com/dp/B0912V9JY3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hilitchi Black Men Waterproof Rainstorm Rainy Day Rain Suit Raingear Motorcycle Outdoor Protective Gear</a>
 
 
-<a href="https://www.amazon.com/dp/B0912V9JY3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hilitchi Black Men Waterproof Rainstorm Rainy Day Rain Suit Raingear Motorcycle Outdoor Protective Gear Rain Boot Shoe Cover Zipper US 10 11 Euro 44 45 Black" src="https://m.media-amazon.com/images/I/41lj+0N498L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0912V9JY3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hilitchi Black Men Waterproof Rainstorm Rainy Day Rain Suit Raingear Motorcycle Outdoor Protective Gear Rain Boot Shoe Cover Zipper US 10 11 Euro 44 45 Black" src="https://m.media-amazon.com/images/I/41lj+0N498L._SL500_.jpg"/></a>
 
 
 The **Hilitchi Black Men Waterproof Rainstorm Rainy Day Rain Suit** is an excellent choice for outdoor enthusiasts, motorcyclists, and commuters who need reliable protection from harsh weather. Ideal for those who frequently encounter rain or wet conditions, this rain gear ensures you stay dry and comfortable during your daily activities or adventurous rides. If you value durability and waterproof performance in your protective clothing, this rain suit is designed with you in mind.
@@ -75,10 +75,10 @@ The **Hilitchi rain suit** is crafted from high-quality waterproof materials tha
 
 Beyond protection, this rain suit offers comfort and durability for extended outdoor use. The lightweight yet robust fabric allows for freedom of movement without compromising on weather resistance. Whether you’re riding a motorcycle, hiking, or simply commuting on a rainy day, the **Hilitchi Black Men Waterproof Rainstorm Rain Suit** provides reliable coverage and helps maintain comfort, making it an indispensable piece of outdoor protective gear.
 
-## <a href="https://www.amazon.com/dp/B07KYTNL6B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hwk Scorpion Motorcycle Jacket For Men &amp; Women</a>
+## <a href="https://www.amazon.com/dp/B07KYTNL6B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hwk Scorpion Motorcycle Jacket For Men &amp; Women</a>
 
 
-<a href="https://www.amazon.com/dp/B07KYTNL6B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HWK Scorpion Motorcycle Jacket for Men &amp; Women, Motorcycle Gear with Body Armor Foam Padding and Breathable Cordura Fabric, Reflective Motor Bike Jacket for Improved Night Visibility - Black, Large" src="https://m.media-amazon.com/images/I/41nTESZDMdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07KYTNL6B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HWK Scorpion Motorcycle Jacket for Men &amp; Women, Motorcycle Gear with Body Armor Foam Padding and Breathable Cordura Fabric, Reflective Motor Bike Jacket for Improved Night Visibility - Black, Large" src="https://m.media-amazon.com/images/I/41nTESZDMdL._SL500_.jpg"/></a>
 
 
 The **HWK Scorpion Motorcycle Jacket** is ideal for both men and women who prioritize safety and comfort while riding. Whether you're a daily commuter or a weekend rider, this jacket is designed for those seeking reliable **motorcycle gear** that offers protection, durability, and enhanced visibility in various riding conditions.
@@ -101,10 +101,10 @@ The **HWK Scorpion Motorcycle Jacket** features robust **body armor foam padding
 
 Additionally, the jacket incorporates **reflective motorbike elements** that significantly enhance visibility at night or in low-light conditions, contributing to overall rider safety. The sleek **all-black design** provides a classic and versatile look that pairs well with various riding styles and gear. Overall, this jacket balances protection, comfort, and style, making it a valuable investment for riders focused on safety and performance.
 
-## <a href="https://www.amazon.com/dp/B019F18TX4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tough Headwear Balaclava Ski Mask For Men And Women</a>
+## <a href="https://www.amazon.com/dp/B019F18TX4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tough Headwear Balaclava Ski Mask For Men And Women</a>
 
 
-<a href="https://www.amazon.com/dp/B019F18TX4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tough Headwear Balaclava Ski Mask for Men and Women - Winter Shiesty Mask Cover - Cold Weather Full Face Masks - Snow Gear for Skiing, Snowboarding, Running &amp; Motorcycle - Black" src="https://m.media-amazon.com/images/I/31axz6pi2lL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B019F18TX4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tough Headwear Balaclava Ski Mask for Men and Women - Winter Shiesty Mask Cover - Cold Weather Full Face Masks - Snow Gear for Skiing, Snowboarding, Running &amp; Motorcycle - Black" src="https://m.media-amazon.com/images/I/31axz6pi2lL._SL500_.jpg"/></a>
 
 
 Ideal for outdoor enthusiasts and athletes who brave cold weather conditions, the **Tough Headwear Balaclava Ski Mask for Men and Women** is perfect for those seeking reliable protection during winter activities like **skiing**, **snowboarding**, **running**, or **motorcycling**. This versatile **black full face mask** offers excellent coverage and warmth, making it an essential piece of **snow gear** for anyone looking to stay comfortable and protected against harsh elements.
@@ -126,10 +126,10 @@ The **Tough Headwear Balaclava Ski Mask** combines functionality with comfort, c
 
 Designed with outdoor enthusiasts in mind, this ski mask’s lightweight and breathable fabric allows for effortless movement and does not restrict breathing or vision. Whether you’re hitting the slopes or riding through chilly weather, this mask adapts to your needs, providing an extra layer of protection without compromising on comfort. Its sleek black color pairs well with any winter outfit or gear, making it a practical addition to your cold-weather essentials.
 
-## <a href="https://www.amazon.com/dp/B004VMF2MY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Men's Hyperkewl Cooling Sport Vest</a>
+## <a href="https://www.amazon.com/dp/B004VMF2MY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Men's Hyperkewl Cooling Sport Vest</a>
 
 
-<a href="https://www.amazon.com/dp/B004VMF2MY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Men's Hyperkewl Cooling Sport Vest, Adjustable Fit, Lightweight, 4 Hours of Cooling, Reactivate in Water within Minutes, For High Heat Weather, Outdoor Work, Motorcycle Riding" src="https://m.media-amazon.com/images/I/51ED4s-wAkL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B004VMF2MY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Men's Hyperkewl Cooling Sport Vest, Adjustable Fit, Lightweight, 4 Hours of Cooling, Reactivate in Water within Minutes, For High Heat Weather, Outdoor Work, Motorcycle Riding" src="https://m.media-amazon.com/images/I/51ED4s-wAkL._SL500_.jpg"/></a>
 
 
 The **Men's Hyperkewl Cooling Sport Vest** is an ideal purchase for individuals who find themselves frequently in **high heat environments**. Whether you're engaging in **outdoor work**, **motorcycle riding**, or any activity where **cooling** is a necessity, this **lightweight** vest offers an effective solution. Its **adjustable fit** ensures comfort, making it suitable for a wide range of users looking to stay cool and comfortable during their activities.
@@ -150,10 +150,10 @@ The **HyperKewl Cooling Sport Vest** stands out with its **innovative cooling te
 
 The vest's **adjustable fit** ensures it can comfortably suit a range of body sizes, making it a versatile option for anyone. Its **royal blue color** adds a touch of style, while the **lightweight** construction means it won't weigh you down, no matter the activity. Whether for work or leisure, the **HyperKewl Cooling Sport Vest** offers a practical solution to beat the heat efficiently.
 
-## <a href="https://www.amazon.com/dp/B075YSX8BV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hwk Spyder Motorcycle Jacket For Men</a>
+## <a href="https://www.amazon.com/dp/B075YSX8BV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hwk Spyder Motorcycle Jacket For Men</a>
 
 
-<a href="https://www.amazon.com/dp/B075YSX8BV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HWK Spyder Motorcycle Jacket for Men with Weather Resistant Cordura Textile Fabric for Enduro Motocross Motorbike Riding and Impact Protection Armor, Dual Sport Motorcycle Riding Jacket MEDIUM/RED" src="https://m.media-amazon.com/images/I/51iBqLzCm4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B075YSX8BV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HWK Spyder Motorcycle Jacket for Men with Weather Resistant Cordura Textile Fabric for Enduro Motocross Motorbike Riding and Impact Protection Armor, Dual Sport Motorcycle Riding Jacket MEDIUM/RED" src="https://m.media-amazon.com/images/I/51iBqLzCm4L._SL500_.jpg"/></a>
 
 
 The **HWK Spyder Motorcycle Jacket for Men** is ideal for passionate motorcyclists who seek a blend of protection, comfort, and style. Specifically designed for those who enjoy **enduro**, **motocross**, and **dual sport motorcycle riding**, this jacket offers excellent weather resistance and impact protection. If you are a rider who values safety and durability without compromising on aesthetics, this jacket is a perfect choice.
@@ -175,10 +175,10 @@ The **HWK Spyder Motorcycle Jacket** stands out due to its use of **Cordura text
 
 Beyond protection, this jacket enhances rider safety with its eye-catching **red color**, improving visibility in traffic and off-road environments. The design accommodates the dynamic movements required in **enduro** and **motocross** riding, providing comfort without restricting motion. Overall, the **HWK Spyder Motorcycle Jacket** is a robust and practical investment for serious motorcyclists who prioritize both safety and performance.
 
-## <a href="https://www.amazon.com/dp/B0CT3D51MR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kemimoto Rain Suits For Men</a>
+## <a href="https://www.amazon.com/dp/B0CT3D51MR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kemimoto Rain Suits For Men</a>
 
 
-<a href="https://www.amazon.com/dp/B0CT3D51MR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KEMIMOTO Rain Suits for Men Waterproof Motorcycle Rain Gear for Men Rain Suit Rain Jacket Reflective Work Rain Coats Lightweight Hiking Rainsuit for Men, Large, Black" src="https://m.media-amazon.com/images/I/41fOrbBPZ7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CT3D51MR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KEMIMOTO Rain Suits for Men Waterproof Motorcycle Rain Gear for Men Rain Suit Rain Jacket Reflective Work Rain Coats Lightweight Hiking Rainsuit for Men, Large, Black" src="https://m.media-amazon.com/images/I/41fOrbBPZ7L._SL500_.jpg"/></a>
 
 
 The **KEMIMOTO Rain Suits for Men** are ideal for individuals who frequently face wet weather conditions, especially those involved in outdoor activities such as motorcycle riding, hiking, or working outdoors. If you need reliable, lightweight, and durable **waterproof rain gear** that offers excellent protection from rain while maintaining comfort and visibility, this rain suit is a perfect choice.
@@ -200,10 +200,10 @@ The **KEMIMOTO Rain Suit** features a robust waterproof design that effectively 
 
 Additionally, the suit's versatility allows it to be used not only for motorcycle riding but also for hiking, work, or any outdoor activity where staying dry is critical. The large size option and ergonomic design offer a comfortable fit that accommodates layering without restricting mobility. Overall, the KEMIMOTO Rain Suit is a practical, reliable, and functional investment for anyone seeking effective protection against the elements.
 
-## <a href="https://www.amazon.com/dp/B0BXPHGGRP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Iron Jia's Rain Suit</a>
+## <a href="https://www.amazon.com/dp/B0BXPHGGRP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Iron Jia's Rain Suit</a>
 
 
-<a href="https://www.amazon.com/dp/B0BXPHGGRP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="IRON JIA'S Rain Suit, Motorcycle Rain Gear for Men &amp; Women, Waterproof Jacket and Pants, Breathable Reflective Raincoat" src="https://m.media-amazon.com/images/I/41heETkCE+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BXPHGGRP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="IRON JIA'S Rain Suit, Motorcycle Rain Gear for Men &amp; Women, Waterproof Jacket and Pants, Breathable Reflective Raincoat" src="https://m.media-amazon.com/images/I/41heETkCE+L._SL500_.jpg"/></a>
 
 
 The **IRON JIA'S Rain Suit** is perfect for both men and women who frequently ride motorcycles or engage in outdoor activities in wet weather. Ideal for commuters, motorcyclists, and outdoor enthusiasts, this waterproof gear offers reliable protection against rain while maintaining comfort and visibility. If you need durable, breathable, and reflective rainwear that keeps you dry without compromising safety, this suit is an excellent choice.
@@ -226,10 +226,10 @@ The **IRON JIA'S Rain Suit** combines a waterproof jacket and pants made from du
 
 Additionally, the suit’s design accommodates both men and women, making it a versatile option for couples or groups. The classic black color is not only stylish but also practical, as it hides dirt and stains that can accumulate during rainy rides. Overall, this rain gear balances functionality, comfort, and safety, making it a smart investment for anyone needing reliable protection against the elements.
 
-## <a href="https://www.amazon.com/dp/B07XYZD3LH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hwk Motorcycle Jacket For Men &amp; Women</a>
+## <a href="https://www.amazon.com/dp/B07XYZD3LH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hwk Motorcycle Jacket For Men &amp; Women</a>
 
 
-<a href="https://www.amazon.com/dp/B07XYZD3LH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HWK Motorcycle Jacket for Men &amp; Women, Waterproof, High Visibility Rain Jacket with CE Armor, Adjustable, Durable Polyester Motorcycle Riding Jacket, Dirt Bike Gear Enduro Racing, Blue, 3XL" src="https://m.media-amazon.com/images/I/41N48NaC3IL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07XYZD3LH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HWK Motorcycle Jacket for Men &amp; Women, Waterproof, High Visibility Rain Jacket with CE Armor, Adjustable, Durable Polyester Motorcycle Riding Jacket, Dirt Bike Gear Enduro Racing, Blue, 3XL" src="https://m.media-amazon.com/images/I/41N48NaC3IL._SL500_.jpg"/></a>
 
 
 The **HWK Motorcycle Jacket for Men & Women** is ideal for riders seeking a combination of safety, comfort, and durability in various weather conditions. Perfect for both casual motorcyclists and serious dirt bike or enduro racers, this jacket is designed for those who prioritize **high visibility** and **waterproof protection** while riding. Its adjustable features make it suitable for different body types, and the integrated CE armor ensures enhanced safety on the road or trail.
@@ -252,10 +252,10 @@ This **motorcycle jacket** features a robust **polyester construction** that off
 
 Equipped with built-in **CE armor** at critical points, this jacket offers enhanced impact protection, which is crucial for riders who engage in high-speed or off-road activities like enduro racing or dirt biking. The adjustable straps and closures allow for a personalized fit, ensuring maximum comfort and freedom of movement during long rides. Overall, the HWK Motorcycle Jacket combines safety, functionality, and style, making it a valuable addition to any rider's gear collection.
 
-## <a href="https://www.amazon.com/dp/B07612JXSM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tough Headwear Balaclava Ski Mask</a>
+## <a href="https://www.amazon.com/dp/B07612JXSM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tough Headwear Balaclava Ski Mask</a>
 
 
-<a href="https://www.amazon.com/dp/B07612JXSM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tough Headwear Balaclava Ski Mask for Men or Women - Heavy Fleece Winter Shiesty Cover with Air Vents - Extreme Cold Weather Face Masks - Motorcycle, Skiing, Snowboarding Snow Gear" src="https://m.media-amazon.com/images/I/31lpDaRFv9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07612JXSM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tough Headwear Balaclava Ski Mask for Men or Women - Heavy Fleece Winter Shiesty Cover with Air Vents - Extreme Cold Weather Face Masks - Motorcycle, Skiing, Snowboarding Snow Gear" src="https://m.media-amazon.com/images/I/31lpDaRFv9L._SL500_.jpg"/></a>
 
 
 The **Tough Headwear Balaclava Ski Mask** is perfect for those who engage in outdoor activities in **extreme cold weather**. Whether you're an avid **motorcyclist**, a passionate **skier**, or a dedicated **snowboarder**, this mask is designed to offer superior warmth and protection. It's ideal for both **men and women** who need reliable face coverage against harsh winter elements.

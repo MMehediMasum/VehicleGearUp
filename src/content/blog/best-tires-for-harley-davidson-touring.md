@@ -22,10 +22,10 @@ They provide excellent traction, helping riders feel confident on highways and c
 
 
 
-## <a href="https://www.amazon.com/dp/B07CLRMQ37?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Dunlop American Elite Rear Motorcycle Tire </a>
+## <a href="https://www.amazon.com/dp/B07CLRMQ37?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Dunlop American Elite Rear Motorcycle Tire </a>
 
 
-<a href="https://www.amazon.com/dp/B07CLRMQ37?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="180/65B-16 (81H) Dunlop American Elite Rear Motorcycle Tire Black Wall for Harley-Davidson CVO Electra Glide Ultra Limited FLHTKSE 2014-2018" src="https://m.media-amazon.com/images/I/41UJl3x8eUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07CLRMQ37?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="180/65B-16 (81H) Dunlop American Elite Rear Motorcycle Tire Black Wall for Harley-Davidson CVO Electra Glide Ultra Limited FLHTKSE 2014-2018" src="https://m.media-amazon.com/images/I/41UJl3x8eUL._SL500_.jpg"/></a>
 
 
 Ideal for riders of the **Harley-Davidson CVO Electra Glide Ultra Limited FLHTKSE (2014-2018)**, the **180/65B-16 (81H) Dunlop American Elite Rear Motorcycle Tire** in **Black Wall** is perfect for those seeking superior performance, durability, and safety on the road. This tire is designed for enthusiasts who demand reliable traction and enhanced handling on long rides and varied road conditions.
@@ -48,10 +48,10 @@ The **Dunlop American Elite Rear Motorcycle Tire** boasts a robust design tailor
 
 Beyond performance, the tire's construction focuses on rider comfort by absorbing road imperfections and reducing vibrations. The **black wall** finish complements the aesthetic of the Harley-Davidson CVO Electra Glide Ultra Limited, making it a practical and stylish choice. Choosing this tire means investing in a reliable product that enhances both safety and riding pleasure.
 
-## <a href="https://www.amazon.com/dp/B07DCFC3VT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop D402 Front Motorcycle Tire</a>
+## <a href="https://www.amazon.com/dp/B07DCFC3VT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop D402 Front Motorcycle Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B07DCFC3VT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop D402 Front Motorcycle Tire MH90-21 (54H) Black Wall Compatible With Harley-Davidson Sportster 1200 Custom XL1200C 1996-2010" src="https://m.media-amazon.com/images/I/41rzIYHV2dL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07DCFC3VT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop D402 Front Motorcycle Tire MH90-21 (54H) Black Wall Compatible With Harley-Davidson Sportster 1200 Custom XL1200C 1996-2010" src="https://m.media-amazon.com/images/I/41rzIYHV2dL._SL500_.jpg"/></a>
 
 
 The **Dunlop D402 Front Motorcycle Tire MH90-21 (54H)** with a black wall design is ideal for riders who own a **Harley-Davidson Sportster 1200 Custom XL1200C (1996-2010)** and are looking for a reliable, high-performance front tire. This tire suits motorcycle enthusiasts who prioritize durability, stability, and enhanced road grip for both casual cruising and more spirited rides.
@@ -74,10 +74,10 @@ The **Dunlop D402 MH90-21 front tire** offers a balanced combination of performa
 
 Beyond its performance aspects, this tire features a classic black wall that perfectly matches the vintage look of the **Harley-Davidson Sportster 1200 Custom XL1200C**. This not only maintains the motorcycle’s original aesthetic but also adds to its overall appeal. Choosing this tire means investing in a product that combines functionality with a timeless style, all backed by the reputable **Dunlop** brand.
 
-## <a href="https://www.amazon.com/dp/B07K8RHXN1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pirelli Angel St Motorcycle Tires</a>
+## <a href="https://www.amazon.com/dp/B07K8RHXN1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pirelli Angel St Motorcycle Tires</a>
 
 
-<a href="https://www.amazon.com/dp/B07K8RHXN1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pirelli Angel ST 120/70ZR17 (58W) Front &amp; 190/50ZR17 (73W) Rear Motorcycle Tires – High-Performance Sport Touring Tire for Enhanced Grip, Durability &amp; Stability – Fits Sport &amp; Touring Bikes" src="https://m.media-amazon.com/images/I/41PEoq0EVrL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07K8RHXN1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pirelli Angel ST 120/70ZR17 (58W) Front &amp; 190/50ZR17 (73W) Rear Motorcycle Tires – High-Performance Sport Touring Tire for Enhanced Grip, Durability &amp; Stability – Fits Sport &amp; Touring Bikes" src="https://m.media-amazon.com/images/I/41PEoq0EVrL._SL500_.jpg"/></a>
 
 
 The **Pirelli Angel ST 120/70ZR17 (58W) Front & 190/50ZR17 (73W) Rear Motorcycle Tires** are ideal for riders who own **sport and touring bikes** and seek a perfect balance between **high performance**, **enhanced grip**, and **long-lasting durability**. These tires are designed for enthusiasts who demand stability and confidence on both city roads and long-distance journeys.
@@ -100,10 +100,10 @@ The **Pirelli Angel ST tires** feature advanced tread patterns and rubber compou
 
 Additionally, these tires are engineered to maintain stability at high speeds, making them suitable for aggressive sport riding as well as comfortable long-distance touring. Their ability to perform reliably in diverse weather conditions means riders can enjoy consistent handling and grip, whether navigating wet urban streets or dry highways. Overall, the **Pirelli Angel ST 120/70ZR17 & 190/50ZR17** set is a top choice for motorcyclists seeking a combination of performance, durability, and versatility.
 
-## <a href="https://www.amazon.com/dp/B07CN68S4D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop Tires Harley Davidson D401 Front Tire</a>
+## <a href="https://www.amazon.com/dp/B07CN68S4D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop Tires Harley Davidson D401 Front Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B07CN68S4D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop Tires Harley Davidson D401 Front Tire (130/90B-16)" src="https://m.media-amazon.com/images/I/41Mfu3PJ2zL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07CN68S4D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop Tires Harley Davidson D401 Front Tire (130/90B-16)" src="https://m.media-amazon.com/images/I/41Mfu3PJ2zL._SL500_.jpg"/></a>
 
 
 The **Dunlop Tires Harley Davidson D401 Front Tire** (130/90B-16) is an excellent choice for **motorcycle enthusiasts** who are in need of a **durable and reliable front tire** for their Harley Davidson bikes. Ideal customers for this item are those who frequently embark on long rides and require a tire that offers both **performance** and **safety**. This tire is specifically designed to cater to the needs of riders who prioritize **stability** and **traction** on various road conditions.
@@ -124,10 +124,10 @@ The **Dunlop Tires Harley Davidson D401 Front Tire** is crafted with **durabilit
 
 Another notable feature is the **stability** it offers at high speeds. This is particularly beneficial for riders who enjoy the thrill of open-road cruising but don't want to compromise on safety. The **DUNLOP** brand has a reputation for producing high-quality tires, and the D401 is no exception. Its **performance** and **reliability** are well-regarded among motorcycle enthusiasts, making it a valuable investment for Harley Davidson owners looking to enhance their riding experience.
 
-## <a href="https://www.amazon.com/dp/B07DCH552P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop D404 Rear Motorcycle Tire</a>
+## <a href="https://www.amazon.com/dp/B07DCH552P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop D404 Rear Motorcycle Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B07DCH552P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop D404 Rear Motorcycle Tire 150/80B-16 (71H) Black Wall for Harley-Davidson Softail Heritage Classic FLSTC 2004-2006" src="https://m.media-amazon.com/images/I/41MgPD7J1ML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07DCH552P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop D404 Rear Motorcycle Tire 150/80B-16 (71H) Black Wall for Harley-Davidson Softail Heritage Classic FLSTC 2004-2006" src="https://m.media-amazon.com/images/I/41MgPD7J1ML._SL500_.jpg"/></a>
 
 
 The **Dunlop D404 Rear Motorcycle Tire 150/80B-16 (71H) Black Wall** is an excellent choice for riders of the **Harley-Davidson Softail Heritage Classic FLSTC 2004-2006**. Ideal for motorcycle enthusiasts seeking reliable performance and durability, this tire is designed to provide superior traction and stability on various road conditions. If you prioritize safety, comfort, and long-lasting tread life for your Harley-Davidson, this tire is a perfect fit.
@@ -149,10 +149,10 @@ The **Dunlop D404 Rear Motorcycle Tire** features a robust design crafted by **D
 
 Additionally, the tire's **Black Wall** finish not only contributes to its durability but also complements the classic aesthetic of Harley-Davidson motorcycles. Riders will appreciate the balance of style and function, as the tire maintains traction in various weather conditions while supporting comfortable handling. Overall, the **Dunlop D404** is a reliable upgrade for those looking to maintain or improve their motorcycle's rear tire quality.
 
-## <a href="https://www.amazon.com/dp/B07DCDT4MK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop D402 Rear Motorcycle Tire</a>
+## <a href="https://www.amazon.com/dp/B07DCDT4MK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop D402 Rear Motorcycle Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B07DCDT4MK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop D402 Rear Motorcycle Tire MU85B-16 (77H) Wide White Wall Compatible With Harley-Davidson Softail Deluxe FLSTN/I 2005-2006" src="https://m.media-amazon.com/images/I/41YNfznlZdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07DCDT4MK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop D402 Rear Motorcycle Tire MU85B-16 (77H) Wide White Wall Compatible With Harley-Davidson Softail Deluxe FLSTN/I 2005-2006" src="https://m.media-amazon.com/images/I/41YNfznlZdL._SL500_.jpg"/></a>
 
 
 Ideal for riders who own a **Harley-Davidson Softail Deluxe FLSTN/I (2005-2006)** and seek a reliable, stylish upgrade, the **Dunlop D402 Rear Motorcycle Tire MU85B-16 (77H) Wide White Wall** is perfect for enthusiasts wanting both performance and classic aesthetics. This tire combines durability with a distinctive **wide white wall** design, making it a great choice for those who want their bike to stand out while ensuring safety and stability on the road.
@@ -175,10 +175,10 @@ The **Dunlop D402 Rear Motorcycle Tire** excels in delivering a smooth ride with
 
 Beyond performance, the tire's standout feature is its **wide white wall** styling, which brings a nostalgic, classic look to the motorcycle. This aesthetic enhancement appeals to riders who appreciate vintage charm combined with modern tire technology. Overall, this tire provides a blend of style, safety, and reliability, making it a valuable upgrade for Harley-Davidson Softail Deluxe owners who want to enhance both the performance and appearance of their ride.
 
-## <a href="https://www.amazon.com/dp/B07DCGFW7W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop D402 Front Motorcycle Tire</a>
+## <a href="https://www.amazon.com/dp/B07DCGFW7W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop D402 Front Motorcycle Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B07DCGFW7W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop D402 Front Motorcycle Tire MH90-21 (54H) Black Wall Compatible With Harley-Davidson Softail Night Train FXSTB 1999-2006" src="https://m.media-amazon.com/images/I/41rzIYHV2dL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07DCGFW7W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop D402 Front Motorcycle Tire MH90-21 (54H) Black Wall Compatible With Harley-Davidson Softail Night Train FXSTB 1999-2006" src="https://m.media-amazon.com/images/I/41rzIYHV2dL._SL500_.jpg"/></a>
 
 
 The **Dunlop D402 Front Motorcycle Tire MH90-21 (54H) Black Wall** is an excellent choice for riders who own a **Harley-Davidson Softail Night Train FXSTB (1999-2006)** and seek a reliable, performance-oriented front tire. Ideal for motorcycle enthusiasts who prioritize safety, durability, and compatibility with their Harley-Davidson, this tire offers a perfect balance of traction and handling tailored specifically for this model.
@@ -201,10 +201,10 @@ The **Dunlop D402 Front Motorcycle Tire** features advanced tread design optimiz
 
 Additionally, the tire's construction supports shock absorption and vibration reduction, which improves overall ride comfort. This is particularly beneficial for Harley-Davidson riders who often enjoy long-distance cruising, as it minimizes fatigue and enhances the riding experience. With its proven compatibility and trusted brand backing, this tire is a practical upgrade for those seeking dependable front tire performance on their Softail Night Train.
 
-## <a href="https://www.amazon.com/dp/B07DCG2R9G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop D402 Rear Motorcycle Tire</a>
+## <a href="https://www.amazon.com/dp/B07DCG2R9G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop D402 Rear Motorcycle Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B07DCG2R9G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop D402 Rear Motorcycle Tire MU85B-16 (77H) Black Wall Compatible With Harley-Davidson Road King FLHR/I 2004-2008" src="https://m.media-amazon.com/images/I/41f0SNOyVRL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07DCG2R9G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop D402 Rear Motorcycle Tire MU85B-16 (77H) Black Wall Compatible With Harley-Davidson Road King FLHR/I 2004-2008" src="https://m.media-amazon.com/images/I/41f0SNOyVRL._SL500_.jpg"/></a>
 
 
 The **Dunlop D402 Rear Motorcycle Tire MU85B-16 (77H) Black Wall** is ideal for riders who own a **Harley-Davidson Road King FLHR/I (2004-2008)** and seek a reliable, high-performance tire tailored specifically for their bike. This tire is perfect for motorcyclists who prioritize safety, durability, and consistent handling on both city roads and long highway cruises.
@@ -227,10 +227,10 @@ The **Dunlop D402 Rear Motorcycle Tire** is engineered to provide superior grip 
 
 In addition to safety and longevity, this tire complements the iconic style of the **Harley-Davidson Road King FLHR/I (2004-2008)** with its sleek black wall look. Riders benefit from a product that not only performs well but also maintains the aesthetic integrity of their motorcycle. Overall, the Dunlop D402 combines function and form to deliver a premium riding experience tailored to the needs of Harley-Davidson enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B07DCFLVN9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop D402 Rear Motorcycle Tire</a>
+## <a href="https://www.amazon.com/dp/B07DCFLVN9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop D402 Rear Motorcycle Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B07DCFLVN9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop D402 Rear Motorcycle Tire MU85B-16 (77H) Black Wall Compatible With Harley-Davidson Electra-Glide Ultra Classic FLHT/C/U/I 2004-2008" src="https://m.media-amazon.com/images/I/41K-TEIc7nL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07DCFLVN9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop D402 Rear Motorcycle Tire MU85B-16 (77H) Black Wall Compatible With Harley-Davidson Electra-Glide Ultra Classic FLHT/C/U/I 2004-2008" src="https://m.media-amazon.com/images/I/41K-TEIc7nL._SL500_.jpg"/></a>
 
 
 The **Dunlop D402 Rear Motorcycle Tire MU85B-16 (77H) Black Wall** is ideal for motorcycle enthusiasts who own a **Harley-Davidson Electra-Glide Ultra Classic FLHT/C/U/I (2004-2008)** and seek a reliable, high-performance rear tire. This tire is perfect for riders looking for enhanced traction, durability, and stability on long rides and varied road conditions.
@@ -253,10 +253,10 @@ The **Dunlop D402 Rear Motorcycle Tire** combines advanced tread design with qua
 
 Additionally, the tire’s durable build enhances its lifespan, reducing the frequency of replacements and offering excellent value over time. The black wall aesthetic not only protects but also maintains the timeless look of your motorcycle, making it both a practical and stylish choice for serious riders.
 
-## <a href="https://www.amazon.com/dp/B07CLV4VZ3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop American Elite Rear Motorcycle Tire Black Wall</a>
+## <a href="https://www.amazon.com/dp/B07CLV4VZ3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop American Elite Rear Motorcycle Tire Black Wall</a>
 
 
-<a href="https://www.amazon.com/dp/B07CLV4VZ3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="180/65B-16 (81H) Dunlop American Elite Rear Motorcycle Tire Black Wall for Harley-Davidson Electra-Glide Ultra Limited FLHTK 2010-2018" src="https://m.media-amazon.com/images/I/41UJl3x8eUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07CLV4VZ3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="180/65B-16 (81H) Dunlop American Elite Rear Motorcycle Tire Black Wall for Harley-Davidson Electra-Glide Ultra Limited FLHTK 2010-2018" src="https://m.media-amazon.com/images/I/41UJl3x8eUL._SL500_.jpg"/></a>
 
 
 The **180/65B-16 (81H) Dunlop American Elite Rear Motorcycle Tire** with a **Black Wall** design is ideal for riders of the **Harley-Davidson Electra-Glide Ultra Limited FLHTK (2010-2018)** who seek a reliable and high-performance tire tailored specifically for their motorcycle. This tire is perfect for enthusiasts who value durability, enhanced handling, and a smooth ride on both highways and city roads. If you want to maintain the classic look of your bike while upgrading to a tire that offers superior traction and longevity, this Dunlop tire is an excellent choice.

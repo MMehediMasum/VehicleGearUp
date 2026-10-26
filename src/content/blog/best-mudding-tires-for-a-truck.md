@@ -23,10 +23,10 @@ Good mudding tires also protect the wheels from damage. They fit trucks with lif
 
 
 
-## <a href="https://www.amazon.com/dp/B01AYNWKRS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ez-stik Mudding Makes Me Happy</a>
+## <a href="https://www.amazon.com/dp/B01AYNWKRS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ez-stik Mudding Makes Me Happy</a>
 
 
-<a href="https://www.amazon.com/dp/B01AYNWKRS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EZ-STIK Mudding Makes Me Happy *I564 6 inch Sticker Decal 4x4 Truck Wheel Tires Lift kit" src="https://m.media-amazon.com/images/I/21JjHrGxMPL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01AYNWKRS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EZ-STIK Mudding Makes Me Happy *I564 6 inch Sticker Decal 4x4 Truck Wheel Tires Lift kit" src="https://m.media-amazon.com/images/I/21JjHrGxMPL._SL500_.jpg"/></a>
 
 
 The **EZ-STIK Mudding Makes Me Happy **I564 6 inch Sticker Decal**** is ideal for off-road enthusiasts, truck owners, and anyone who takes pride in customizing their **4x4 trucks**, **wheel tires**, or **lift kits**. If you want to add a personal touch that reflects your passion for mudding and off-road adventures, this sticker decal is perfect for you.
@@ -48,10 +48,10 @@ The **EZ-STIK Mudding Makes Me Happy 6 inch Sticker Decal** is crafted from high
 
 Beyond aesthetics, this decal helps express your passion for mudding, making your vehicle stand out in the crowd. Whether you’re at a mudding event or simply cruising around, the decal communicates your love for the off-road lifestyle. Plus, the trusted **EZ-STIK** brand guarantees you’re getting a product that combines style with durability, enhancing your truck’s personality while withstanding the rigors of outdoor use.
 
-## <a href="https://www.amazon.com/dp/B0FLYS67ZR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">4x4 Decal Sticker</a>
+## <a href="https://www.amazon.com/dp/B0FLYS67ZR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">4x4 Decal Sticker</a>
 
 
-<a href="https://www.amazon.com/dp/B0FLYS67ZR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="4x4 Decal Sticker - Multiple Sizes and Colors - Off-Road, 4WD, Truck, Tailgate, Window, Bumper, Mudding, Lift, Carolina Squat, Rock Crawling, Trail Riding (Red, 4.5 Wide x 1.8 Tall Inches)" src="https://m.media-amazon.com/images/I/31qBffJ8QBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FLYS67ZR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="4x4 Decal Sticker - Multiple Sizes and Colors - Off-Road, 4WD, Truck, Tailgate, Window, Bumper, Mudding, Lift, Carolina Squat, Rock Crawling, Trail Riding (Red, 4.5 Wide x 1.8 Tall Inches)" src="https://m.media-amazon.com/images/I/31qBffJ8QBL._SL500_.jpg"/></a>
 
 
 The **4x4 Decal Sticker** is ideal for off-road enthusiasts, truck owners, and anyone passionate about **4WD** vehicles. If you want to personalize your **tailgate**, **window**, or **bumper** with a rugged and bold design, this sticker is perfect for you. Whether you enjoy **mudding**, **rock crawling**, or **trail riding**, this decal adds a touch of style and identity to your vehicle.

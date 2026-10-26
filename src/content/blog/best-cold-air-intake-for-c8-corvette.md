@@ -23,10 +23,10 @@ Some kits come with heat shields or carbon fiber parts for added durability and 
 
 
 
-## <a href="https://www.amazon.com/dp/B08PHJKLPX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">C8 Corvette Authentic Usa Made Attack Blue Dry Nano High Flow Air Filter</a>
+## <a href="https://www.amazon.com/dp/B08PHJKLPX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">C8 Corvette Authentic Usa Made Attack Blue Dry Nano High Flow Air Filter</a>
 
 
-<a href="https://www.amazon.com/dp/B08PHJKLPX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="C8 Corvette Authentic USA Made Attack Blue Dry Nano High Flow Air Filter - Direct OE Replacement - Faster, Smoother, Less Turbulent Air for 2020-2025 C8 Stingray, Z51 LT2 Corvettes" src="https://m.media-amazon.com/images/I/41Tr5YQyOxL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08PHJKLPX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="C8 Corvette Authentic USA Made Attack Blue Dry Nano High Flow Air Filter - Direct OE Replacement - Faster, Smoother, Less Turbulent Air for 2020-2025 C8 Stingray, Z51 LT2 Corvettes" src="https://m.media-amazon.com/images/I/41Tr5YQyOxL._SL500_.jpg"/></a>
 
 
 The **C8 Corvette Authentic USA Made Attack Blue Dry Nano High Flow Air Filter** is ideal for **2020-2025 C8 Stingray and Z51 LT2 Corvette owners** who want to enhance their vehicle's performance with a reliable, direct OE replacement. This product is perfect for enthusiasts seeking **faster, smoother, and less turbulent air intake** to maximize engine efficiency and power without compromising on quality or fit.
@@ -49,10 +49,10 @@ The **Attack Blue Dry Nano High Flow Air Filter** by SR1 Performance is engineer
 
 Constructed with high-quality materials and manufactured in the USA by Attack Blue Filters, this air filter ensures long-lasting performance and durability. Its vibrant blue color not only adds a visual upgrade under the hood but also signifies advanced filtration technology. For Corvette enthusiasts looking to optimize their engine’s breathing capability, this filter offers a perfect balance of performance enhancement and reliability, making it a worthwhile investment for maintaining and boosting your vehicle’s performance.
 
-## <a href="https://www.amazon.com/dp/B09TVMJXX5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rtunes Racing Dual Short Ram Air Intake Kit + Filter Combo</a>
+## <a href="https://www.amazon.com/dp/B09TVMJXX5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rtunes Racing Dual Short Ram Air Intake Kit + Filter Combo</a>
 
 
-<a href="https://www.amazon.com/dp/B09TVMJXX5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rtunes Racing DUAL Short Ram Air Intake Kit + Filter Combo BLACK PIPE AND BLACK Compatible For 01-04 Chevy Corvette C5 5.7L V8" src="https://m.media-amazon.com/images/I/517J7VivWVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09TVMJXX5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rtunes Racing DUAL Short Ram Air Intake Kit + Filter Combo BLACK PIPE AND BLACK Compatible For 01-04 Chevy Corvette C5 5.7L V8" src="https://m.media-amazon.com/images/I/517J7VivWVL._SL500_.jpg"/></a>
 
 
 The **Rtunes Racing DUAL Short Ram Air Intake Kit + Filter Combo BLACK PIPE AND BLACK** is an ideal upgrade for owners of the **01-04 Chevy Corvette C5 5.7L V8** who are looking to enhance their vehicle’s performance and engine efficiency. If you want to boost horsepower, improve throttle response, and enjoy a sportier sound, this intake kit is designed specifically to meet those needs. It's perfect for enthusiasts who want a direct-fit, high-quality air intake solution without complicated installation.
@@ -74,10 +74,10 @@ The **Rtunes Racing DUAL Short Ram Air Intake Kit** features a precision-enginee
 
 Additionally, the short ram design of this intake kit minimizes heat soak by drawing cooler air from outside the engine bay, which contributes to enhanced horsepower and acceleration. The installation process is straightforward thanks to its direct compatibility with the **01-04 Chevy Corvette C5 5.7L V8**, making it accessible for both DIY enthusiasts and professional installers. Overall, this intake kit offers a significant upgrade that combines aesthetics, performance, and reliability for Corvette owners.
 
-## <a href="https://www.amazon.com/dp/B000E5WCK2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">K&amp;n Cold Air Intake System</a>
+## <a href="https://www.amazon.com/dp/B000E5WCK2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">K&amp;n Cold Air Intake System</a>
 
 
-<a href="https://www.amazon.com/dp/B000E5WCK2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="K&amp;N Cold Air Intake System: High-Flow Air Filter, Increase Performance &amp; Acceleration: Compatible with 2006-2007 Chevrolet: Corvette, 63-3052" src="https://m.media-amazon.com/images/I/41Jd4Keg1DL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000E5WCK2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="K&amp;N Cold Air Intake System: High-Flow Air Filter, Increase Performance &amp; Acceleration: Compatible with 2006-2007 Chevrolet: Corvette, 63-3052" src="https://m.media-amazon.com/images/I/41Jd4Keg1DL._SL500_.jpg"/></a>
 
 
 The **K&N Cold Air Intake System** is ideal for automotive enthusiasts and owners of the **2006-2007 Chevrolet Corvette** looking to enhance their vehicle's performance. If you want to increase your car’s horsepower, improve throttle response, and enjoy better acceleration, this high-flow air filter system is designed specifically for you. It’s perfect for those seeking a reliable upgrade that balances power gains with durability.
@@ -100,10 +100,10 @@ The **K&N Cold Air Intake System** features a precision-engineered high-flow air
 
 Constructed by **K&N Engineering**, this intake system is built to last, with materials that resist wear and tear from everyday driving conditions. Its design also helps to reduce air intake temperature, which is crucial for maintaining consistent engine performance during spirited driving. In addition to performance gains, the system is straightforward to install, requiring no extensive modifications, making it accessible to both DIY enthusiasts and professional installers. Overall, this cold air intake system offers a balanced combination of performance, durability, and convenience tailored to the Chevrolet Corvette community.
 
-## <a href="https://www.amazon.com/dp/B0DS8QRX7L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Etesan Side Intake Grille Guard Set Fit For Corvette C8 Stingray Z51 2020-2025</a>
+## <a href="https://www.amazon.com/dp/B0DS8QRX7L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Etesan Side Intake Grille Guard Set Fit For Corvette C8 Stingray Z51 2020-2025</a>
 
 
-<a href="https://www.amazon.com/dp/B0DS8QRX7L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Etesan Side Intake Grille Guard Set Fit for Corvette C8 Stingray Z51 2020-2025 Aluminum Side Radiator Guards Grille Vents Insert Mesh Accessories 2 PCS" src="https://m.media-amazon.com/images/I/517+WWfk20L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DS8QRX7L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Etesan Side Intake Grille Guard Set Fit for Corvette C8 Stingray Z51 2020-2025 Aluminum Side Radiator Guards Grille Vents Insert Mesh Accessories 2 PCS" src="https://m.media-amazon.com/images/I/517+WWfk20L._SL500_.jpg"/></a>
 
 
 The **Etesan Side Intake Grille Guard Set** is the perfect accessory for **Corvette C8 Stingray Z51** owners from **2020-2025** who are looking to enhance the durability and appearance of their vehicle. This product is ideal for car enthusiasts who prioritize **vehicle protection** and **aesthetic appeal**. If you are someone who frequently drives in conditions that may expose your car's radiator to damage from debris, this grille guard is a must-have addition.
@@ -125,10 +125,10 @@ The **Etesan Side Intake Grille Guard Set** is crafted from **high-quality alumi
 
 In addition to its protective benefits, the grille guard enhances the overall **aesthetic** of your vehicle. The **sleek black finish** complements the Corvette's design, adding an element of sophistication and style. Installation is a breeze, as the product is specifically designed to fit the **2020-2025 models** without any need for modification. This ensures that even those with minimal mechanical experience can easily upgrade their vehicle's protection and appearance.
 
-## <a href="https://www.amazon.com/dp/B0D97V3DVZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Billfaro Side Intake Mesh Grilles Insert</a>
+## <a href="https://www.amazon.com/dp/B0D97V3DVZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Billfaro Side Intake Mesh Grilles Insert</a>
 
 
-<a href="https://www.amazon.com/dp/B0D97V3DVZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BILLFARO 2Pcs Upgraded Side Intake Mesh Grilles Insert,OEM Style Aluminum Driver and Right Passenger Side Radiator Air Intake Vent Guards Accessories for Corvette C8 Stingray Z51 2020-2025" src="https://m.media-amazon.com/images/I/51qroWj9jdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D97V3DVZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BILLFARO 2Pcs Upgraded Side Intake Mesh Grilles Insert,OEM Style Aluminum Driver and Right Passenger Side Radiator Air Intake Vent Guards Accessories for Corvette C8 Stingray Z51 2020-2025" src="https://m.media-amazon.com/images/I/51qroWj9jdL._SL500_.jpg"/></a>
 
 
 Ideal for **Corvette C8 Stingray Z51 2020-2025** owners looking to enhance their vehicle's style and functionality, the **BILLFARO 2Pcs Upgraded Side Intake Mesh Grilles Insert** is perfect for enthusiasts seeking durable and OEM-style accessories. If you want to improve your car’s **radiator air intake** while maintaining a sleek, factory-like appearance, these **aluminum vent guards** are an excellent choice.
@@ -150,10 +150,10 @@ The **BILLFARO Side Intake Mesh Grilles Insert** features a precise design tailo
 
 By improving the **air intake efficiency** to the radiator, these mesh grilles help maintain optimal engine temperatures, which is crucial for high-performance driving. The black finish adds a subtle yet aggressive touch to your Corvette’s exterior, complementing both stock and customized looks. Overall, the BILLFARO mesh grilles combine functionality with style, making them a smart accessory for Corvette enthusiasts aiming to protect and enhance their vehicle.
 
-## <a href="https://www.amazon.com/dp/B08NTYD6N8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Corsa Chevrolet Corvette C7 Carbon Fiber Air Intake</a>
+## <a href="https://www.amazon.com/dp/B08NTYD6N8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Corsa Chevrolet Corvette C7 Carbon Fiber Air Intake</a>
 
 
-<a href="https://www.amazon.com/dp/B08NTYD6N8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Corsa - 14-19 Chevrolet Corvette C7 6.2L V8 Carbon Fiber Air Intake (Does Not Fit Z06/ZR1) (44001D)" src="https://m.media-amazon.com/images/I/31nFZDyHy8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08NTYD6N8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Corsa - 14-19 Chevrolet Corvette C7 6.2L V8 Carbon Fiber Air Intake (Does Not Fit Z06/ZR1) (44001D)" src="https://m.media-amazon.com/images/I/31nFZDyHy8L._SL500_.jpg"/></a>
 
 
 The **Corsa - 14-19 Chevrolet Corvette C7 6.2L V8 Carbon Fiber Air Intake** is ideal for performance enthusiasts and Corvette C7 owners seeking to enhance their vehicle's engine efficiency and aesthetics. This product is perfect for those who want to upgrade their air intake system with a high-quality, durable, and visually striking component that does not fit Z06 or ZR1 models.
@@ -176,10 +176,10 @@ The **Corsa Carbon Fiber Air Intake** is engineered to optimize the airflow into
 
 Beyond performance, this air intake system offers aesthetic benefits with its sleek black carbon fiber finish, elevating the engine bay's appearance. The precise fitment ensures easy integration without extensive modifications, preserving the Corvette's original design integrity. For Corvette owners looking to combine style with substance, the Corsa air intake is a compelling upgrade choice.
 
-## <a href="https://www.amazon.com/dp/B002N10NE2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">K&amp;n Cold Air Intake System</a>
+## <a href="https://www.amazon.com/dp/B002N10NE2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">K&amp;n Cold Air Intake System</a>
 
 
-<a href="https://www.amazon.com/dp/B002N10NE2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="K&amp;N Cold Air Intake System: High-Flow Air Filter, Increase Performance &amp; Acceleration: Compatible with 2008-2012 Chevrolet: Corvette, 63-3073" src="https://m.media-amazon.com/images/I/41BY5z5B23L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B002N10NE2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="K&amp;N Cold Air Intake System: High-Flow Air Filter, Increase Performance &amp; Acceleration: Compatible with 2008-2012 Chevrolet: Corvette, 63-3073" src="https://m.media-amazon.com/images/I/41BY5z5B23L._SL500_.jpg"/></a>
 
 
 The **K&N Cold Air Intake System** is ideal for automotive enthusiasts and Chevrolet Corvette owners, specifically those with models from **2008 to 2012**, who are looking to boost their vehicle's performance and acceleration. If you want a reliable upgrade that improves airflow and enhances engine efficiency, this product is tailored for you.
@@ -202,10 +202,10 @@ The **K&N Cold Air Intake System** features a specially engineered high-flow air
 
 By upgrading to this cold air intake system, users benefit from enhanced acceleration and overall vehicle responsiveness. The durable build by **K&N Engineering** ensures long-lasting performance and reliability, while the improved air filtration helps protect the engine from contaminants. This makes the system a valuable investment for anyone wanting to maximize their Corvette's driving experience.
 
-## <a href="https://www.amazon.com/dp/B0CKW951Z4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Suride Cold Air Intake Kit</a>
+## <a href="https://www.amazon.com/dp/B0CKW951Z4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Suride Cold Air Intake Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0CKW951Z4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Suride Cold Air Intake Kit with Filter Heat Shield for 1997 1998 1999 2000 Corvette 5.7L V8 (Blue)" src="https://m.media-amazon.com/images/I/31Ofooc+cSL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CKW951Z4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Suride Cold Air Intake Kit with Filter Heat Shield for 1997 1998 1999 2000 Corvette 5.7L V8 (Blue)" src="https://m.media-amazon.com/images/I/31Ofooc+cSL._SL500_.jpg"/></a>
 
 
 The **Suride Cold Air Intake Kit with Filter Heat Shield** is ideal for car enthusiasts and Corvette owners who want to enhance the performance of their 1997-2000 **Corvette 5.7L V8**. If you're looking to improve your vehicle's horsepower, throttle response, and engine sound without extensive modifications, this kit is designed for you. It is perfect for those who appreciate both functional upgrades and a sporty aesthetic.
@@ -228,10 +228,10 @@ The **Suride Cold Air Intake Kit** features a well-engineered design that optimi
 
 Constructed with precision and durable materials, this intake kit not only boosts performance but also enhances the longevity of your engine components. The straightforward installation process means you can upgrade your vehicle without professional help, saving both time and money. Additionally, the enhanced engine sound adds to the overall driving experience, making it a rewarding upgrade for any Corvette enthusiast.
 
-## <a href="https://www.amazon.com/dp/B08LP8MY8W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Corsa Exhst Corsa - 14-19 Chevrolet Corvette C7 6.2l V8 Carbon Fiber Air Intake</a>
+## <a href="https://www.amazon.com/dp/B08LP8MY8W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Corsa Exhst Corsa - 14-19 Chevrolet Corvette C7 6.2l V8 Carbon Fiber Air Intake</a>
 
 
-<a href="https://www.amazon.com/dp/B08LP8MY8W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CORSA EXHST Corsa - 14-19 Chevrolet Corvette C7 6.2L V8 Carbon Fiber Air Intake (Does Not Fit Z06/ZR1) (44001)" src="https://m.media-amazon.com/images/I/31Zmbpu94pL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08LP8MY8W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CORSA EXHST Corsa - 14-19 Chevrolet Corvette C7 6.2L V8 Carbon Fiber Air Intake (Does Not Fit Z06/ZR1) (44001)" src="https://m.media-amazon.com/images/I/31Zmbpu94pL._SL500_.jpg"/></a>
 
 
 The **CORSA EXHST Corsa - 14-19 Chevrolet Corvette C7 6.2L V8 Carbon Fiber Air Intake** is ideal for automotive enthusiasts and Corvette C7 owners looking to enhance their vehicle's performance and aesthetics. Specifically designed for the 2014-2019 Chevrolet Corvette C7 models (excluding Z06 and ZR1), this air intake system is perfect for those who want a reliable upgrade that improves airflow and engine efficiency without compromising on style.
@@ -254,10 +254,10 @@ The **CORSA EXHST Corsa Carbon Fiber Air Intake** is engineered to optimize the 
 
 Beyond performance improvements, this air intake system elevates the visual appeal of the engine bay with its sleek **black carbon fiber** finish, appealing to those who appreciate both function and style. The precise fitment designed specifically for the **Chevrolet Corvette C7 6.2L V8** models guarantees a seamless upgrade without modifications. Overall, this product provides a perfect balance between performance enhancement and aesthetic improvement for Corvette enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B085R51Z3M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Afe Power Magnum Force Stage-2 Cold Air Intake System</a>
+## <a href="https://www.amazon.com/dp/B085R51Z3M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Afe Power Magnum Force Stage-2 Cold Air Intake System</a>
 
 
-<a href="https://www.amazon.com/dp/B085R51Z3M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="aFe POWER Magnum FORCE Stage-2 Cold Air Intake System w/Pro 5R Filter, #54-13041R, Black" src="https://m.media-amazon.com/images/I/31h0h7MLefL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B085R51Z3M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="aFe POWER Magnum FORCE Stage-2 Cold Air Intake System w/Pro 5R Filter, #54-13041R, Black" src="https://m.media-amazon.com/images/I/31h0h7MLefL._SL500_.jpg"/></a>
 
 
 The **aFe POWER Magnum FORCE Stage-2 Cold Air Intake System w/Pro 5R Filter, #54-13041R, Black** is ideal for automotive enthusiasts and performance seekers who want to boost their vehicle's power and efficiency. If you're looking to enhance your engine's airflow and achieve better throttle response while maintaining durability, this cold air intake system is a perfect fit. It is especially suited for those who appreciate high-quality aftermarket parts designed to optimize their vehicle's performance.

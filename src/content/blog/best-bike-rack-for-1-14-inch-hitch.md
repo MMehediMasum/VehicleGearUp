@@ -23,10 +23,10 @@ Features like foldability, adjustable pedals, and support for wider tires add co
 
 
 
-## <a href="https://www.amazon.com/dp/B0012SBVSY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Yakima Doubledown 4 Tilting Aluminum Hitch Bike Rack</a>
+## <a href="https://www.amazon.com/dp/B0012SBVSY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Yakima Doubledown 4 Tilting Aluminum Hitch Bike Rack</a>
 
 
-<a href="https://www.amazon.com/dp/B0012SBVSY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Yakima DoubleDown 4 Tilting Aluminum Hitch Bike Rack for Car, SUV, and Truck with 1.25 or 2 Inch Bike Rack Hitch Receivers, Black" src="https://m.media-amazon.com/images/I/31b1uRl-z2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0012SBVSY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Yakima DoubleDown 4 Tilting Aluminum Hitch Bike Rack for Car, SUV, and Truck with 1.25 or 2 Inch Bike Rack Hitch Receivers, Black" src="https://m.media-amazon.com/images/I/31b1uRl-z2L._SL500_.jpg"/></a>
 
 
 The **Yakima DoubleDown 4 Tilting Aluminum Hitch Bike Rack** is ideal for outdoor enthusiasts and families who own a **Car, SUV, or Truck** and need a reliable, versatile solution to transport up to four bikes. If you frequently go on biking adventures or road trips, and your vehicle has a **1.25 or 2 Inch Bike Rack Hitch Receiver**, this bike rack is a perfect fit for you.
@@ -48,10 +48,10 @@ The **Yakima DoubleDown 4** bike rack boasts a robust yet lightweight **aluminum
 
 Moreover, the rack’s compatibility with both **1.25 and 2-inch hitch receivers** means it can be easily installed on a wide range of vehicles, including cars, SUVs, and trucks. This flexibility ensures that users don’t need to worry about compatibility issues. The capacity to securely carry up to four bikes makes it a practical choice for families or groups, providing peace of mind with its sturdy construction and reliable bike hold during transit.
 
-## <a href="https://www.amazon.com/dp/B0DWJXJFBS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rockland Foldable 2-bike Rack</a>
+## <a href="https://www.amazon.com/dp/B0DWJXJFBS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rockland Foldable 2-bike Rack</a>
 
 
-<a href="https://www.amazon.com/dp/B0DWJXJFBS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rockland Foldable 2-Bike Rack, 80 lbs Capacity, Hitch Mount Bike Rack with Adjustable Pedal, Bike Carrier Rack for 1.25" src="https://m.media-amazon.com/images/I/31-hu5eIkgL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DWJXJFBS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rockland Foldable 2-Bike Rack, 80 lbs Capacity, Hitch Mount Bike Rack with Adjustable Pedal, Bike Carrier Rack for 1.25" src="https://m.media-amazon.com/images/I/31-hu5eIkgL._SL500_.jpg"/></a>
 
 
 The **Rockland Foldable 2-Bike Rack** is ideal for outdoor enthusiasts and families who frequently travel with their bicycles. If you own a **car, SUV, van, or RV** equipped with a 1.25" or 2" receiver hitch and need a reliable, space-saving solution for transporting up to two bikes, this bike carrier rack is perfect for you.
@@ -75,10 +75,10 @@ The **Rockland Foldable 2-Bike Rack** features a robust construction that ensure
 
 Additionally, the foldable design adds a significant benefit by saving space when the rack is not in use, making it easier to store in your garage or vehicle. The lightweight yet sturdy build makes installation straightforward, allowing users to quickly attach or detach the rack without assistance. Overall, this bike carrier rack combines convenience, durability, and flexibility, making it an excellent investment for anyone looking to transport bikes safely and efficiently.
 
-## <a href="https://www.amazon.com/dp/B0001VO1YY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Swagman Xc2 Hitch Mount Bike Rack</a>
+## <a href="https://www.amazon.com/dp/B0001VO1YY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Swagman Xc2 Hitch Mount Bike Rack</a>
 
 
-<a href="https://www.amazon.com/dp/B0001VO1YY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Swagman XC2 Hitch Mount Bike Rack" src="https://m.media-amazon.com/images/I/31buPRENDrL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0001VO1YY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Swagman XC2 Hitch Mount Bike Rack" src="https://m.media-amazon.com/images/I/31buPRENDrL._SL500_.jpg"/></a>
 
 
 The **Swagman XC2 Hitch Mount Bike Rack** is ideal for cycling enthusiasts and outdoor adventurers who need a reliable and easy-to-use solution for transporting their bikes. If you own one or two bikes and frequently travel by car, this bike rack is designed to offer convenience, security, and durability without compromising vehicle space.
@@ -101,10 +101,10 @@ The **Swagman XC2 Hitch Mount Bike Rack** features a sturdy steel frame coated i
 
 One of the standout features is the innovative tilting function, which grants easy access to the trunk or rear hatch without needing to remove the rack or bikes. This saves time and effort during trips. Additionally, the frame cradle hooks ensure that bikes remain stable and secure even on bumpy roads, providing peace of mind for users. Overall, this bike rack combines practicality with durability, making it an excellent choice for casual riders and weekend adventurers alike.
 
-## <a href="https://www.amazon.com/dp/B0DWF3JD5Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rockland Foldable 2-bike Rack</a>
+## <a href="https://www.amazon.com/dp/B0DWF3JD5Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rockland Foldable 2-bike Rack</a>
 
 
-<a href="https://www.amazon.com/dp/B0DWF3JD5Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rockland Foldable 2-Bike Rack, 80 lbs Capacity, Hitch Mount Bike Rack, Fits up to 2.5" src="https://m.media-amazon.com/images/I/31XmxW49+uL._SL500_.jpg" width=""/></a>
+<a href="https://www.amazon.com/dp/B0DWF3JD5Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rockland Foldable 2-Bike Rack, 80 lbs Capacity, Hitch Mount Bike Rack, Fits up to 2.5" src="https://m.media-amazon.com/images/I/31XmxW49+uL._SL500_.jpg" width=""/></a>
 
 
 The **Rockland Foldable 2-Bike Rack** is perfect for cycling enthusiasts who frequently travel with their bikes and need a reliable and sturdy solution for transporting them. Ideal for families, adventure seekers, and anyone with a passion for biking, this bike rack offers a convenient way to carry your bikes on road trips or to local trails.
@@ -126,10 +126,10 @@ The **Rockland Foldable 2-Bike Rack** is designed with the user in mind, offerin
 
 Additionally, the **sturdy construction** of this bike rack ensures that your bikes remain secure and stable during transport, reducing the risk of damage to your bikes or vehicle. However, it's important to note that the rack may require some initial assembly, and its design may not accommodate all bike types, particularly those with wider tires. Despite these considerations, the Rockland Foldable 2-Bike Rack remains a top choice for those seeking a reliable and efficient way to transport their bikes.
 
-## <a href="https://www.amazon.com/dp/B00TRTSRVE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Allen Sports Deluxe 3-bike Hitch Mount Rack</a>
+## <a href="https://www.amazon.com/dp/B00TRTSRVE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Allen Sports Deluxe 3-bike Hitch Mount Rack</a>
 
 
-<a href="https://www.amazon.com/dp/B00TRTSRVE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Allen Sports Deluxe 3-Bike Hitch Mount Rack, Model 532RR-R" src="https://m.media-amazon.com/images/I/41Dn+wbUkBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00TRTSRVE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Allen Sports Deluxe 3-Bike Hitch Mount Rack, Model 532RR-R" src="https://m.media-amazon.com/images/I/41Dn+wbUkBL._SL500_.jpg"/></a>
 
 
 The **Allen Sports Deluxe 3-Bike Hitch Mount Rack, Model 532RR-R** is ideal for avid cyclists who want a reliable and convenient way to transport up to three bikes securely. Perfect for families or groups of friends who frequently travel with their bikes, this rack suits those who own vehicles equipped with a standard hitch receiver and seek a durable, easy-to-use bike carrier.
@@ -152,10 +152,10 @@ The **Allen Sports Deluxe 3-Bike Hitch Mount Rack** features a robust steel fram
 
 Equipped to carry three bikes simultaneously, this rack provides secure cradles and adjustable straps to keep each bike stable during transit. Its compatibility with most standard hitch receivers makes it a versatile option for a wide range of vehicles. By investing in the **Allen Sports Deluxe 3-Bike Hitch Mount Rack**, users benefit from a hassle-free, secure, and weather-resistant way to transport their bikes on every adventure.
 
-## <a href="https://www.amazon.com/dp/B07G5VLMN1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Maxxhaul 50025 Hitch Mount 2 Bike Rack</a>
+## <a href="https://www.amazon.com/dp/B07G5VLMN1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Maxxhaul 50025 Hitch Mount 2 Bike Rack</a>
 
 
-<a href="https://www.amazon.com/dp/B07G5VLMN1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MaxxHaul 50025 Hitch Mount 2 Bike Rack For Cars, Trucks, SUV's, Minivans - 100 lb. Capacity" src="https://m.media-amazon.com/images/I/31uB2rUIxFL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07G5VLMN1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MaxxHaul 50025 Hitch Mount 2 Bike Rack For Cars, Trucks, SUV's, Minivans - 100 lb. Capacity" src="https://m.media-amazon.com/images/I/31uB2rUIxFL._SL500_.jpg"/></a>
 
 
 The **MaxxHaul 50025 Hitch Mount 2 Bike Rack** is ideal for outdoor enthusiasts and families who own **cars, trucks, SUVs, or minivans** and need a reliable solution to transport up to two bikes securely. If you frequently go on biking adventures or weekend trips and want a hassle-free way to carry your bicycles without sacrificing interior space, this bike rack is designed for you.
@@ -178,10 +178,10 @@ The **MaxxHaul 50025 Hitch Mount 2 Bike Rack** features a sturdy frame designed 
 
 Its sleek **black finish** not only adds an aesthetic appeal but also provides resistance to rust and weather conditions, extending the product's lifespan. The rack is designed for straightforward installation on standard hitch receivers, minimizing setup time and effort. Overall, the **MaxxHaul 50025** delivers a practical and durable bike transport solution that balances capacity, ease of use, and design for active lifestyles.
 
-## <a href="https://www.amazon.com/dp/B00IHR0H1K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hollywood Racks Trail Rider Hitch Mount Rack</a>
+## <a href="https://www.amazon.com/dp/B00IHR0H1K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hollywood Racks Trail Rider Hitch Mount Rack</a>
 
 
-<a href="https://www.amazon.com/dp/B00IHR0H1K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Hollywood Racks, Trail Rider, Hitch Mount Rack, 1-1/4'' and 2'', Bikes: 2" src="https://m.media-amazon.com/images/I/31iJI0hUfEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00IHR0H1K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Hollywood Racks, Trail Rider, Hitch Mount Rack, 1-1/4'' and 2'', Bikes: 2" src="https://m.media-amazon.com/images/I/31iJI0hUfEL._SL500_.jpg"/></a>
 
 
 The **Hollywood Racks Trail Rider Hitch Mount Rack** is ideal for cyclists and outdoor enthusiasts who need a reliable and sturdy solution to transport their bikes. This rack is perfect for those who own vehicles with a standard **1-1/4'' or 2'' hitch receiver** and want to carry up to two bikes securely on road trips, weekend getaways, or daily rides.
@@ -203,10 +203,10 @@ The **Hollywood Racks Trail Rider** is designed with a robust frame and a secure
 
 Thanks to its thoughtful engineering, the rack allows for easy loading and unloading of bikes, minimizing the hassle typically associated with bike racks. Its ability to carry two bikes makes it a practical solution for small groups without compromising on safety or stability. Whether you're heading out for a short ride or a long vacation, the **Hollywood Racks Trail Rider** offers convenience and peace of mind, ensuring your bikes are transported securely and efficiently.
 
-## <a href="https://www.amazon.com/dp/B00AK9YMIM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Maxxhaul 70210 Hitch Mount Bike Rack 4-bike Rack</a>
+## <a href="https://www.amazon.com/dp/B00AK9YMIM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Maxxhaul 70210 Hitch Mount Bike Rack 4-bike Rack</a>
 
 
-<a href="https://www.amazon.com/dp/B00AK9YMIM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MaxxHaul 70210 Hitch Mount Bike Rack 4-Bike Rack, Black For Cars Trucks SUV's Minivans, Large" src="https://m.media-amazon.com/images/I/415DqPJJKGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00AK9YMIM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MaxxHaul 70210 Hitch Mount Bike Rack 4-Bike Rack, Black For Cars Trucks SUV's Minivans, Large" src="https://m.media-amazon.com/images/I/415DqPJJKGL._SL500_.jpg"/></a>
 
 
 The **MaxxHaul 70210 Hitch Mount Bike Rack 4-Bike Rack** is ideal for outdoor enthusiasts and families who own cars, trucks, SUVs, or minivans and need a reliable solution to transport multiple bicycles securely. If you frequently go on biking trips or want an easy way to carry your bikes without sacrificing vehicle space, this large, sturdy bike rack is designed to meet those needs effectively.
@@ -229,10 +229,10 @@ The **MaxxHaul 70210 Hitch Mount Bike Rack** features a robust design made from 
 
 Installation is straightforward with the hitch mount system that fits most standard hitch receivers on cars, trucks, SUVs, and minivans. This versatility allows users to easily switch the rack between vehicles if needed. Additionally, the rack’s compact size when mounted does not obstruct rear visibility or vehicle access, making it practical for everyday use. Overall, the MaxxHaul 70210 provides a reliable, secure, and convenient way to transport multiple bikes safely on your next outdoor trip.
 
-## <a href="https://www.amazon.com/dp/B07GBPBW1T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Maxxhaul 50027 Hitch Mount Bike Rack Platform</a>
+## <a href="https://www.amazon.com/dp/B07GBPBW1T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Maxxhaul 50027 Hitch Mount Bike Rack Platform</a>
 
 
-<a href="https://www.amazon.com/dp/B07GBPBW1T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MaxxHaul 50027 Hitch Mount Bike Rack Platform - Style 2-Bike Rack for Cars Trucks SUVs Minivans with Hitch Tightener, Great For E-bikes With Standard Width Tires" src="https://m.media-amazon.com/images/I/41HcfI8QDdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07GBPBW1T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MaxxHaul 50027 Hitch Mount Bike Rack Platform - Style 2-Bike Rack for Cars Trucks SUVs Minivans with Hitch Tightener, Great For E-bikes With Standard Width Tires" src="https://m.media-amazon.com/images/I/41HcfI8QDdL._SL500_.jpg"/></a>
 
 
 The **MaxxHaul 50027 Hitch Mount Bike Rack Platform** is ideal for outdoor enthusiasts and cyclists who own **cars, trucks, SUVs, or minivans** with a hitch receiver and need a reliable way to transport their bikes, especially **e-bikes with standard width tires**. This bike rack is perfect for those who want a secure, easy-to-use platform that can handle heavier bikes without hassle. If you frequently travel with your bikes or want to protect your investment during transport, this rack is an excellent choice.
@@ -255,10 +255,10 @@ The **MaxxHaul 50027** bike rack features a sturdy platform design that makes lo
 
 Additionally, the rack's black finish not only enhances its sleek appearance but also adds a layer of protection against corrosion and weather exposure. The size and dimensions of the rack provide ample space for bikes with standard width tires, ensuring they stay stable and protected during transit. Overall, this bike rack combines durability, ease of use, and practical features, making it a smart investment for avid cyclists and families alike.
 
-## <a href="https://www.amazon.com/dp/B001DMJPLO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Swagman Xtc2 Hitch Mount Bike Rack</a>
+## <a href="https://www.amazon.com/dp/B001DMJPLO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Swagman Xtc2 Hitch Mount Bike Rack</a>
 
 
-<a href="https://www.amazon.com/dp/B001DMJPLO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Swagman XTC2 Hitch Mount Bike Rack" src="https://m.media-amazon.com/images/I/41uFS+q0O2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B001DMJPLO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Swagman XTC2 Hitch Mount Bike Rack" src="https://m.media-amazon.com/images/I/41uFS+q0O2L._SL500_.jpg"/></a>
 
 
 The **Swagman XTC2 Hitch Mount Bike Rack** is ideal for avid cyclists and outdoor enthusiasts who need a reliable and convenient way to transport their bikes. Perfect for those who own a vehicle with a hitch receiver, this bike rack is designed for individuals looking for a sturdy, easy-to-use solution to carry two bikes securely during their adventures.

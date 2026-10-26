@@ -23,10 +23,10 @@ This guide covers top tire options for Class C motorhomes. It helps you find tir
 
 
 
-## <a href="https://www.amazon.com/dp/B0DFMC5WQ1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Electroglobal Robotic Car Wheels</a>
+## <a href="https://www.amazon.com/dp/B0DFMC5WQ1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Electroglobal Robotic Car Wheels</a>
 
 
-<a href="https://www.amazon.com/dp/B0DFMC5WQ1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Electroglobal ROBOTIC CAR WHEELS | UNIVERSAL HUB 65 MM GEAR MOTOR TYRE | WHEEL, TYRE FOR TOY CAR, BO MOTOR, DC GEAR TYRES, RUBBER TYRES" src="https://m.media-amazon.com/images/I/41X81ufCAfL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DFMC5WQ1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Electroglobal ROBOTIC CAR WHEELS | UNIVERSAL HUB 65 MM GEAR MOTOR TYRE | WHEEL, TYRE FOR TOY CAR, BO MOTOR, DC GEAR TYRES, RUBBER TYRES" src="https://m.media-amazon.com/images/I/41X81ufCAfL._SL500_.jpg"/></a>
 
 
 The **Electroglobal ROBOTIC CAR WHEELS** are ideal for hobbyists, robotics enthusiasts, and DIY toy car builders looking for reliable and versatile wheel options. If you need durable, easy-to-install, and efficient **gear motor tyres** compatible with various small robotic and toy car projects, this product is a perfect fit. Its universal hub design makes it suitable for users seeking flexibility in mounting and upgrading their robotic vehicles.

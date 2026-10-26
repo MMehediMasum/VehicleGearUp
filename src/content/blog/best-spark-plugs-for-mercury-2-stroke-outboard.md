@@ -23,10 +23,10 @@ These plugs suit various horsepower levels, from 6 HP to 225 HP and beyond. Some
 
 
 
-## <a href="https://www.amazon.com/dp/B0DF7BB7SG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"> Bdfhyk 4495 Iridium Spark Plugs </a>
+## <a href="https://www.amazon.com/dp/B0DF7BB7SG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"> Bdfhyk 4495 Iridium Spark Plugs </a>
 
 
-<a href="https://www.amazon.com/dp/B0DF7BB7SG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BDFHYK 4495 Iridium Spark Plugs Compatible with Outboard for Mercury 6 8 40 50 115 125 20 30 40 45 55 60 80 Jet Sea Pro 225 Work 25 2-Stroke Universal Spark Plugs Replacement for BPZ8HN10 Set of 4" src="https://m.media-amazon.com/images/I/41BxCXMWT7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DF7BB7SG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BDFHYK 4495 Iridium Spark Plugs Compatible with Outboard for Mercury 6 8 40 50 115 125 20 30 40 45 55 60 80 Jet Sea Pro 225 Work 25 2-Stroke Universal Spark Plugs Replacement for BPZ8HN10 Set of 4" src="https://m.media-amazon.com/images/I/41BxCXMWT7L._SL500_.jpg"/></a>
 
 
 The **BDFHYK 4495 Iridium Spark Plugs** are ideal for boat owners and marine mechanics who require reliable and high-performance spark plugs compatible with various **Mercury outboard engines**. If you own models ranging from **6 to 225 horsepower** or work with **2-stroke engines**, these spark plugs offer a universal replacement solution designed to enhance engine efficiency and durability.
@@ -48,10 +48,10 @@ The **BDFHYK 4495 Iridium Spark Plugs** feature advanced **iridium tips** which 
 
 Additionally, the spark plugs' **corrosion-resistant** design helps maintain optimal function in harsh marine environments, extending the lifespan and reliability of your engine components. By improving ignition efficiency, users benefit from better fuel economy and reduced emissions, making these spark plugs an excellent investment for maintaining and enhancing the performance of your boat’s engine.
 
-## <a href="https://www.amazon.com/dp/B0D8187MZY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ql78yc Spark Plugs</a>
+## <a href="https://www.amazon.com/dp/B0D8187MZY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ql78yc Spark Plugs</a>
 
 
-<a href="https://www.amazon.com/dp/B0D8187MZY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="QL78YC Spark Plugs Replace BPZ8HS10, Fit for Johnson Evinrude Mercury Marine Outboard Engines 8PCS" src="https://m.media-amazon.com/images/I/41W1aT85XfL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D8187MZY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="QL78YC Spark Plugs Replace BPZ8HS10, Fit for Johnson Evinrude Mercury Marine Outboard Engines 8PCS" src="https://m.media-amazon.com/images/I/41W1aT85XfL._SL500_.jpg"/></a>
 
 
 Ideal for boat owners and marine engine enthusiasts, the **QL78YC Spark Plugs** are specifically designed to replace the **BPZ8HS10** and fit perfectly with **Johnson**, **Evinrude**, and **Mercury Marine Outboard Engines**. If you are looking to maintain or improve the performance of your marine engine, these spark plugs offer a reliable and efficient solution.
@@ -73,10 +73,10 @@ The **QL78YC Spark Plugs** are crafted with precision to meet the needs of marin
 
 Additionally, the pack of 8 spark plugs ensures that you can replace all plugs in your multi-cylinder engine at once, maintaining balanced performance across all cylinders. The spark plugs' resistance to corrosion and wear also means fewer replacements over time, saving both effort and money while ensuring your marine engine runs at peak efficiency.
 
-## <a href="https://www.amazon.com/dp/B08B51WJGG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Set Of 6 Spark Plugs Non Resistor Bu8h</a>
+## <a href="https://www.amazon.com/dp/B08B51WJGG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Set Of 6 Spark Plugs Non Resistor Bu8h</a>
 
 
-<a href="https://www.amazon.com/dp/B08B51WJGG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Set of 6 Spark Plugs Non Resistor BU8H / BU 8 H / 6431 (6)" src="https://m.media-amazon.com/images/I/51g98kW+BUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08B51WJGG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Set of 6 Spark Plugs Non Resistor BU8H / BU 8 H / 6431 (6)" src="https://m.media-amazon.com/images/I/51g98kW+BUL._SL500_.jpg"/></a>
 
 
 The **Set of 6 Spark Plugs Non Resistor BU8H / BU 8 H / 6431** by **Aimery** is ideal for vehicle owners and mechanics looking for reliable and efficient spark plugs that ensure optimal engine performance. If you want to maintain your car’s ignition system with high-quality components that offer consistent firing and easy installation, this set is a perfect choice. It suits those who prioritize durability and efficient engine combustion in their vehicles.
@@ -98,10 +98,10 @@ The **Aimery Set of 6 Spark Plugs Non Resistor BU8H** is engineered to provide r
 
 Additionally, the lightweight design of these spark plugs reduces handling fatigue and speeds up the maintenance process. By using this set, vehicle owners can expect improved fuel efficiency and reduced engine misfires, contributing to better overall engine health. The non-resistor feature offers a direct spark delivery path, which benefits older vehicle models that do not require resistor plugs, enhancing their ignition system's reliability.
 
-## <a href="https://www.amazon.com/dp/B0F1XTPR3G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sykrss 4838 Iridium Spark Plugs 4 Pack</a>
+## <a href="https://www.amazon.com/dp/B0F1XTPR3G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sykrss 4838 Iridium Spark Plugs 4 Pack</a>
 
 
-<a href="https://www.amazon.com/dp/B0F1XTPR3G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SYKRSS 4838 Iridium Spark Plugs 4 Pack - Compatible with Mercury Mariner 40hp 45hp 50hp 60hp 125hp etc. Boat Engine - Replaces BP8H-N-10 Spark Plug" src="https://m.media-amazon.com/images/I/41jnLzZkpZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F1XTPR3G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SYKRSS 4838 Iridium Spark Plugs 4 Pack - Compatible with Mercury Mariner 40hp 45hp 50hp 60hp 125hp etc. Boat Engine - Replaces BP8H-N-10 Spark Plug" src="https://m.media-amazon.com/images/I/41jnLzZkpZL._SL500_.jpg"/></a>
 
 
 The **SYKRSS 4838 Iridium Spark Plugs 4 Pack** is ideal for boat owners with **Mercury Mariner engines** ranging from **40hp to 125hp**. If you seek enhanced engine performance and longevity, these spark plugs are a perfect fit for your needs. Designed to replace the **BP8H-N-10 Spark Plug**, they ensure compatibility and high efficiency for your boat engine, making them a smart investment for avid boaters and marine enthusiasts.
@@ -121,10 +121,10 @@ The **SYKRSS 4838 Iridium Spark Plugs** provide numerous features that significa
 
 Another notable feature is the plug's compatibility with a broad range of **Mercury Mariner engines**. This means that whether you have a 40hp or a 125hp engine, you can expect a perfect fit and optimal performance enhancement. This versatility not only makes it a convenient choice for many boat owners but also ensures that users get maximum value for their investment by avoiding the need for frequent replacements or repairs. With these spark plugs, users can enjoy smoother engine operations and potentially better fuel efficiency, enhancing their overall boating experience.
 
-## <a href="https://www.amazon.com/dp/B0DFT9LD43?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">3 Pcs Outboard Ignition Coil With Cdm Module For Mercury Mercruiser</a>
+## <a href="https://www.amazon.com/dp/B0DFT9LD43?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">3 Pcs Outboard Ignition Coil With Cdm Module For Mercury Mercruiser</a>
 
 
-<a href="https://www.amazon.com/dp/B0DFT9LD43?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="3 Pcs Outboard Ignition Coil with CDM Module 4 Pin &amp; Spark Plug for Mercury MerCruiser, 827509A10 827509T7 114-7509, 2-Stroker 30 40 45 50 55 60 65 75 80 90 100 115 125 135 140 150 225 HP" src="https://m.media-amazon.com/images/I/419eDJxwhzL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DFT9LD43?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="3 Pcs Outboard Ignition Coil with CDM Module 4 Pin &amp; Spark Plug for Mercury MerCruiser, 827509A10 827509T7 114-7509, 2-Stroker 30 40 45 50 55 60 65 75 80 90 100 115 125 135 140 150 225 HP" src="https://m.media-amazon.com/images/I/419eDJxwhzL._SL500_.jpg"/></a>
 
 
 Ideal for boat owners and marine enthusiasts who use **Mercury MerCruiser** engines, the **3 Pcs Outboard Ignition Coil with CDM Module 4 Pin & Spark Plug** is perfect for those needing reliable replacement parts for their **2-stroke** engines ranging from **30 HP to 225 HP**. Whether you are performing routine maintenance or upgrading your boat’s ignition system, this product ensures compatibility and performance for a wide range of Mercury MerCruiser models.
@@ -145,10 +145,10 @@ The **3 Pcs Outboard Ignition Coil with CDM Module 4 Pin & Spark Plug** is desig
 
 Additionally, the lightweight and compact design of these components simplifies installation and maintenance, reducing downtime and getting you back on the water faster. The product’s compatibility with a wide range of horsepower ratings means it is a versatile choice for many boat owners seeking dependable ignition parts. Backed by the reputable **zozoye** brand, this ignition coil set promises longevity and dependable operation, making it an excellent investment for maintaining your Mercury MerCruiser engine’s peak performance.
 
-## <a href="https://www.amazon.com/dp/B0DFTCPNRJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Outboard Ignition Coil Cdm Module For Mercury Mercruiser</a>
+## <a href="https://www.amazon.com/dp/B0DFTCPNRJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Outboard Ignition Coil Cdm Module For Mercury Mercruiser</a>
 
 
-<a href="https://www.amazon.com/dp/B0DFTCPNRJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Outboard Ignition Coil CDM Module for Mercury MerCruiser with 4 Pin &amp; Spark Plug, for 2-Stroker 30-300 HP EH150 EH175 EH200 EH225 EH300 827509A10 827509T7 114-7509" src="https://m.media-amazon.com/images/I/41ePDSlVmCL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DFTCPNRJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Outboard Ignition Coil CDM Module for Mercury MerCruiser with 4 Pin &amp; Spark Plug, for 2-Stroker 30-300 HP EH150 EH175 EH200 EH225 EH300 827509A10 827509T7 114-7509" src="https://m.media-amazon.com/images/I/41ePDSlVmCL._SL500_.jpg"/></a>
 
 
 The **Outboard Ignition Coil CDM Module** for **Mercury MerCruiser** is ideal for boat owners and marine enthusiasts who use 2-stroke engines ranging from **30 to 300 HP**. This product is perfect for those seeking a reliable and efficient ignition system replacement or upgrade, especially for models like **EH150, EH175, EH200, EH225,** and **EH300**. If you want to maintain optimal engine performance and ensure smooth starts, this module is a suitable choice.
@@ -170,10 +170,10 @@ The **Outboard Ignition Coil CDM Module** boasts a robust design tailored to enh
 
 Moreover, the module's lightweight and compact form factor make it easy to handle and install without adding unnecessary bulk to your engine setup. With the backing of the **zozoye** brand, users benefit from a product built with quality materials designed to withstand the marine environment’s rigors, providing long-lasting durability and reliability for your boating adventures.
 
-## <a href="https://www.amazon.com/dp/B0FGNQJYGW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">4-pack Lkar7c-9 Iridium Spark Plug</a>
+## <a href="https://www.amazon.com/dp/B0FGNQJYGW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">4-pack Lkar7c-9 Iridium Spark Plug</a>
 
 
-<a href="https://www.amazon.com/dp/B0FGNQJYGW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="4-Pack LKAR7C-9 Iridium Spark Plug – Fits Mercury Outboard Motors 175-300 HP, 450R V6/V8 4-Stroke Outboards – Replaces 93961, 8M0135348, 33-8M0135348" src="https://m.media-amazon.com/images/I/41aL7v1u4HL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FGNQJYGW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="4-Pack LKAR7C-9 Iridium Spark Plug – Fits Mercury Outboard Motors 175-300 HP, 450R V6/V8 4-Stroke Outboards – Replaces 93961, 8M0135348, 33-8M0135348" src="https://m.media-amazon.com/images/I/41aL7v1u4HL._SL500_.jpg"/></a>
 
 
 The **4-Pack LKAR7C-9 Iridium Spark Plug** is ideal for boat owners and marine mechanics who use **Mercury Outboard Motors** ranging from **175-300 HP**. If you own a **450R V6/V8 4-Stroke Outboard** and need reliable spark plugs that ensure optimal engine performance, these spark plugs are designed specifically for your needs. This product is perfect for those seeking durable and high-quality replacements that fit models requiring part numbers **93961, 8M0135348, 33-8M0135348**.
@@ -195,10 +195,10 @@ These **Iridium Spark Plugs** stand out due to their superior construction mater
 
 Weighing just **0.4 pounds**, the plugs are easy to handle, making installation straightforward for those familiar with outboard motor maintenance. The 4-pack provides a convenient supply, reducing the need for frequent purchases and ensuring you always have replacements on hand. Overall, these spark plugs are a practical investment for anyone looking to maintain their boat's engine efficiency and reliability.
 
-## <a href="https://www.amazon.com/dp/B0C9LP4DNP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Spark Plug Four Wire Set For Mercury 40-60 Hp Efi 4 Stroke Outboard</a>
+## <a href="https://www.amazon.com/dp/B0C9LP4DNP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Spark Plug Four Wire Set For Mercury 40-60 Hp Efi 4 Stroke Outboard</a>
 
 
-<a href="https://www.amazon.com/dp/B0C9LP4DNP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Spark Plug Four Wire Set for Mercury 40-60 HP EFI 4 Stroke Outboard 84-881908T" src="https://m.media-amazon.com/images/I/313XtGl61vL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C9LP4DNP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Spark Plug Four Wire Set for Mercury 40-60 HP EFI 4 Stroke Outboard 84-881908T" src="https://m.media-amazon.com/images/I/313XtGl61vL._SL500_.jpg"/></a>
 
 
 The **Spark Plug Four Wire Set for Mercury 40-60 HP EFI 4 Stroke Outboard 84-881908T** is ideal for boat owners and marine enthusiasts who rely on Mercury outboard engines for their watercraft. If you are looking to maintain or improve the ignition system performance of your 40-60 HP EFI 4 stroke Mercury outboard motor, this set is designed specifically to meet those needs with precision and reliability.
@@ -219,10 +219,10 @@ This **spark plug wire set** is crafted by **STGKCO** with the marine environmen
 
 Additionally, the set’s precise fit for the Mercury 40-60 HP EFI 4 stroke models means that users can expect hassle-free installation and optimal engine performance. The lightweight yet robust construction minimizes wear and tear, extending the life of your ignition system components and helping maintain the overall health of your outboard engine.
 
-## <a href="https://www.amazon.com/dp/B0F1XHHFB7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sykrss Br8hs-10 Spark Plugs 6 Pack</a>
+## <a href="https://www.amazon.com/dp/B0F1XHHFB7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sykrss Br8hs-10 Spark Plugs 6 Pack</a>
 
 
-<a href="https://www.amazon.com/dp/B0F1XHHFB7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SYKRSS BR8HS-10 Spark Plugs 6 Pack - Compatible with Yamaha 2-Stroke Outboard Compatible with Mariner 2-Stroke Outboard for Tohatsu 2-Stroke Outboard Engines - Nickel - Replaces 1134 Spark Plug" src="https://m.media-amazon.com/images/I/41e5RQHGFwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F1XHHFB7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SYKRSS BR8HS-10 Spark Plugs 6 Pack - Compatible with Yamaha 2-Stroke Outboard Compatible with Mariner 2-Stroke Outboard for Tohatsu 2-Stroke Outboard Engines - Nickel - Replaces 1134 Spark Plug" src="https://m.media-amazon.com/images/I/41e5RQHGFwL._SL500_.jpg"/></a>
 
 
 The **SYKRSS BR8HS-10 Spark Plugs 6 Pack** is ideal for boat owners and marine enthusiasts who operate **Yamaha, Mariner,** or **Tohatsu 2-stroke outboard engines**. If you are looking for reliable, high-performance spark plugs that ensure consistent engine ignition and smooth operation, this product is designed for you. It is perfect for those who want to maintain or replace their outboard engine spark plugs with a cost-effective and compatible option.
@@ -244,10 +244,10 @@ The **SYKRSS BR8HS-10 Spark Plugs** are engineered to deliver dependable ignitio
 
 By using these spark plugs, users benefit from improved engine efficiency and reliable starts in various marine conditions. The pack of six allows you to keep spare plugs on hand, reducing downtime during maintenance. Overall, the SYKRSS spark plugs provide a practical and effective solution to maintaining your outboard engine’s performance while being budget-friendly.
 
-## <a href="https://www.amazon.com/dp/B0BF63LZVW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Quicksilver Spark Plug Wire Set</a>
+## <a href="https://www.amazon.com/dp/B0BF63LZVW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Quicksilver Spark Plug Wire Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0BF63LZVW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Quicksilver 881908T Spark Plug Wire Set for Select Mercury 30-300 Hp Outboards" src="https://m.media-amazon.com/images/I/31pXUnTqOaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BF63LZVW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Quicksilver 881908T Spark Plug Wire Set for Select Mercury 30-300 Hp Outboards" src="https://m.media-amazon.com/images/I/31pXUnTqOaL._SL500_.jpg"/></a>
 
 
 The **Quicksilver 881908T Spark Plug Wire Set** is ideal for boat owners and marine enthusiasts who operate select **Mercury 30-300 Hp outboard engines**. If you are looking to maintain or improve your engine's ignition performance, this wire set is designed to deliver reliable and efficient spark delivery, ensuring smooth engine operation. Whether you're a professional mechanic or a casual boater seeking quality replacement parts, this product is a perfect fit.

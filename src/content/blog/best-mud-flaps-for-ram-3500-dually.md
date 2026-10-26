@@ -23,10 +23,10 @@ Some models come with stainless steel weights for better stability in wind. You 
 
 
 
-## <a href="https://www.amazon.com/dp/B07P5JNDMZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Plasticolor Ram Heavy Duty Rear 12 X 23 Mud Guards</a>
+## <a href="https://www.amazon.com/dp/B07P5JNDMZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Plasticolor Ram Heavy Duty Rear 12 X 23 Mud Guards</a>
 
 
-<a href="https://www.amazon.com/dp/B07P5JNDMZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Plasticolor Ram Heavy Duty Rear 12 X 23 Mud Guards, 12" src="https://m.media-amazon.com/images/I/51sSkZNwNTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07P5JNDMZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Plasticolor Ram Heavy Duty Rear 12 X 23 Mud Guards, 12" src="https://m.media-amazon.com/images/I/51sSkZNwNTL._SL500_.jpg"/></a>
 
 
 The **Plasticolor Ram Heavy Duty Rear 12 X 23 Mud Guards** are ideal for truck owners and commercial vehicle operators who require durable protection against mud, debris, and road spray. If you frequently drive on rough or muddy terrain or want to maintain the cleanliness and condition of your vehicle’s rear wheels, these heavy-duty mud guards are an excellent investment. They are also perfect for those looking to enhance their vehicle’s functionality with a reliable and sturdy accessory.
@@ -48,10 +48,10 @@ The **Plasticolor Ram Heavy Duty Rear Mud Guards** feature a robust design made 
 
 Beyond protection, these mud guards contribute to maintaining a cleaner vehicle exterior and surrounding environment by reducing splash and spray. Their lightweight yet sturdy build ensures that they do not affect the vehicle’s performance or fuel efficiency. Additionally, their sleek black finish adds a professional and rugged look to your truck, enhancing its overall aesthetics while delivering practical benefits.
 
-## <a href="https://www.amazon.com/dp/B07964V1D8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rek Gen 'merica Mud Flaps Dually</a>
+## <a href="https://www.amazon.com/dp/B07964V1D8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rek Gen 'merica Mud Flaps Dually</a>
 
 
-<a href="https://www.amazon.com/dp/B07964V1D8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="REK GEN 'Merica Mud Flaps Dually (Black Flag)" src="https://m.media-amazon.com/images/I/41RMZG430GL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07964V1D8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="REK GEN 'Merica Mud Flaps Dually (Black Flag)" src="https://m.media-amazon.com/images/I/41RMZG430GL._SL500_.jpg"/></a>
 
 
 The **REK GEN 'Merica Mud Flaps Dually (Black Flag)** are ideal for truck owners who want to combine functionality with patriotic style. If you drive a dually truck and need durable, high-quality mud flaps to protect your vehicle from road debris, while showcasing a bold American flag design, this product is perfect for you. It suits those who prioritize both performance and a distinctive look for their trucks.
@@ -72,10 +72,10 @@ The **REK GEN 'Merica Mud Flaps Dually** are crafted to provide excellent protec
 
 Beyond functionality, the bold **Black Flag** design offers a strong visual statement that reflects American pride. This combination of protection and style means that users don’t have to compromise on appearance while improving their truck’s resilience. Overall, these mud flaps enhance both the look and performance of your dually truck, making them an excellent choice for anyone looking to upgrade their vehicle’s accessories.
 
-## <a href="https://www.amazon.com/dp/B07VGC827Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mopar Dodge Ram 2500 3500 Rear Dually Heavy Duty Splash Guards</a>
+## <a href="https://www.amazon.com/dp/B07VGC827Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mopar Dodge Ram 2500 3500 Rear Dually Heavy Duty Splash Guards</a>
 
 
-<a href="https://www.amazon.com/dp/B07VGC827Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mopar Dodge RAM 2500 3500 Rear Dually Heavy Duty Splash Guards New OEM" src="https://m.media-amazon.com/images/I/41W7SM19-3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07VGC827Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mopar Dodge RAM 2500 3500 Rear Dually Heavy Duty Splash Guards New OEM" src="https://m.media-amazon.com/images/I/41W7SM19-3L._SL500_.jpg"/></a>
 
 
 The **Mopar Dodge RAM 2500 3500 Rear Dually Heavy Duty Splash Guards** are perfect for truck enthusiasts who frequently drive in rugged conditions and want to protect their vehicle from mud, debris, and other road hazards. If you own a **Dodge RAM 2500 or 3500** and often find yourself off-roading or driving through harsh weather, these splash guards are an ideal investment.
@@ -96,10 +96,10 @@ The **Mopar Dodge RAM 2500 3500 Rear Dually Heavy Duty Splash Guards** feature a
 
 One of the standout features of these splash guards is their **precise fitment** for Dodge RAM 2500 and 3500 models, which guarantees a seamless look and optimal protection. Furthermore, the **easy installation** process allows truck owners to quickly equip their vehicles without the need for professional assistance. While the initial investment might be higher compared to aftermarket alternatives, the durability and performance offered by these **OEM splash guards** make them a worthwhile purchase for those who value quality and reliability.
 
-## <a href="https://www.amazon.com/dp/B07PZR3DYR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Plasticolor Ram Heavy Duty Front Mud Guards</a>
+## <a href="https://www.amazon.com/dp/B07PZR3DYR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Plasticolor Ram Heavy Duty Front Mud Guards</a>
 
 
-<a href="https://www.amazon.com/dp/B07PZR3DYR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PLASTICOLOR Ram Heavy Duty Front 12 X 23 Mud Guards, 12" src="https://m.media-amazon.com/images/I/51gv668bl9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07PZR3DYR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PLASTICOLOR Ram Heavy Duty Front 12 X 23 Mud Guards, 12" src="https://m.media-amazon.com/images/I/51gv668bl9L._SL500_.jpg"/></a>
 
 
 The **PLASTICOLOR Ram Heavy Duty Front 12 X 23 Mud Guards** are ideal for truck owners who want to protect their vehicle’s exterior from mud, rocks, and debris. If you drive frequently on rough or muddy terrain, or if you want to maintain the cleanliness and appearance of your Ram truck, these mud guards are a perfect choice. They are especially suited for those seeking durable and reliable protection with an easy installation process.
@@ -122,10 +122,10 @@ The **PLASTICOLOR Ram Heavy Duty Front Mud Guards** feature a robust constructio
 
 In addition to their protective benefits, these mud guards enhance the overall driving experience by minimizing splash and spray, which improves visibility for both the driver and surrounding vehicles. Their lightweight design allows for straightforward installation without adding unnecessary weight to the vehicle. Overall, these mud guards provide a practical, long-lasting solution for Ram truck owners seeking to safeguard their investment while maintaining a clean and polished look.
 
-## <a href="https://www.amazon.com/dp/B08VC75RJC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Weathertech Custom No Drill Splash Guard Mudflaps For Ram Truck 2500/3500</a>
+## <a href="https://www.amazon.com/dp/B08VC75RJC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Weathertech Custom No Drill Splash Guard Mudflaps For Ram Truck 2500/3500</a>
 
 
-<a href="https://www.amazon.com/dp/B08VC75RJC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="WeatherTech Custom No Drill Splash Guard MudFlaps for Ram Truck 2500/3500, Ram 2500/3500 (Fender Flares, Dually) - Front &amp; Rear Set (110109-120116), Black" src="https://m.media-amazon.com/images/I/31KWpH4nslL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08VC75RJC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="WeatherTech Custom No Drill Splash Guard MudFlaps for Ram Truck 2500/3500, Ram 2500/3500 (Fender Flares, Dually) - Front &amp; Rear Set (110109-120116), Black" src="https://m.media-amazon.com/images/I/31KWpH4nslL._SL500_.jpg"/></a>
 
 
 The **WeatherTech Custom No Drill Splash Guard MudFlaps** are ideal for owners of **Ram Truck 2500/3500** models, especially those with **fender flares** or **dually configurations**. If you want to protect your truck’s body from mud, rocks, and debris without the hassle of drilling, this set is perfect for you. These mudflaps are designed for both **front and rear** installation, making them a comprehensive solution for maintaining your vehicle’s exterior condition.
@@ -147,10 +147,10 @@ The **WeatherTech Custom No Drill Splash Guard MudFlaps** are engineered with pr
 
 Made from robust materials, these mudflaps provide excellent protection against harsh road conditions. Their durable black finish not only enhances the rugged look of your truck but also withstands wear and tear from exposure to elements. By installing these mudflaps, users can significantly reduce the amount of mud and debris that hits the truck’s paint and undercarriage, helping to keep the vehicle cleaner and preserving its resale value over time.
 
-## <a href="https://www.amazon.com/dp/B006IWQGZW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dodge Ram 3500 Heavy Duty Rear Dually Mud Flaps Mopar Oem</a>
+## <a href="https://www.amazon.com/dp/B006IWQGZW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dodge Ram 3500 Heavy Duty Rear Dually Mud Flaps Mopar Oem</a>
 
 
-<a href="https://www.amazon.com/dp/B006IWQGZW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Dodge Ram 3500/2010-2012 HEAVY Duty Rear DUALLY Mud Flaps Mopar OEM" src="https://m.media-amazon.com/images/I/51sZm1UNKLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B006IWQGZW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Dodge Ram 3500/2010-2012 HEAVY Duty Rear DUALLY Mud Flaps Mopar OEM" src="https://m.media-amazon.com/images/I/51sZm1UNKLL._SL500_.jpg"/></a>
 
 
 The **Dodge Ram 3500/2010-2012 HEAVY Duty Rear DUALLY Mud Flaps Mopar OEM** are ideal for truck owners who frequently drive in rugged or muddy environments and want to protect their vehicle's rear wheels and undercarriage. These mud flaps are designed specifically for heavy-duty use, making them perfect for those who need durable, reliable protection on their Dodge Ram 3500 models from 2010 to 2012. If you prioritize maintaining your truck’s appearance and preventing damage caused by road debris, these OEM mud flaps are an excellent choice.
@@ -173,10 +173,10 @@ These **Mopar OEM mud flaps** are engineered to fit the rear dually wheels of th
 
 Additionally, the easy installation process allows truck owners to quickly equip their vehicles with reliable protection without the hassle of custom fitting or modifications. The use of genuine Mopar parts guarantees compatibility and long-lasting performance, making these mud flaps a smart investment for anyone who regularly drives in challenging environments or uses their truck for work purposes.
 
-## <a href="https://www.amazon.com/dp/B082LRDPW4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mopar 82215932ab Heavy Duty Rubber Splash Guards - Rear Dually</a>
+## <a href="https://www.amazon.com/dp/B082LRDPW4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mopar 82215932ab Heavy Duty Rubber Splash Guards - Rear Dually</a>
 
 
-<a href="https://www.amazon.com/dp/B082LRDPW4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mopar 82215932AB Heavy duty rubber splash guards - Rear Dually Heavy duty rubber splash guards - Rear Dually without Fender Flares. Dually Trucks Only" src="https://m.media-amazon.com/images/I/31MKNwlFHsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B082LRDPW4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mopar 82215932AB Heavy duty rubber splash guards - Rear Dually Heavy duty rubber splash guards - Rear Dually without Fender Flares. Dually Trucks Only" src="https://m.media-amazon.com/images/I/31MKNwlFHsL._SL500_.jpg"/></a>
 
 
 The **Mopar 82215932AB Heavy duty rubber splash guards - Rear Dually** are ideal for owners of **dually trucks** who seek durable and reliable protection for their vehicle's rear tires. Specifically designed for **dually trucks without fender flares**, these splash guards help prevent mud, rocks, and debris from damaging the truck’s body or other vehicles on the road. If you frequently drive in rough or off-road conditions, or want to maintain the appearance and integrity of your truck, these splash guards are a perfect choice.
@@ -198,10 +198,10 @@ The **Mopar 82215932AB Heavy duty rubber splash guards** are crafted from robust
 
 Beyond protection, these splash guards help enhance safety by reducing debris thrown onto following vehicles, contributing to a safer driving experience for everyone on the road. Additionally, being an OEM Mopar product, they seamlessly blend with your truck’s design and maintain its factory integrity. For dually truck owners without fender flares seeking dependable, high-quality splash guards, the Mopar 82215932AB is a practical and effective solution.
 
-## <a href="https://www.amazon.com/dp/B000CMF72C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Go Industries D70764set Dim Mud Flap Set</a>
+## <a href="https://www.amazon.com/dp/B000CMF72C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Go Industries D70764set Dim Mud Flap Set</a>
 
 
-<a href="https://www.amazon.com/dp/B000CMF72C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Go Industries D70764SET Dim Mud Flap Set Dge 03, Red" src="https://m.media-amazon.com/images/I/41oWDbl0-6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000CMF72C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Go Industries D70764SET Dim Mud Flap Set Dge 03, Red" src="https://m.media-amazon.com/images/I/41oWDbl0-6L._SL500_.jpg"/></a>
 
 
 The **Go Industries D70764SET Dim Mud Flap Set Dge 03, Red** is ideal for vehicle owners who want to protect their trucks or SUVs from road debris, mud, and water splashes. If you frequently drive in off-road conditions or in areas with heavy rain and dirt, this durable mud flap set is designed to keep your vehicle cleaner and reduce potential damage. It’s especially suitable for those who prioritize both functionality and style, given its striking **red color** and robust build.
@@ -224,10 +224,10 @@ The **Go Industries D70764SET Dim Mud Flap Set** combines both protection and st
 
 Designed by **Go Industries**, a reputable manufacturer known for automotive accessories, this mud flap set delivers consistent performance and reliability. Its bold color not only serves a functional purpose but also adds a custom look to your vehicle, making it stand out on the road. Whether you drive in rural areas, construction sites, or urban environments prone to splashes and debris, this mud flap set provides essential protection without compromising on style.
 
-## <a href="https://www.amazon.com/dp/B0DZZ6XPMD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">No Drill Specific Design Rear Mud Flaps For The 19-25 Dodge Ram 3500 Dually Pickup</a>
+## <a href="https://www.amazon.com/dp/B0DZZ6XPMD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">No Drill Specific Design Rear Mud Flaps For The 19-25 Dodge Ram 3500 Dually Pickup</a>
 
 
-<a href="https://www.amazon.com/dp/B0DZZ6XPMD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="No Drill, Specific Design Rear Mud Flaps for The 19-25 Dodge Ram 3500 Dually Pickup with Stainless Steel Weights Pre-Installed; 20" src="https://m.media-amazon.com/images/I/31k-0yhmCYL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DZZ6XPMD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="No Drill, Specific Design Rear Mud Flaps for The 19-25 Dodge Ram 3500 Dually Pickup with Stainless Steel Weights Pre-Installed; 20" src="https://m.media-amazon.com/images/I/31k-0yhmCYL._SL500_.jpg"/></a>
 
 
 Ideal for owners of the **2019-2025 Dodge Ram 3500 Dually Pickup** who want a hassle-free, no-drill installation solution for protecting their vehicle from road debris and mud. These **rear mud flaps** are perfect for drivers seeking durable, custom-fit accessories that enhance both protection and style without modifying the truck.
@@ -249,10 +249,10 @@ The **No Drill, Specific Design Rear Mud Flaps** by UltimateFlap Mud Flaps offer
 
 These mud flaps measure **20 inches wide by 24 inches high**, providing ample coverage to protect your vehicle’s rear tires and body from debris. The **no-drill installation** means you can easily attach them without altering your truck’s frame or using complicated tools, preserving your vehicle’s value and structural integrity. Made by a trusted manufacturer, UltimateFlap Mud Flaps, this product combines durability, functionality, and ease of use, making it a smart investment for Dodge Ram 3500 Dually owners who want reliable protection with minimal effort.
 
-## <a href="https://www.amazon.com/dp/B07NSCCY6F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mopar Dodge Ram 3500 Dually Rear Rubber Splash Guards</a>
+## <a href="https://www.amazon.com/dp/B07NSCCY6F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mopar Dodge Ram 3500 Dually Rear Rubber Splash Guards</a>
 
 
-<a href="https://www.amazon.com/dp/B07NSCCY6F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mopar 2010-2018 Dodge RAM 3500 Dually Rear Rubber Black Splash Guards New OME" src="https://m.media-amazon.com/images/I/41WZ-iw6qUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07NSCCY6F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mopar 2010-2018 Dodge RAM 3500 Dually Rear Rubber Black Splash Guards New OME" src="https://m.media-amazon.com/images/I/41WZ-iw6qUL._SL500_.jpg"/></a>
 
 
 The **Mopar 2010-2018 Dodge RAM 3500 Dually Rear Rubber Black Splash Guards New OME** are ideal for truck owners who want to protect their vehicle's rear wheels and body from mud, rocks, and road debris. Perfect for those who frequently drive in rough or muddy terrains, or use their Dodge RAM 3500 for heavy-duty work, these splash guards help maintain the truck’s appearance and prolong its durability.

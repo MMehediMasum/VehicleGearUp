@@ -23,10 +23,10 @@ Some kits, such as Dr. Beasley’s Matte Paint Prescription, include multiple it
 
 
 
-## <a href="https://www.amazon.com/dp/B00BUFWN5E?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Chemical Guys Meticulous Matte Car Wash Soap</a>
+## <a href="https://www.amazon.com/dp/B00BUFWN5E?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Chemical Guys Meticulous Matte Car Wash Soap</a>
 
 
-<a href="https://www.amazon.com/dp/B00BUFWN5E?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Chemical Guys CWS 995 16 Meticulous Matte Car Wash Soap (For Foam Cannons, Foam Guns or Bucket Washes) Safe for Satin &amp; Matte Finish Paint, 16 oz, Fruity Bubble Gum Scent" src="https://m.media-amazon.com/images/I/41rKG7CkBpS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00BUFWN5E?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Chemical Guys CWS 995 16 Meticulous Matte Car Wash Soap (For Foam Cannons, Foam Guns or Bucket Washes) Safe for Satin &amp; Matte Finish Paint, 16 oz, Fruity Bubble Gum Scent" src="https://m.media-amazon.com/images/I/41rKG7CkBpS._SL500_.jpg"/></a>
 
 
 The **Chemical Guys CWS 995 16 Meticulous Matte Car Wash Soap** is ideal for car enthusiasts and professional detailers who own vehicles with **satin or matte finish paint**. This product is perfect for those seeking a gentle yet effective cleaning solution that maintains the unique texture and appearance of matte finishes without causing any damage or streaking. If you use foam cannons, foam guns, or prefer traditional bucket washes, this soap offers versatile application methods to suit your detailing routine.
@@ -49,10 +49,10 @@ The **Chemical Guys Meticulous Matte Car Wash Soap** stands out for its gentle y
 
 With compact dimensions and lightweight packaging, this product is convenient to store and transport. The trusted **Chemical Guys** brand guarantees quality and performance, ensuring that users get a reliable wash without compromising their vehicle’s finish. Whether for routine maintenance or detailed cleaning sessions, this soap helps maintain the matte paint’s unique aesthetic, offering both protection and visual appeal in one formula.
 
-## <a href="https://www.amazon.com/dp/B01MDOFXRN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mckee's 37 Matte Finish Care Kit</a>
+## <a href="https://www.amazon.com/dp/B01MDOFXRN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mckee's 37 Matte Finish Care Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B01MDOFXRN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="McKee's 37 - Matte Finish Care Kit - Matte Car Wash Soap Kit w/ Auto Wash, Cleaner &amp; Protectant, 3 Microfiber Towels &amp; Wash Mitt" src="https://m.media-amazon.com/images/I/41B7tBCpLAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01MDOFXRN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="McKee's 37 - Matte Finish Care Kit - Matte Car Wash Soap Kit w/ Auto Wash, Cleaner &amp; Protectant, 3 Microfiber Towels &amp; Wash Mitt" src="https://m.media-amazon.com/images/I/41B7tBCpLAL._SL500_.jpg"/></a>
 
 
 The **McKee's 37 - Matte Finish Care Kit** is ideal for car enthusiasts and owners of vehicles with a matte finish who want to maintain their car's unique look without compromising the paint texture. If you are seeking a specialized cleaning and protection solution tailored specifically for matte surfaces, this kit provides the perfect combination of products to keep your car looking fresh and well-maintained.
@@ -74,10 +74,10 @@ The **McKee's 37 Matte Finish Care Kit** features specialized products that work
 
 Designed with ease of use in mind, the kit includes high-quality **microfiber towels and a wash mitt** to ensure gentle application and thorough cleaning. This minimizes the risk of scratches or swirl marks that can be more visible on matte surfaces. Overall, the kit offers a comprehensive maintenance routine that is both efficient and effective, making it a valuable investment for anyone looking to keep their matte finish vehicle looking its best.
 
-## <a href="https://www.amazon.com/dp/B005XZXEMS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dr. Beasley's Matte Paint Prescription Detailing Kit</a>
+## <a href="https://www.amazon.com/dp/B005XZXEMS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dr. Beasley's Matte Paint Prescription Detailing Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B005XZXEMS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Dr. Beasley's Matte Paint Prescription Detailing Kit, Designed for Matte Cars and Motorcycles, 100% VOC Free, 2 Years of Protection, 4 Piece Set" src="https://m.media-amazon.com/images/I/41lWlIWqOFL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B005XZXEMS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Dr. Beasley's Matte Paint Prescription Detailing Kit, Designed for Matte Cars and Motorcycles, 100% VOC Free, 2 Years of Protection, 4 Piece Set" src="https://m.media-amazon.com/images/I/41lWlIWqOFL._SL500_.jpg"/></a>
 
 
 The **Dr. Beasley's Matte Paint Prescription Detailing Kit** is ideal for car and motorcycle owners who have **matte finishes** and want to maintain their vehicle's unique look without compromising the delicate surface. This kit is perfect for those seeking a **safe, effective, and long-lasting solution** to protect and enhance their matte paint without the risk of gloss or damage.
@@ -100,10 +100,10 @@ The **Dr. Beasley's Matte Paint Prescription Detailing Kit** offers a unique for
 
 Users benefit from the kit's long-lasting protection, which extends up to **2 years**, significantly reducing maintenance efforts and preserving the aesthetic integrity of their vehicles. The compact and lightweight packaging enhances ease of use, enabling enthusiasts and professionals alike to detail their matte cars and motorcycles with confidence and precision. Overall, this kit is a top choice for anyone serious about maintaining the exclusive look of matte paint with minimal fuss and maximum care.
 
-## <a href="https://www.amazon.com/dp/B0DHWCYYDB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mckee's 37 Matte Finish Auto Wash</a>
+## <a href="https://www.amazon.com/dp/B0DHWCYYDB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mckee's 37 Matte Finish Auto Wash</a>
 
 
-<a href="https://www.amazon.com/dp/B0DHWCYYDB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="McKee's 37 Matte Finish Auto Wash (High-Foaming for Matte &amp; Satin Finishes - Adds UV Protection | Prevents Water Spots)" src="https://m.media-amazon.com/images/I/31g0io8PI5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DHWCYYDB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="McKee's 37 Matte Finish Auto Wash (High-Foaming for Matte &amp; Satin Finishes - Adds UV Protection | Prevents Water Spots)" src="https://m.media-amazon.com/images/I/31g0io8PI5L._SL500_.jpg"/></a>
 
 
 The **ideal customer** for McKee's 37 Matte Finish Auto Wash is anyone who owns a vehicle with a **matte or satin finish**. These finishes require special care to maintain their unique appearance, and this product is specifically formulated to cater to those needs. If you're looking to preserve the look of your vehicle while adding some **UV protection** and preventing **water spots**, this product is a great choice.
@@ -123,10 +123,10 @@ McKee's 37 Matte Finish Auto Wash is designed with a **high-foaming formula** th
 
 In addition to its cleaning prowess, this auto wash also provides **UV protection**, a vital feature for anyone concerned about the long-term appearance of their vehicle. By shielding your vehicle from harmful UV rays, it helps prevent fading and discoloration. Furthermore, it addresses a common issue faced by many car owners: **water spots**. By preventing these spots, your vehicle remains spotless and retains its unique matte sheen, ensuring you drive away with a finish that looks as good as the day you bought it.
 
-## <a href="https://www.amazon.com/dp/B005FQUA2W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dr. Beasley's Mp10d12 Matte Body Wash</a>
+## <a href="https://www.amazon.com/dp/B005FQUA2W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dr. Beasley's Mp10d12 Matte Body Wash</a>
 
 
-<a href="https://www.amazon.com/dp/B005FQUA2W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Dr. Beasley's MP10D12 Matte Body Wash-12 oz., Premium Matte Car Wash Soap, pH Balanced, Readily Biodegradable" src="https://m.media-amazon.com/images/I/31RalpQFYCL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B005FQUA2W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Dr. Beasley's MP10D12 Matte Body Wash-12 oz., Premium Matte Car Wash Soap, pH Balanced, Readily Biodegradable" src="https://m.media-amazon.com/images/I/31RalpQFYCL._SL500_.jpg"/></a>
 
 
 The **Dr. Beasley's MP10D12 Matte Body Wash-12 oz.** is ideal for car enthusiasts and professional detailers who want to maintain a pristine matte finish on their vehicles. This **premium matte car wash soap** is specially formulated for those who care about preserving the unique look of matte paint without causing any damage. If you own a matte-finished car and want a product that is gentle yet effective, this is the perfect choice.
@@ -148,10 +148,10 @@ The **Dr. Beasley's MP10D12 Matte Body Wash** features a carefully balanced form
 
 Additionally, the product’s **readily biodegradable** nature makes it an excellent choice for environmentally conscious users. It allows car owners to wash their vehicles responsibly without contributing to harmful chemical runoff. The compact size and trusted Dr. Beasley’s brand reputation further add to the convenience and reliability of this matte body wash, providing a superior cleaning experience tailored specifically for matte car surfaces.
 
-## <a href="https://www.amazon.com/dp/B0FC6BMVZ2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Car Wash Soap For Ceramic Coating 16oz</a>
+## <a href="https://www.amazon.com/dp/B0FC6BMVZ2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Car Wash Soap For Ceramic Coating 16oz</a>
 
 
-<a href="https://www.amazon.com/dp/B0FC6BMVZ2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Car Wash Soap for Ceramic Coating 16oz, High Foaming Graphene Shampoo Powerful Cleaner &amp; Protection In One Step, Works with Car Wash Bucket, Foam Cannon &amp; Foam Gun, Safe for Satin &amp; Matte Finish Paint" src="https://m.media-amazon.com/images/I/518RyxJu9PL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FC6BMVZ2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Car Wash Soap for Ceramic Coating 16oz, High Foaming Graphene Shampoo Powerful Cleaner &amp; Protection In One Step, Works with Car Wash Bucket, Foam Cannon &amp; Foam Gun, Safe for Satin &amp; Matte Finish Paint" src="https://m.media-amazon.com/images/I/518RyxJu9PL._SL500_.jpg"/></a>
 
 
 Ideal for car enthusiasts and professional detailers who want to maintain and protect their vehicle's finish, the **Car Wash Soap for Ceramic Coating 16oz** is perfect for those with ceramic-coated, satin, or matte paint surfaces. This product is designed for users seeking a powerful yet safe cleaning solution that preserves the integrity of specialized paint finishes while delivering outstanding cleaning performance.
@@ -173,10 +173,10 @@ The **EKSPOLAN Car Wash Soap** combines advanced graphene technology with a high
 
 Additionally, this shampoo is specially formulated to be gentle on delicate finishes like satin and matte paint, which are often sensitive to harsh chemicals. By using this product, users can enjoy a thorough clean without risking dullness or damage to their car's unique surface textures. Overall, it offers a one-step solution that combines cleaning and protection, saving time and effort for anyone dedicated to maintaining their vehicle’s pristine appearance.
 
-## <a href="https://www.amazon.com/dp/B00VE751ZW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dr. Beasley's Matte Waterless Wash</a>
+## <a href="https://www.amazon.com/dp/B00VE751ZW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dr. Beasley's Matte Waterless Wash</a>
 
 
-<a href="https://www.amazon.com/dp/B00VE751ZW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Dr. Beasley's Matte Waterless Wash - 12 oz., High Lubricity Formula, Made for All Matte Finishes, Readily Biodegradable" src="https://m.media-amazon.com/images/I/31VspVTkaFL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00VE751ZW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Dr. Beasley's Matte Waterless Wash - 12 oz., High Lubricity Formula, Made for All Matte Finishes, Readily Biodegradable" src="https://m.media-amazon.com/images/I/31VspVTkaFL._SL500_.jpg"/></a>
 
 
 Ideal for car enthusiasts and owners who want to maintain the pristine look of their vehicles with **matte finishes**, the **Dr. Beasley's Matte Waterless Wash - 12 oz.** is perfect for those seeking an eco-friendly and efficient cleaning solution. This product is designed specifically for users who prefer a **waterless wash** that is gentle yet effective, making it a great choice for people living in areas with water restrictions or anyone looking to reduce water usage during vehicle care.
@@ -199,10 +199,10 @@ The **Dr. Beasley's Matte Waterless Wash** features a specially formulated high 
 
 Designed for ease of use, this waterless wash eliminates the need for hoses or buckets, making it ideal for quick touch-ups or regular maintenance. Its lightweight and compact packaging allows for effortless application and storage. By using this product, users benefit from a streak-free finish that preserves the integrity of matte paint, extending the life and beauty of their vehicle’s exterior.
 
-## <a href="https://www.amazon.com/dp/B09SGSTKV1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Stjarnagloss - Matta Matte Finish Car Wash</a>
+## <a href="https://www.amazon.com/dp/B09SGSTKV1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Stjarnagloss - Matta Matte Finish Car Wash</a>
 
 
-<a href="https://www.amazon.com/dp/B09SGSTKV1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Stjarnagloss - Matta Matte Finish Car Wash - Use for Matte or Frozen Finishes, pH-Neutral, Residue-Free, Extremely Versatile (500 milliliters)" src="https://m.media-amazon.com/images/I/21T9baWPF3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09SGSTKV1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Stjarnagloss - Matta Matte Finish Car Wash - Use for Matte or Frozen Finishes, pH-Neutral, Residue-Free, Extremely Versatile (500 milliliters)" src="https://m.media-amazon.com/images/I/21T9baWPF3L._SL500_.jpg"/></a>
 
 
 The **Stjarnagloss - Matta Matte Finish Car Wash** is ideal for car enthusiasts and professional detailers who own vehicles with **matte or frozen finishes**. If you want to maintain the unique appearance of your car’s surface without compromising its texture or gloss level, this product is tailored for you. It's also perfect for those seeking a **pH-neutral** and **residue-free** solution that can be used safely and effectively on sensitive finishes.
@@ -224,10 +224,10 @@ The **Stjarnagloss Matta Matte Finish Car Wash** stands out due to its specializ
 
 Additionally, the product’s **residue-free** formula ensures that no unwanted films or streaks remain after washing, which is a common issue with many car wash solutions. This contributes to an effortless maintenance routine, saving time and effort while extending the life of your vehicle’s finish. The **versatility** of this car wash means it can also be trusted on different types of matte or frosted surfaces, making it a practical addition to any car care kit.
 
-## <a href="https://www.amazon.com/dp/B00DF75L6S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rat Wax Matte Finish Car Soap</a>
+## <a href="https://www.amazon.com/dp/B00DF75L6S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rat Wax Matte Finish Car Soap</a>
 
 
-<a href="https://www.amazon.com/dp/B00DF75L6S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rat Wax Matte Finish Car Soap" src="https://m.media-amazon.com/images/I/41Xl3cHPoqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00DF75L6S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rat Wax Matte Finish Car Soap" src="https://m.media-amazon.com/images/I/41Xl3cHPoqL._SL500_.jpg"/></a>
 
 
 The **Rat Wax Matte Finish Car Soap** is perfect for car enthusiasts and owners who prefer a sleek, non-glossy look for their vehicles. If you are someone who wants to maintain a clean matte finish without compromising the surface texture, this product is ideal for you. It is especially suited for owners of matte or satin paint vehicles seeking a gentle yet effective cleaning solution.
@@ -249,10 +249,10 @@ The **Rat Wax Matte Finish Car Soap** is formulated specifically to clean withou
 
 Another key benefit is its easy rinsing capability, which prevents soap scum or streaks from forming on the surface. This makes the cleaning process faster and more efficient, saving time while maintaining quality results. With the backing of the reliable **Rat Wax** brand, users can trust that this product delivers consistent performance tailored for matte finish vehicles.
 
-## <a href="https://www.amazon.com/dp/B0DHW9M1KK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mckee's 37 Matte Finish Auto Wash</a>
+## <a href="https://www.amazon.com/dp/B0DHW9M1KK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mckee's 37 Matte Finish Auto Wash</a>
 
 
-<a href="https://www.amazon.com/dp/B0DHW9M1KK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="McKee's 37 Matte Finish Auto Wash (High-Foaming for Matte &amp; Satin Finishes - Adds UV Protection | Prevents Water Spots)" src="https://m.media-amazon.com/images/I/41ye17WHjSL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DHW9M1KK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="McKee's 37 Matte Finish Auto Wash (High-Foaming for Matte &amp; Satin Finishes - Adds UV Protection | Prevents Water Spots)" src="https://m.media-amazon.com/images/I/41ye17WHjSL._SL500_.jpg"/></a>
 
 
 The **McKee's 37 Matte Finish Auto Wash** is ideal for car owners who have vehicles with **matte or satin finishes** and want a specialized cleaning product that preserves the unique texture and appearance of their paint. This product is perfect for enthusiasts and professionals looking to maintain a high-quality, streak-free finish while protecting their car's surface from environmental damage. If you seek a wash that adds **UV protection** and prevents **water spots**, this auto wash is a great choice.

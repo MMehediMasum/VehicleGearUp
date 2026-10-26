@@ -23,10 +23,10 @@ Many products fit most full-face or half helmets, making installation simple. Us
 
 
 
-## <a href="https://www.amazon.com/dp/B0DFSL4R57?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Moto4u Skirt Helmet Motorcycle Helmet</a>
+## <a href="https://www.amazon.com/dp/B0DFSL4R57?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Moto4u Skirt Helmet Motorcycle Helmet</a>
 
 
-<a href="https://www.amazon.com/dp/B0DFSL4R57?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MOTO4U Skirt Helmet Motorcycle Helmet,Motorcycle Helmet Wind Noise Silencer,Wind Curtain,Reduce Noise,Easy Install,fits All Full Face Helmets Long Type" src="https://m.media-amazon.com/images/I/31YnPYr9ygL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DFSL4R57?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MOTO4U Skirt Helmet Motorcycle Helmet,Motorcycle Helmet Wind Noise Silencer,Wind Curtain,Reduce Noise,Easy Install,fits All Full Face Helmets Long Type" src="https://m.media-amazon.com/images/I/31YnPYr9ygL._SL500_.jpg"/></a>
 
 
 The **MOTO4U Skirt Helmet Motorcycle Helmet** is ideal for riders who seek to minimize wind noise and enhance comfort during their rides. If you frequently use a **full face helmet** and want an easy-to-install accessory that improves your riding experience by reducing distractions, this product is tailored for you. It's especially beneficial for long-distance riders and daily commuters who value quieter rides and enhanced helmet fit.
@@ -48,10 +48,10 @@ The **MOTO4U Skirt Helmet Motorcycle Helmet** features a specialized design that
 
 Installation is straightforward and user-friendly, allowing riders to easily fit the skirt helmet on any compatible **full face helmet** without requiring additional tools. Its compact size ensures it does not interfere with helmet aerodynamics or rider visibility. With the **MOTO4U** brand's commitment to quality, this accessory promises durability and reliable performance, making it a worthwhile addition to your motorcycle gear.
 
-## <a href="https://www.amazon.com/dp/B003FHLNVK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Windjammer 2</a>
+## <a href="https://www.amazon.com/dp/B003FHLNVK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Windjammer 2</a>
 
 
-<a href="https://www.amazon.com/dp/B003FHLNVK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img src="https://m.media-amazon.com/images/I/312EoUmo6hL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B003FHLNVK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img src="https://m.media-amazon.com/images/I/312EoUmo6hL._SL500_.jpg"/></a>
 
 
 The **WINDJAMMER 2 "REDUCES WIND NOISE"** by **Proline** is ideal for motorcyclists and scooter riders who use **full face helmets** and want to enhance their riding experience by minimizing distracting wind noise. If you frequently ride at high speeds or in windy conditions, this accessory is designed to provide a quieter and more comfortable ride, making it perfect for commuters, touring enthusiasts, and anyone seeking improved helmet performance.
@@ -74,10 +74,10 @@ The **WINDJAMMER 2** is crafted to seamlessly attach to any full face helmet, de
 
 Made by the reputable **Proline** manufacturer, this black accessory combines functionality with durability, ensuring it withstands various weather conditions and regular use. The ease of installation means riders can quickly upgrade their helmets without professional help. Overall, the **WINDJAMMER 2** offers a practical and affordable solution for anyone looking to improve their riding experience by reducing noise and enhancing helmet performance.
 
-## <a href="https://www.amazon.com/dp/B07HM6FYCV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Windjammer Pro Tour 2</a>
+## <a href="https://www.amazon.com/dp/B07HM6FYCV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Windjammer Pro Tour 2</a>
 
 
-<a href="https://www.amazon.com/dp/B07HM6FYCV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img src="https://m.media-amazon.com/images/I/413KYx2t0PL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07HM6FYCV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img src="https://m.media-amazon.com/images/I/413KYx2t0PL._SL500_.jpg"/></a>
 
 
 The **Windjammer PRO Tour 2** is ideal for motorcyclists who frequently ride in windy conditions and want to significantly reduce wind noise while wearing any full-face helmet. This product is perfect for riders seeking a quieter, more comfortable ride without compromising helmet safety and fit. Whether you are a daily commuter or a touring enthusiast, the **Windjammer PRO Tour 2** helps enhance your riding experience by minimizing distractions caused by wind noise.
@@ -100,10 +100,10 @@ The **Windjammer PRO Tour 2** features a specially engineered design that fits s
 
 Additionally, the product is manufactured by **Proline**, a trusted name in motorcycle accessories, guaranteeing quality and performance. Its universal fit means you do not need to worry about compatibility issues, making it an excellent accessory for a wide range of riders. By investing in the **Windjammer PRO Tour 2**, users can enjoy longer rides in comfort, enhanced safety through better focus, and an overall improved motorcycling experience.
 
-## <a href="https://www.amazon.com/dp/B0037NUC2S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shoei Chin Curtain</a>
+## <a href="https://www.amazon.com/dp/B0037NUC2S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shoei Chin Curtain</a>
 
 
-<a href="https://www.amazon.com/dp/B0037NUC2S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Shoei Chin Curtain Motorcycle Helmet Accessories, One Size" src="https://m.media-amazon.com/images/I/51Sx27YdqkS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0037NUC2S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Shoei Chin Curtain Motorcycle Helmet Accessories, One Size" src="https://m.media-amazon.com/images/I/51Sx27YdqkS._SL500_.jpg"/></a>
 
 
 The **Shoei Chin Curtain Motorcycle Helmet Accessories** in **One Size** is ideal for motorcycle riders who seek to reduce wind noise and block drafts while riding. If you own a **Shoei helmet** and want to enhance your riding comfort, this accessory is designed specifically for you. It is perfect for those who ride in cooler climates or at high speeds where wind resistance can cause discomfort.
@@ -125,10 +125,10 @@ This **chin curtain accessory** measures approximately 1 inch in height, 4 inche
 
 Crafted by **Shoei**, a trusted name in motorcycle gear, this accessory is made to fit seamlessly with their helmets, ensuring a secure attachment. Riders will appreciate the enhanced comfort, especially in cold or windy weather conditions, as it prevents cold air from entering the helmet interior. Overall, the Shoei Chin Curtain is a practical upgrade for riders looking to improve their helmet’s performance and their riding experience.
 
-## <a href="https://www.amazon.com/dp/B09P4YDZK3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Moto4u Motorcycle Helmet Skirt Wrap-around Helmet Bib</a>
+## <a href="https://www.amazon.com/dp/B09P4YDZK3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Moto4u Motorcycle Helmet Skirt Wrap-around Helmet Bib</a>
 
 
-<a href="https://www.amazon.com/dp/B09P4YDZK3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MOTO4U Motorcycle Helmet Skirt Wrap-Around Helmet Bib Wind &amp; Rain Bib Helmet Warm Bib Detachable Short Type" src="https://m.media-amazon.com/images/I/315pXbQ6dnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09P4YDZK3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MOTO4U Motorcycle Helmet Skirt Wrap-Around Helmet Bib Wind &amp; Rain Bib Helmet Warm Bib Detachable Short Type" src="https://m.media-amazon.com/images/I/315pXbQ6dnL._SL500_.jpg"/></a>
 
 
 The **MOTO4U Motorcycle Helmet Skirt Wrap-Around Helmet Bib** is ideal for motorcyclists who frequently ride in **cold or wet weather conditions**. This product is perfect for those who are looking for an **extra layer of warmth** and **protection** against the elements, enhancing their riding comfort and safety. Whether you're a daily commuter or an adventure rider, this helmet bib is designed to meet your needs.
@@ -148,10 +148,10 @@ The **MOTO4U Motorcycle Helmet Skirt** is specifically engineered to offer **sup
 
 Another standout feature of this helmet bib is its ability to provide an **extra layer of warmth**. For those who often ride in colder climates, this product ensures that the chill is kept out, allowing for a more pleasant and focused riding experience. Its **compact dimensions** make it easy to store when not in use, while the **short type** design maintains a balance between protection and convenience.
 
-## <a href="https://www.amazon.com/dp/B000GU0IW4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Noj Quiet Rider Helmet Skirt Basic</a>
+## <a href="https://www.amazon.com/dp/B000GU0IW4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Noj Quiet Rider Helmet Skirt Basic</a>
 
 
-<a href="https://www.amazon.com/dp/B000GU0IW4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NOJ Quiet Rider Helmet Skirt Basic - Made In the USA - Noise Reduction - Easy Installation" src="https://m.media-amazon.com/images/I/21W93k9q+8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000GU0IW4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NOJ Quiet Rider Helmet Skirt Basic - Made In the USA - Noise Reduction - Easy Installation" src="https://m.media-amazon.com/images/I/21W93k9q+8L._SL500_.jpg"/></a>
 
 
 The **NOJ Quiet Rider Helmet Skirt Basic** is ideal for motorcyclists who prioritize **noise reduction** and comfort during their rides. Perfect for those looking to minimize wind noise and improve helmet stability, this product is especially beneficial for riders who frequently travel at high speeds or in noisy environments. Its **easy installation** makes it suitable for both beginners and seasoned riders seeking a hassle-free upgrade to their helmet setup.
@@ -174,10 +174,10 @@ The **NOJ Quiet Rider Helmet Skirt Basic** features a streamlined design that at
 
 Additionally, the helmet skirt's noise reduction capability enhances concentration and reduces fatigue caused by constant wind noise, ultimately contributing to safer and more comfortable rides. Its simple installation process means riders can quickly upgrade their helmet without professional help, saving time and effort. Overall, this product offers a practical solution for anyone looking to improve their riding experience with minimal investment.
 
-## <a href="https://www.amazon.com/dp/B07YNVT4B7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wind-blox Focus Bike Helmet Pads</a>
+## <a href="https://www.amazon.com/dp/B07YNVT4B7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wind-blox Focus Bike Helmet Pads</a>
 
 
-<a href="https://www.amazon.com/dp/B07YNVT4B7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Wind-Blox Focus Bike Helmet Pads, Ear Warmer, Helmet Wind Blocker for Audible Riding, Full Coverage Muffs for Biking and Cycling," src="https://m.media-amazon.com/images/I/31uJSGz9MML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07YNVT4B7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Wind-Blox Focus Bike Helmet Pads, Ear Warmer, Helmet Wind Blocker for Audible Riding, Full Coverage Muffs for Biking and Cycling," src="https://m.media-amazon.com/images/I/31uJSGz9MML._SL500_.jpg"/></a>
 
 
 The **Wind-Blox Focus Bike Helmet Pads** are perfect for avid cyclists and biking enthusiasts who seek enhanced comfort and safety during their rides. If you frequently cycle in windy conditions and find that noise disruption impacts your riding experience, these helmet pads are specifically designed for you. They're ideal for riders who value clear audibility while cycling, ensuring you remain aware of your surroundings for a safer ride.
@@ -197,10 +197,10 @@ The **Wind-Blox Focus Bike Helmet Pads** are engineered to offer a significant r
 
 Constructed with **durable materials**, these helmet pads promise lasting use, resisting wear and tear from frequent cycling. Their compact dimensions make them easy to attach and remove, providing versatility for cyclists who may use different helmets. However, it's important to note that while their universal design aims to fit most helmets, some users might need to adjust them more frequently to maintain the perfect fit, especially if switching between different helmet brands.
 
-## <a href="https://www.amazon.com/dp/B0DWSP95VF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Funomocya Motorcycle Ear Pads</a>
+## <a href="https://www.amazon.com/dp/B0DWSP95VF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Funomocya Motorcycle Ear Pads</a>
 
 
-<a href="https://www.amazon.com/dp/B0DWSP95VF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="FUNOMOCYA 1 Pair Windproof Motorcycle Ear Pads Warm for Cycling Protective Covers for Biking Audible Riding Ear Warmers Universal Fit for Half Helmets" src="https://m.media-amazon.com/images/I/21YoBc4ko+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DWSP95VF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="FUNOMOCYA 1 Pair Windproof Motorcycle Ear Pads Warm for Cycling Protective Covers for Biking Audible Riding Ear Warmers Universal Fit for Half Helmets" src="https://m.media-amazon.com/images/I/21YoBc4ko+L._SL500_.jpg"/></a>
 
 
 The **FUNOMOCYA 1 Pair Windproof Motorcycle Ear Pads** are ideal for avid cyclists and motorcyclists who frequently ride in chilly or windy conditions. If you’re looking for a reliable way to keep your ears warm without compromising on hearing the surrounding sounds, these ear pads offer an excellent solution. They are perfect for riders using half helmets who want added protection and comfort during their rides.
@@ -222,10 +222,10 @@ The **FUNOMOCYA Windproof Motorcycle Ear Pads** feature a compact and lightweigh
 
 These ear pads not only improve comfort during cold rides but also protect the ears from potential wind irritation and numbness. The durable construction and sleek black color ensure they maintain their appearance and function over time. Overall, the FUNOMOCYA ear pads offer a practical and effective accessory for anyone looking to enhance their riding experience in cooler weather conditions.
 
-## <a href="https://www.amazon.com/dp/B0D5LLNX2S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lamborsafe Half Helmet Speaker Pockets Motorcycle 1/2 Helmet Ear Pads Pouch</a>
+## <a href="https://www.amazon.com/dp/B0D5LLNX2S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lamborsafe Half Helmet Speaker Pockets Motorcycle 1/2 Helmet Ear Pads Pouch</a>
 
 
-<a href="https://www.amazon.com/dp/B0D5LLNX2S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lamborsafe Half Helmet Speaker Pockets Motorcycle 1/2 Helmet Ear Pads Pouch for Cardo Packtalk Edge Ear Cover Protection Accessories - Reduce Wind Noise and Keep Warm in Cold" src="https://m.media-amazon.com/images/I/41cRq+tjJsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D5LLNX2S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lamborsafe Half Helmet Speaker Pockets Motorcycle 1/2 Helmet Ear Pads Pouch for Cardo Packtalk Edge Ear Cover Protection Accessories - Reduce Wind Noise and Keep Warm in Cold" src="https://m.media-amazon.com/images/I/41cRq+tjJsL._SL500_.jpg"/></a>
 
 
 The **Lamborsafe Half Helmet Speaker Pockets** are perfect for motorcycle riders who own a **Cardo Packtalk Edge** communication system and want to enhance their riding experience. Ideal for those who seek to reduce wind noise and maintain warmth during cold weather rides, these **ear pads pouch** accessories offer added comfort and protection without compromising on audio quality. Riders who value convenience and durability will find this product especially beneficial.
@@ -247,10 +247,10 @@ These **speaker pockets** are crafted to integrate smoothly with your half helme
 
 Constructed from high-quality materials, the Lamborsafe ear pads are lightweight and unobtrusive, ensuring they do not interfere with helmet fit or rider safety. Their sleek black color and minimalist design allow them to blend in effortlessly with most helmets, making them a practical and stylish accessory. Overall, these pockets enhance the functionality of your communication system while adding comfort and protection, making them a smart investment for serious riders.
 
-## <a href="https://www.amazon.com/dp/B0B7KN76WY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Headwind Fleece Helmet And Neck Cover</a>
+## <a href="https://www.amazon.com/dp/B0B7KN76WY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Headwind Fleece Helmet And Neck Cover</a>
 
 
-<a href="https://www.amazon.com/dp/B0B7KN76WY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Headwind Fleece Helmet and Neck Cover for Motorcycle/ATV - Great for Dust Elimination, Winter Warmth or Summer Breathability and Reducing Noise - Patent Pending" src="https://m.media-amazon.com/images/I/41AxUKSzi6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B7KN76WY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Headwind Fleece Helmet and Neck Cover for Motorcycle/ATV - Great for Dust Elimination, Winter Warmth or Summer Breathability and Reducing Noise - Patent Pending" src="https://m.media-amazon.com/images/I/41AxUKSzi6L._SL500_.jpg"/></a>
 
 
 The **Headwind Fleece Helmet and Neck Cover** is ideal for **motorcycle** and **ATV enthusiasts** who seek enhanced protection against dust, cold weather, and excessive noise. Whether you ride in chilly winters, dusty trails, or warmer climates, this versatile cover is designed for riders who want both comfort and functionality during their adventures.

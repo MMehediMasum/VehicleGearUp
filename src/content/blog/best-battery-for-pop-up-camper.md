@@ -23,10 +23,10 @@ Protect your batteries with durable boxes from Camco and Mighty Max, which preve
 
 
 
-## <a href="https://www.amazon.com/dp/B075RFXHYK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Renogy Deep Cycle Agm 12 Volt 100ah Battery</a>
+## <a href="https://www.amazon.com/dp/B075RFXHYK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Renogy Deep Cycle Agm 12 Volt 100ah Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B075RFXHYK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Renogy Deep Cycle AGM 12 Volt 100Ah Battery, 3% Self-Discharge Rate, 1100A Max Discharge Current, Safe Charge Appliances for RV, Camping, Cabin, Marine and Off-Grid System, Maintenance-Free" src="https://m.media-amazon.com/images/I/31soCn59teL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B075RFXHYK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Renogy Deep Cycle AGM 12 Volt 100Ah Battery, 3% Self-Discharge Rate, 1100A Max Discharge Current, Safe Charge Appliances for RV, Camping, Cabin, Marine and Off-Grid System, Maintenance-Free" src="https://m.media-amazon.com/images/I/31soCn59teL._SL500_.jpg"/></a>
 
 
 The **Renogy Deep Cycle AGM 12 Volt 100Ah Battery** is ideal for outdoor enthusiasts and off-grid living aficionados who require a reliable and maintenance-free power source. Whether you're an RV traveler, camper, cabin owner, marine operator, or someone managing an off-grid system, this battery offers a robust and efficient energy solution tailored to your needs. It is perfect for users who value long-lasting power with minimal upkeep and high safety standards.
@@ -49,10 +49,10 @@ The **Renogy Deep Cycle AGM Battery** incorporates advanced AGM (Absorbent Glass
 
 Users benefit from the battery’s maintenance-free design, which removes the hassle of monitoring electrolyte levels or performing regular water additions. This feature not only saves time but also reduces the risk of acid spills or corrosion. Additionally, the compact size and sturdy build of this battery make it easy to install in confined spaces while withstanding the rigors of outdoor environments. Its compatibility with a variety of applications ensures versatile use, providing reliable energy wherever you need it most.
 
-## <a href="https://www.amazon.com/dp/B0C5DRNGL5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Battery Harness Connector Adapter</a>
+## <a href="https://www.amazon.com/dp/B0C5DRNGL5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Battery Harness Connector Adapter</a>
 
 
-<a href="https://www.amazon.com/dp/B0C5DRNGL5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Battery Harness Connector Adapter, 2 Pcs Battery Harness with 15 Amp Resettable Trailer Side Connection for Popup" src="https://m.media-amazon.com/images/I/41xgh8CruRL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C5DRNGL5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Battery Harness Connector Adapter, 2 Pcs Battery Harness with 15 Amp Resettable Trailer Side Connection for Popup" src="https://m.media-amazon.com/images/I/41xgh8CruRL._SL500_.jpg"/></a>
 
 
 The **Battery Harness Connector Adapter** by **Aramox** is ideal for individuals who own pop-up trailers and require a reliable and efficient solution for connecting their battery systems. This product is perfect for those seeking a hassle-free installation with enhanced safety features, such as a resettable fuse, to protect their trailer’s electrical components. Whether you are a DIY enthusiast or a professional looking for durable trailer accessories, this adapter ensures a secure and convenient connection.
@@ -74,10 +74,10 @@ This **Battery Harness Connector Adapter** offers a practical solution for manag
 
 Constructed by **Aramox**, a reputable manufacturer, this adapter guarantees reliable performance and long-lasting durability. It fits seamlessly with standard trailer battery harnesses, ensuring compatibility and reducing the need for additional modifications. Overall, this adapter is a smart investment for trailer owners who prioritize safety, reliability, and ease of use in their electrical connections.
 
-## <a href="https://www.amazon.com/dp/B07SW353M8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Weize Deep Cycle Agm 12 Volt 100ah Battery</a>
+## <a href="https://www.amazon.com/dp/B07SW353M8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Weize Deep Cycle Agm 12 Volt 100ah Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B07SW353M8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Weize Deep Cycle AGM 12 Volt 100Ah Battery, Maintenance-Free, 3% Self-Discharge Rate, 1150A Max Discharge Current, Perfect for RV, Solar, Trolling Motor, Wind, Marine, Camping and Off-Grid System" src="https://m.media-amazon.com/images/I/41mP3RXxD3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07SW353M8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Weize Deep Cycle AGM 12 Volt 100Ah Battery, Maintenance-Free, 3% Self-Discharge Rate, 1150A Max Discharge Current, Perfect for RV, Solar, Trolling Motor, Wind, Marine, Camping and Off-Grid System" src="https://m.media-amazon.com/images/I/41mP3RXxD3L._SL500_.jpg"/></a>
 
 
 The **Weize Deep Cycle AGM 12 Volt 100Ah Battery** is ideal for outdoor enthusiasts and individuals who require a reliable power source for their **RV, solar systems, trolling motors, wind, marine, camping**, and **off-grid applications**. If you need a durable, maintenance-free battery that can withstand regular deep discharges while delivering consistent power, this battery is a perfect choice. It is especially suitable for those who prioritize long-lasting performance and low self-discharge rates in demanding environments.
@@ -100,10 +100,10 @@ The **Weize Deep Cycle AGM 12 Volt 100Ah Battery** features advanced **Absorbent
 
 Additionally, the battery’s impressive **1150A max discharge current** allows it to handle high-demand equipment efficiently, offering consistent power output for extended periods. Whether you are powering a trolling motor on a lake, running solar equipment off-grid, or using it for camping essentials, this battery provides the durability and dependable performance needed for a variety of outdoor and recreational applications. Its compact size and sturdy construction further enhance its usability and longevity, ensuring you get the most value from your investment.
 
-## <a href="https://www.amazon.com/dp/B0D3D2SRH5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mighty Max Battery Group 24 Smart Battery Box</a>
+## <a href="https://www.amazon.com/dp/B0D3D2SRH5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mighty Max Battery Group 24 Smart Battery Box</a>
 
 
-<a href="https://www.amazon.com/dp/B0D3D2SRH5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mighty Max Battery Group 24 Smart Battery Box 12V Power Center for Popup Camper" src="https://m.media-amazon.com/images/I/41UN7a-3VnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D3D2SRH5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mighty Max Battery Group 24 Smart Battery Box 12V Power Center for Popup Camper" src="https://m.media-amazon.com/images/I/41UN7a-3VnL._SL500_.jpg"/></a>
 
 
 The **Mighty Max Battery Group 24 Smart Battery Box 12V Power Center** is perfect for outdoor enthusiasts and RV owners, especially those who own popup campers. If you need a reliable and portable power source that can keep your devices and appliances running during your camping trips, this battery box is an ideal choice. It’s designed for users seeking durability, safety, and convenience in a compact power solution.
@@ -126,10 +126,10 @@ The **Mighty Max Battery Group 24 Smart Battery Box** offers a well-engineered s
 
 Additionally, the integrated power center simplifies the connection process, allowing users to quickly power up their devices without complicated setups. The 12V power output supports a range of camping essentials, from lights to small appliances, enhancing the overall camping experience. With the Mighty Max Battery box, users gain peace of mind knowing they have a smart, efficient power solution tailored for their outdoor adventures.
 
-## <a href="https://www.amazon.com/dp/B07V4482W1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Camco Double Battery Box</a>
+## <a href="https://www.amazon.com/dp/B07V4482W1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Camco Double Battery Box</a>
 
 
-<a href="https://www.amazon.com/dp/B07V4482W1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Camco Double Battery Box - Safely Stores RV, Automotive, and Marine Batteries - Features a Heavy-Duty Corrosion-Resilient Polymer Construction and Measures Inside 21-1/2" src="https://m.media-amazon.com/images/I/31IZ8DgO0XL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07V4482W1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Camco Double Battery Box - Safely Stores RV, Automotive, and Marine Batteries - Features a Heavy-Duty Corrosion-Resilient Polymer Construction and Measures Inside 21-1/2" src="https://m.media-amazon.com/images/I/31IZ8DgO0XL._SL500_.jpg"/></a>
 
 
 The **Camco Double Battery Box** is ideal for RV owners, automotive enthusiasts, and marine operators who need a reliable and safe solution to store and transport their batteries. If you require a durable, corrosion-resistant container that securely holds two batteries, this product is designed to meet your needs, ensuring safety and convenience during travel or storage.
@@ -152,10 +152,10 @@ The **Camco Double Battery Box** boasts a robust construction made from corrosio
 
 Additionally, the box offers a practical and compact solution for safely organizing your batteries, whether you're on the road in an RV, working on automotive projects, or navigating marine adventures. Its lightweight yet sturdy build makes installation straightforward while ensuring your batteries remain protected against accidental contact and external elements. The Camco Double Battery Box combines durability with convenience, making it a must-have accessory for anyone looking to safeguard their battery investment efficiently.
 
-## <a href="https://www.amazon.com/dp/B0CL6J3D5J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Battery Wiring Harness</a>
+## <a href="https://www.amazon.com/dp/B0CL6J3D5J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Battery Wiring Harness</a>
 
 
-<a href="https://www.amazon.com/dp/B0CL6J3D5J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="2 Pcs Battery Wiring Harness Battery Harness with 15 Amp Resettable Trailer Side Connection for Popup Camper,Wire,Wire Harness" src="https://m.media-amazon.com/images/I/41ZgsWCqCBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CL6J3D5J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="2 Pcs Battery Wiring Harness Battery Harness with 15 Amp Resettable Trailer Side Connection for Popup Camper,Wire,Wire Harness" src="https://m.media-amazon.com/images/I/41ZgsWCqCBL._SL500_.jpg"/></a>
 
 
 The **2 Pcs Battery Wiring Harness Battery Harness with 15 Amp Resettable Trailer Side Connection** is ideal for owners of **popup campers** who need a reliable and efficient way to connect their camper's battery system. If you are looking for a durable and easy-to-install wiring harness that ensures safe electrical connections while protecting your trailer’s electrical components, this product from **Astibym** is designed specifically for you. It suits both DIY enthusiasts and professional installers seeking quality and performance.
@@ -177,10 +177,10 @@ The **Astibym 2 Pcs Battery Wiring Harness** is engineered to deliver secure and
 
 With its user-friendly design, the wiring harness allows for straightforward installation, reducing the time and effort needed to set up or replace wiring in your camper. The high-quality materials used by **Astibym** make the harness resistant to wear and environmental factors, ensuring consistent performance even in harsh conditions. This combination of reliability and protection makes the harness a smart investment for maintaining your camper’s electrical health.
 
-## <a href="https://www.amazon.com/dp/B0F9TL76B2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Camco 55374 Double End-to-end Battery Box</a>
+## <a href="https://www.amazon.com/dp/B0F9TL76B2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Camco 55374 Double End-to-end Battery Box</a>
 
 
-<a href="https://www.amazon.com/dp/B0F9TL76B2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Camco 55374 Double End-to-End Battery Box – Fits Two 6V GC2 or 12V Group 24/24M Batteries – Heavy-Duty Corrosion-Resistant Polypropylene – Includes Straps &amp; Clamps – Free Limited Warranty" src="https://m.media-amazon.com/images/I/31G6DCFSXxL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F9TL76B2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Camco 55374 Double End-to-End Battery Box – Fits Two 6V GC2 or 12V Group 24/24M Batteries – Heavy-Duty Corrosion-Resistant Polypropylene – Includes Straps &amp; Clamps – Free Limited Warranty" src="https://m.media-amazon.com/images/I/31G6DCFSXxL._SL500_.jpg"/></a>
 
 
 The **Camco 55374 Double End-to-End Battery Box** is ideal for RV owners, marine enthusiasts, and anyone needing a reliable and secure housing for dual 6V GC2 or 12V Group 24/24M batteries. If you require a durable and corrosion-resistant solution to protect your batteries from harsh environments while ensuring easy installation and maintenance, this battery box is designed to meet those needs.
@@ -203,10 +203,10 @@ The **Camco 55374 Double End-to-End Battery Box** stands out due to its robust c
 
 Additionally, the inclusion of straps and clamps simplifies the installation process and keeps batteries firmly in place during transit. This reduces risks of battery movement that could lead to damage or disconnection. The free limited warranty adds value by backing the product’s quality and reliability, giving users confidence in their investment. Overall, this battery box combines functionality, durability, and ease of use, making it a smart accessory for anyone looking to safeguard their dual battery setup efficiently.
 
-## <a href="https://www.amazon.com/dp/B08RBKQ1JG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Circlecord 30 Amp To 110 Volt Rv Adapter Cord</a>
+## <a href="https://www.amazon.com/dp/B08RBKQ1JG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Circlecord 30 Amp To 110 Volt Rv Adapter Cord</a>
 
 
-<a href="https://www.amazon.com/dp/B08RBKQ1JG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CircleCord 30 Amp to 110 Volt RV Adapter Cord, 30A to 15A NEMA 5-15P Male to TT-30R Female Electrical Power Dogbone with Grip Handle, Heavy Duty STW 10 Gauge for RV Trailer Camper, ETL Listed" src="https://m.media-amazon.com/images/I/41hloEoS+4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08RBKQ1JG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CircleCord 30 Amp to 110 Volt RV Adapter Cord, 30A to 15A NEMA 5-15P Male to TT-30R Female Electrical Power Dogbone with Grip Handle, Heavy Duty STW 10 Gauge for RV Trailer Camper, ETL Listed" src="https://m.media-amazon.com/images/I/41hloEoS+4L._SL500_.jpg"/></a>
 
 
 The **CircleCord 30 Amp to 110 Volt RV Adapter Cord** is ideal for RV owners, campers, and trailer enthusiasts who need a reliable and durable solution to connect their 30A RV power supply to a standard 15A household outlet. This adapter is perfect for those who frequently camp at locations without dedicated RV power hookups or need to charge their RV batteries using common electrical outlets.
@@ -228,10 +228,10 @@ The **CircleCord 30 Amp to 110 Volt RV Adapter Cord** features a robust 10 gauge
 
 Additionally, the adapter’s compact and lightweight design allows for easy storage and portability, making it a practical accessory for any RV owner. The clear blue coloring helps users quickly distinguish this adapter among other cords, minimizing setup time. Overall, this adapter cord offers a reliable and safe way to power your RV from standard household outlets, enhancing your camping experience with flexibility and convenience.
 
-## <a href="https://www.amazon.com/dp/B0C8FNPTHQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Battery Wiring Harness For Pop Up Camper</a>
+## <a href="https://www.amazon.com/dp/B0C8FNPTHQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Battery Wiring Harness For Pop Up Camper</a>
 
 
-<a href="https://www.amazon.com/dp/B0C8FNPTHQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="4749A5531, 2 Pcs Easy to Disconnect Durable 15 AMP Battery Wiring Harness for Pop Up Camper" src="https://m.media-amazon.com/images/I/41bUg3u5wyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C8FNPTHQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="4749A5531, 2 Pcs Easy to Disconnect Durable 15 AMP Battery Wiring Harness for Pop Up Camper" src="https://m.media-amazon.com/images/I/41bUg3u5wyL._SL500_.jpg"/></a>
 
 
 The **4749A5531, 2 Pcs Easy to Disconnect Durable 15 AMP Battery Wiring Harness** is ideal for owners of **pop-up campers** who need a reliable and efficient way to manage their battery connections. If you are looking for a simple solution to quickly disconnect your camper’s battery without compromising durability, this wiring harness is perfect for you. It is especially suited for those who value ease of installation and maintenance during camping trips.
@@ -254,10 +254,10 @@ The **4749A5531 wiring harness** stands out for its simplicity and functionality
 
 Constructed with **durability in mind**, this harness is made by **Honio**, a trusted manufacturer known for quality electrical components. Its lightweight design ensures that it won't add unnecessary bulk or weight to your camper setup, while still providing a stable and secure connection. Overall, this wiring harness offers a practical and efficient solution for pop-up camper owners looking to enhance their battery wiring system.
 
-## <a href="https://www.amazon.com/dp/B09XXKNVF3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sleeppradise Battery Harness</a>
+## <a href="https://www.amazon.com/dp/B09XXKNVF3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sleeppradise Battery Harness</a>
 
 
-<a href="https://www.amazon.com/dp/B09XXKNVF3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SleepPradise Battery Harness 4749A5531 Charger 15 Amp Automotive Replacements Battery Connector for Cedar Popup Camper" src="https://m.media-amazon.com/images/I/41ABxG5KFcL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09XXKNVF3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SleepPradise Battery Harness 4749A5531 Charger 15 Amp Automotive Replacements Battery Connector for Cedar Popup Camper" src="https://m.media-amazon.com/images/I/41ABxG5KFcL._SL500_.jpg"/></a>
 
 
 The **SleepPradise Battery Harness 4749A5531 Charger 15 Amp Automotive Replacements Battery Connector** is ideal for **Cedar Popup Camper** owners who frequently venture into the great outdoors and need a reliable power solution. It is perfect for those who seek an efficient, long-lasting battery charger that ensures their camper's electrical systems run smoothly.

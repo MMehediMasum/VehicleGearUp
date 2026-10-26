@@ -23,10 +23,10 @@ Some tools include built-in protractors for accuracy. Others have durable blades
 
 
 
-## <a href="https://www.amazon.com/dp/B0DY7NWB2Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Americangaslogs Notcher Roll Cage Tube Joint Tubing Notcher</a>
+## <a href="https://www.amazon.com/dp/B0DY7NWB2Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Americangaslogs Notcher Roll Cage Tube Joint Tubing Notcher</a>
 
 
-<a href="https://www.amazon.com/dp/B0DY7NWB2Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Americangaslogs Notcher Roll Cage Tube Joint Tubing Notcher with Instructions, Built-In Protractor Gauge with Degree Angle, Premium Holesaw Blade" src="https://m.media-amazon.com/images/I/31u5bFHDiqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DY7NWB2Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Americangaslogs Notcher Roll Cage Tube Joint Tubing Notcher with Instructions, Built-In Protractor Gauge with Degree Angle, Premium Holesaw Blade" src="https://m.media-amazon.com/images/I/31u5bFHDiqL._SL500_.jpg"/></a>
 
 
 The **Americangaslogs Notcher Roll Cage Tube Joint Tubing Notcher** is ideal for professional welders, fabricators, and DIY enthusiasts who require precise and efficient tube notching for roll cages and structural tubing projects. If you are looking to enhance your metalworking accuracy and productivity, this tool is designed to meet your needs.
@@ -49,10 +49,10 @@ The **Americangaslogs Notcher Roll Cage Tube Joint Tubing Notcher** features a p
 
 Equipped with a premium holesaw blade, this notcher delivers clean and smooth cuts, reducing the need for additional finishing. Its robust build, weighing over 10 pounds, provides the necessary stability for consistent performance, even during intensive use. Additionally, the included instructions make it accessible to both seasoned professionals and those new to tube notching, enhancing overall usability and efficiency.
 
-## <a href="https://www.amazon.com/dp/B019XC4T02?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Pipemaster Contour Gauge</a>
+## <a href="https://www.amazon.com/dp/B019XC4T02?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Pipemaster Contour Gauge</a>
 
 
-<a href="https://www.amazon.com/dp/B019XC4T02?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="P-T175 (1-3/4" src="https://m.media-amazon.com/images/I/41x3L4a4yzL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B019XC4T02?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="P-T175 (1-3/4" src="https://m.media-amazon.com/images/I/41x3L4a4yzL._SL500_.jpg"/></a>
 
 
 The **P-T175 (1-3/4" Tube) – PipeMaster Contour Gauge Pipe & Tube Fitting Tool** is ideal for professional welders, fabricators, and DIY enthusiasts who require precise coping and joint layout for pipe and tube projects. If you work regularly with metal pipes and tubes and need an easy-to-use, reliable template for accurate cuts and fittings, this tool is designed to simplify your workflow and enhance accuracy.
@@ -74,10 +74,10 @@ The **P-T175 PipeMaster Contour Gauge** by **Profiler Inc.** offers a streamline
 
 This tool’s standout feature is its ability to create accurate templates for coping and joint layouts on pipes and tubes with a diameter of 1-3/4 inches. This precision translates into cleaner welds, better-fitting joints, and overall improved project outcomes. By simplifying the measurement and marking process, it reduces the likelihood of errors and saves valuable time during fabrication.
 
-## <a href="https://www.amazon.com/dp/B0CC3W1MQD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Speedy Notcher Roll Cage Tubing/pipe Holesaw Adapter</a>
+## <a href="https://www.amazon.com/dp/B0CC3W1MQD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Speedy Notcher Roll Cage Tubing/pipe Holesaw Adapter</a>
 
 
-<a href="https://www.amazon.com/dp/B0CC3W1MQD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Speedy Notcher Roll Cage Tubing/Pipe Holesaw Adapter" src="https://m.media-amazon.com/images/I/31okvPRocPL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CC3W1MQD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Speedy Notcher Roll Cage Tubing/Pipe Holesaw Adapter" src="https://m.media-amazon.com/images/I/31okvPRocPL._SL500_.jpg"/></a>
 
 
 The **Speedy Notcher Roll Cage Tubing/Pipe Holesaw Adapter** is an essential tool for **automotive fabricators** and **DIY enthusiasts** looking to build or modify roll cages with precision and ease. Ideal for those who frequently work with tubing and require reliable, accurate notching, this adapter ensures perfect cuts every time.
@@ -98,10 +98,10 @@ The **Speedy Notcher Roll Cage Tubing/Pipe Holesaw Adapter** offers a seamless w
 
 Manufactured by **Speedway Motors**, a brand known for quality and reliability, this adapter is built to withstand the rigors of regular use. Its compatibility with various **holesaw sizes** ensures that users can achieve the exact specifications required for their projects. Whether you're a professional fabricator or a hobbyist working on custom builds, the **Speedy Notcher** empowers you to achieve professional-grade results with minimal effort.
 
-## <a href="https://www.amazon.com/dp/B0DZB5TKPF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Vevor Pipe Notcher</a>
+## <a href="https://www.amazon.com/dp/B0DZB5TKPF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Vevor Pipe Notcher</a>
 
 
-<a href="https://www.amazon.com/dp/B0DZB5TKPF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="VEVOR Pipe Notcher, 1/2 to 2-inch Tubing Notcher with 0 to 60° Adjustable Angle, Pipe and Tube Notching Tool for Repair Shops, Home Projects, Metalworking" src="https://m.media-amazon.com/images/I/31wSGqWpk8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DZB5TKPF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="VEVOR Pipe Notcher, 1/2 to 2-inch Tubing Notcher with 0 to 60° Adjustable Angle, Pipe and Tube Notching Tool for Repair Shops, Home Projects, Metalworking" src="https://m.media-amazon.com/images/I/31wSGqWpk8L._SL500_.jpg"/></a>
 
 
 The **VEVOR Pipe Notcher** is ideal for metalworkers, DIY enthusiasts, and repair shop professionals who require precise and adjustable tubing notching. If you work with **1/2 to 2-inch tubing** and need a reliable tool for creating clean, angled notches, this notcher is designed to meet those needs efficiently. Whether for home projects or professional metal fabrication, this tool suits those looking for versatility and durability in pipe and tube notching.
@@ -124,10 +124,10 @@ The **VEVOR Pipe Notcher** features an adjustable angle mechanism that enables u
 
 Additionally, the compact size and manageable weight of the notcher make it convenient for both stationary shop use and on-site jobs. The ability to create clean, accurate notches improves the quality of welds and overall project integrity, reducing the need for rework. While it requires manual effort and some initial learning to master angle adjustments, the benefits of precision and adaptability make the **VEVOR Pipe Notcher** a valuable tool for anyone involved in metalworking or pipe repair.
 
-## <a href="https://www.amazon.com/dp/B08W4SYS59?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ecotric Tube And Pipe Bender</a>
+## <a href="https://www.amazon.com/dp/B08W4SYS59?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ecotric Tube And Pipe Bender</a>
 
 
-<a href="https://www.amazon.com/dp/B08W4SYS59?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ECOTRIC Tube and Pipe Bender Black Oxide Coating Steel Manual Hand Bender Tubing Tube Bender Pipe Bender Replace for WFB2" src="https://m.media-amazon.com/images/I/41zmIj3tOiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08W4SYS59?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ECOTRIC Tube and Pipe Bender Black Oxide Coating Steel Manual Hand Bender Tubing Tube Bender Pipe Bender Replace for WFB2" src="https://m.media-amazon.com/images/I/41zmIj3tOiL._SL500_.jpg"/></a>
 
 
 The **ECOTRIC Tube and Pipe Bender Black Oxide Coating Steel Manual Hand Bender** is ideal for professional plumbers, metalworkers, and DIY enthusiasts who require a reliable and durable tool for bending tubing and pipes with precision. If you need a heavy-duty manual bender that can replace the WFB2 model and handle various bending tasks efficiently, this product is a perfect fit.
@@ -149,10 +149,10 @@ The **ECOTRIC Tube and Pipe Bender** features a robust black oxide coating on st
 
 Thanks to its ergonomic dimensions and solid weight, this pipe bender maintains stability during operation, reducing the chance of slips or mistakes. While it requires physical effort, the precision and durability it offers make it a valuable tool for those who work regularly with tubing and pipe bending. The ECOTRIC model serves as an excellent replacement for the WFB2, combining functionality with long-term reliability for both professionals and serious DIYers.
 
-## <a href="https://www.amazon.com/dp/B097T5R4MF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Kastforce Kf5008 2 Inch Hole Saw Pipe Tube Notcher Tubing Notcher</a>
+## <a href="https://www.amazon.com/dp/B097T5R4MF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Kastforce Kf5008 2 Inch Hole Saw Pipe Tube Notcher Tubing Notcher</a>
 
 
-<a href="https://www.amazon.com/dp/B097T5R4MF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="KASTFORCE KF5008 2 Inch Hole Saw Pipe Tube Notcher Tubing Notcher - Adjustable up to 60 Degree" src="https://m.media-amazon.com/images/I/31m7zTd89TS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B097T5R4MF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="KASTFORCE KF5008 2 Inch Hole Saw Pipe Tube Notcher Tubing Notcher - Adjustable up to 60 Degree" src="https://m.media-amazon.com/images/I/31m7zTd89TS._SL500_.jpg"/></a>
 
 
 The **KASTFORCE KF5008 2 Inch Hole Saw Pipe Tube Notcher Tubing Notcher** is ideal for metalworkers, fabricators, and DIY enthusiasts who require precise and adjustable notching for pipes and tubes. If you are looking to create clean, angled cuts up to 60 degrees with ease and accuracy, this tool is designed to meet your needs efficiently.
@@ -173,10 +173,10 @@ The **KASTFORCE KF5008** features an adjustable mechanism that allows users to s
 
 Additionally, the tool's weight and compact design make it relatively easy to maneuver, allowing users to work efficiently without excessive fatigue. The clear blue finish not only adds an aesthetic appeal but also helps in quickly locating the tool among your equipment. While it is optimized for 2-inch tubes, the precision and adjustability make it a valuable asset for anyone needing reliable pipe and tubing notching.
 
-## <a href="https://www.amazon.com/dp/B07JDWP5HV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">3rd Generation Hydraulic Tubing Bender</a>
+## <a href="https://www.amazon.com/dp/B07JDWP5HV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">3rd Generation Hydraulic Tubing Bender</a>
 
 
-<a href="https://www.amazon.com/dp/B07JDWP5HV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="3rd Generation Hydraulic Tubing Bender for Round Tubing, Hydraulic Pipe Bender for Roll Cage Tubing, 1.00 Inch Round Dimple Die" src="https://m.media-amazon.com/images/I/416D750FXoL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07JDWP5HV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="3rd Generation Hydraulic Tubing Bender for Round Tubing, Hydraulic Pipe Bender for Roll Cage Tubing, 1.00 Inch Round Dimple Die" src="https://m.media-amazon.com/images/I/416D750FXoL._SL500_.jpg"/></a>
 
 
 The **3rd Generation Hydraulic Tubing Bender** is ideal for automotive enthusiasts, professional fabricators, and metalworking hobbyists who require precise bending of **round tubing**. If you work with **roll cage tubing** or similar applications where accuracy and durability are paramount, this hydraulic pipe bender is designed to meet your needs efficiently.
@@ -199,10 +199,10 @@ The **3rd Generation Hydraulic Tubing Bender** excels with its powerful hydrauli
 
 Constructed by **Speedway Motors**, the bender’s solid build and stable base provide reliability and durability during repetitive use. While its weight adds stability, it may require some effort to transport or reposition, which is a trade-off for its professional-grade design. Overall, this hydraulic pipe bender is a smart investment for those focused on quality tubing bends in automotive or fabrication settings.
 
-## <a href="https://www.amazon.com/dp/B0DZ2J4TT1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Vevor Pipe Tube Notcher</a>
+## <a href="https://www.amazon.com/dp/B0DZ2J4TT1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Vevor Pipe Tube Notcher</a>
 
 
-<a href="https://www.amazon.com/dp/B0DZ2J4TT1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="VEVOR Pipe Tube Notcher, 1/2 to 3-inch Tubing Notcher with 0 to 50° Adjustable Angle, Pipe and Tube Notching Tool for Repair Shops, Home Projects, Metalworking" src="https://m.media-amazon.com/images/I/41VveOOrLOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DZ2J4TT1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="VEVOR Pipe Tube Notcher, 1/2 to 3-inch Tubing Notcher with 0 to 50° Adjustable Angle, Pipe and Tube Notching Tool for Repair Shops, Home Projects, Metalworking" src="https://m.media-amazon.com/images/I/41VveOOrLOL._SL500_.jpg"/></a>
 
 
 The **VEVOR Pipe Tube Notcher** is ideal for both professional repair shops and DIY enthusiasts who frequently work with metal tubing. If you are involved in metalworking, fabrication, or home projects requiring precise tube notching, this tool is designed to deliver accurate and adjustable cuts for tubing ranging from **1/2 to 3 inches**. Its versatility and ease of use make it a perfect choice for those seeking to enhance their workshop capabilities.
@@ -225,10 +225,10 @@ The **VEVOR Pipe Tube Notcher** stands out with its adjustable angle feature, al
 
 Additionally, the compatibility with tubing sizes from **1/2 to 3 inches** covers a broad range of common metal pipes used in many projects, making it versatile for different tasks. The compact dimensions and solid weight contribute to a stable workspace, which is crucial when handling metal materials to achieve professional results. Overall, this notcher is a reliable and efficient tool that elevates the quality of metalworking projects for both hobbyists and professionals.
 
-## <a href="https://www.amazon.com/dp/B00HZ5TH9I?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Erie Tools Tube And Pipe Notcher Tool</a>
+## <a href="https://www.amazon.com/dp/B00HZ5TH9I?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Erie Tools Tube And Pipe Notcher Tool</a>
 
 
-<a href="https://www.amazon.com/dp/B00HZ5TH9I?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Erie Tools Tube And Pipe Notcher Tool for 0-60 Degree Angle Notches Up To 2" src="https://m.media-amazon.com/images/I/31lhUn95V1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00HZ5TH9I?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Erie Tools Tube And Pipe Notcher Tool for 0-60 Degree Angle Notches Up To 2" src="https://m.media-amazon.com/images/I/31lhUn95V1L._SL500_.jpg"/></a>
 
 
 The **Erie Tools Tube And Pipe Notcher Tool** is ideal for metalworkers, fabricators, and DIY enthusiasts who frequently work with **round tubing** and require precise **angle notches**. If you need to create clean, accurate notches on tubes up to 2 inches in diameter and want a versatile tool that handles angles from 0 to 60 degrees, this product is perfect for you. Whether you're building frames, roll cages, or custom metal structures, this tool offers the precision and ease of use needed for professional results.
@@ -251,10 +251,10 @@ The **Erie Tools Tube And Pipe Notcher** features a sturdy build and precise ang
 
 Additionally, the tool's compact dimensions and lightweight design make it easy to maneuver and transport, which is especially beneficial for mobile workshops or on-site jobs. The black finish not only enhances durability but also gives the tool a professional look. Overall, this notcher tool from Erie Tools combines precision, versatility, and convenience, making it a valuable addition to any metalworking toolkit.
 
-## <a href="https://www.amazon.com/dp/B0DZB56DFK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Vevor Pipe Notcher</a>
+## <a href="https://www.amazon.com/dp/B0DZB56DFK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Vevor Pipe Notcher</a>
 
 
-<a href="https://www.amazon.com/dp/B0DZB56DFK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="VEVOR Pipe Notcher, Tubing Pipe Notcher for 1.5/2-inch Pipes, Steel Pipe and Tube Notcher with Long Handle for Auto Repair, Construction, Metalworking, Support Horizontal/Vertical Operation" src="https://m.media-amazon.com/images/I/31Gi1Yu2HOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DZB56DFK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="VEVOR Pipe Notcher, Tubing Pipe Notcher for 1.5/2-inch Pipes, Steel Pipe and Tube Notcher with Long Handle for Auto Repair, Construction, Metalworking, Support Horizontal/Vertical Operation" src="https://m.media-amazon.com/images/I/31Gi1Yu2HOL._SL500_.jpg"/></a>
 
 
 The **VEVOR Pipe Notcher** is ideal for professionals and DIY enthusiasts involved in **auto repair, construction, and metalworking**. If you frequently work with **1.5 to 2-inch steel pipes and tubing**, this tool offers precision and ease, making it perfect for anyone needing reliable pipe notch cutting with support for both **horizontal and vertical operations**.

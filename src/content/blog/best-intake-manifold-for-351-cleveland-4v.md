@@ -23,10 +23,10 @@ Dual plane designs, such as the JGhyperX 7564 and A-Premium models, offer balanc
 
 
 
-## <a href="https://www.amazon.com/dp/B0D9LL9S96?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jghyperx 7564 Intake Manifold</a>
+## <a href="https://www.amazon.com/dp/B0D9LL9S96?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jghyperx 7564 Intake Manifold</a>
 
 
-<a href="https://www.amazon.com/dp/B0D9LL9S96?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JGhyperX 7564 Intake Manifold Aluminum Dual Plane Compatible with Ford Small Block Cleveland air gap SBF 351C 5.8L V8 RPM 1,500-6,500" src="https://m.media-amazon.com/images/I/31X-KisBacL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D9LL9S96?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JGhyperX 7564 Intake Manifold Aluminum Dual Plane Compatible with Ford Small Block Cleveland air gap SBF 351C 5.8L V8 RPM 1,500-6,500" src="https://m.media-amazon.com/images/I/31X-KisBacL._SL500_.jpg"/></a>
 
 
 The **JGhyperX 7564 Intake Manifold Aluminum Dual Plane** is ideal for automotive enthusiasts and mechanics looking to enhance the performance of their **Ford Small Block Cleveland SBF 351C 5.8L V8 engines**. If you want to achieve improved RPM ranges between **1,500-6,500** and desire a durable, high-quality intake manifold that supports better airflow and engine efficiency, this product is a perfect fit.
@@ -49,10 +49,10 @@ The **JGhyperX 7564 Intake Manifold** is engineered with an aluminum dual plane 
 
 Thanks to its precise compatibility and robust design, this intake manifold supports a wide RPM range of **1,500 to 6,500**, providing improved torque at low to mid RPMs and better horsepower at higher RPMs. This versatility makes it suitable for various driving styles, from daily street driving to more aggressive performance setups, offering users enhanced engine responsiveness and power output.
 
-## <a href="https://www.amazon.com/dp/B0BZVDSW67?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">A-premium Engine Aluminum Dual Plane Intake Manifold</a>
+## <a href="https://www.amazon.com/dp/B0BZVDSW67?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">A-premium Engine Aluminum Dual Plane Intake Manifold</a>
 
 
-<a href="https://www.amazon.com/dp/B0BZVDSW67?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="A-Premium Engine Aluminum Dual Plane Intake Manifold Compatible with Ford Cleveland 351C 8Cyl 5.8L, 1500-6500 RPM - Ford Mercury Mustang, LTD, Marquis, Montego, Comet &amp; More Vehicles" src="https://m.media-amazon.com/images/I/415G+qu70zL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BZVDSW67?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="A-Premium Engine Aluminum Dual Plane Intake Manifold Compatible with Ford Cleveland 351C 8Cyl 5.8L, 1500-6500 RPM - Ford Mercury Mustang, LTD, Marquis, Montego, Comet &amp; More Vehicles" src="https://m.media-amazon.com/images/I/415G+qu70zL._SL500_.jpg"/></a>
 
 
 The **A-Premium Engine Aluminum Dual Plane Intake Manifold** is ideal for automotive enthusiasts and mechanics looking to upgrade or replace the intake manifold on their **Ford Cleveland 351C 8Cyl 5.8L** engines. This product is perfect for owners of classic Ford and Mercury models such as the **Mustang, LTD, Marquis, Montego, Comet**, and more, who want to enhance engine performance and efficiency within the 1500-6500 RPM range. If you're seeking a reliable, durable, and compatible manifold to boost your vehicle’s power and responsiveness, this item is a solid choice.
@@ -74,10 +74,10 @@ The **A-Premium Engine Aluminum Dual Plane Intake Manifold** features a robust a
 
 Additionally, the manifold’s compatibility with a variety of classic **Ford and Mercury models** makes it a versatile upgrade option for enthusiasts restoring or upgrading their engines. The RPM range of 1500-6500 provides a broad performance band, allowing for both smooth idle and aggressive acceleration. Overall, this intake manifold is a practical investment for those looking to enhance engine power, efficiency, and reliability while maintaining the original character of their classic vehicles.
 
-## <a href="https://www.amazon.com/dp/B08DLZCTHH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Speedmaster Pce349.1013 Intake Manifold Gasket Set</a>
+## <a href="https://www.amazon.com/dp/B08DLZCTHH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Speedmaster Pce349.1013 Intake Manifold Gasket Set</a>
 
 
-<a href="https://www.amazon.com/dp/B08DLZCTHH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Speedmaster PCE349.1013 Compatible with Ford 302 351C 351M 400 Cleveland 2V Intake Manifold Gasket Set (1240)" src="https://m.media-amazon.com/images/I/41zjKcVXQmL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08DLZCTHH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Speedmaster PCE349.1013 Compatible with Ford 302 351C 351M 400 Cleveland 2V Intake Manifold Gasket Set (1240)" src="https://m.media-amazon.com/images/I/41zjKcVXQmL._SL500_.jpg"/></a>
 
 
 The **Speedmaster PCE349.1013 Compatible with Ford 302 351C 351M 400 Cleveland 2V Intake Manifold Gasket Set (1240)** is ideal for automotive enthusiasts and professional mechanics who require a reliable and precise gasket set for their Ford Cleveland engines. If you own a Ford 302, 351C, 351M, or 400 Cleveland engine and need a high-quality intake manifold gasket, this product is designed to ensure an optimal seal and enhance engine performance.
@@ -99,10 +99,10 @@ The **Speedmaster PCE349.1013 gasket set** is engineered to provide an exception
 
 With its lightweight and compact design, the gasket set is easy to handle and install. The brand's commitment to quality means that users can trust this product to withstand the demands of high-performance driving conditions. Whether you are performing routine maintenance or a complete engine rebuild, the **Speedmaster PCE349.1013** offers a dependable solution that enhances the longevity and reliability of your vehicle's intake system.
 
-## <a href="https://www.amazon.com/dp/B00SYFFE18?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Speedmaster Pce147.1082</a>
+## <a href="https://www.amazon.com/dp/B00SYFFE18?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Speedmaster Pce147.1082</a>
 
 
-<a href="https://www.amazon.com/dp/B00SYFFE18?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Speedmaster PCE147.1082 Compatible with Ford 302 351C Cleveland 3V 4V w/Tongues High Rise Intake Manifold Satin" src="https://m.media-amazon.com/images/I/41JzjRTgtkL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00SYFFE18?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Speedmaster PCE147.1082 Compatible with Ford 302 351C Cleveland 3V 4V w/Tongues High Rise Intake Manifold Satin" src="https://m.media-amazon.com/images/I/41JzjRTgtkL._SL500_.jpg"/></a>
 
 
 The **Speedmaster PCE147.1082** is an ideal choice for automotive enthusiasts and professional mechanics who are looking for a high-performance intake manifold compatible with **Ford 302 351C Cleveland** engines. This product is perfect for those who seek to enhance their vehicle's engine efficiency and power output, making it a must-have for performance upgrades and custom builds.
@@ -123,10 +123,10 @@ The **Speedmaster PCE147.1082** features a **high rise intake manifold** design,
 
 Another notable feature is its **compatibility** with **Ford 302 351C Cleveland 3V 4V** engines. This means that the manifold can be used across a range of Ford vehicles, offering versatility for those with multiple cars or for workshops that service various models. The use of high-quality materials in its construction ensures that the manifold is not only durable but also capable of withstanding the rigors of high-performance applications, providing users with peace of mind and a reliable upgrade to their engine systems.
 
-## <a href="https://www.amazon.com/dp/B0D9C5ZTXF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jghyperx 54033 Intake Manifold Aluminum Single Plane</a>
+## <a href="https://www.amazon.com/dp/B0D9C5ZTXF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jghyperx 54033 Intake Manifold Aluminum Single Plane</a>
 
 
-<a href="https://www.amazon.com/dp/B0D9C5ZTXF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JGhyperX 54033 Intake Manifold Aluminum Single Plane Compatible with Ford 351W SBF Small Block Windsor 5.8L V8 Engine PC4033 DM-3316 RPM 3500-8000" src="https://m.media-amazon.com/images/I/41acUXJ-YqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D9C5ZTXF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JGhyperX 54033 Intake Manifold Aluminum Single Plane Compatible with Ford 351W SBF Small Block Windsor 5.8L V8 Engine PC4033 DM-3316 RPM 3500-8000" src="https://m.media-amazon.com/images/I/41acUXJ-YqL._SL500_.jpg"/></a>
 
 
 The **JGhyperX 54033 Intake Manifold Aluminum Single Plane** is ideal for automotive enthusiasts and professional mechanics looking to enhance the performance of their **Ford 351W SBF Small Block Windsor 5.8L V8 Engine**. If you want to improve your engine's airflow and achieve better RPM ranges between 3500 and 8000, this intake manifold is a perfect upgrade for your vehicle.
@@ -150,10 +150,10 @@ The **JGhyperX 54033 Intake Manifold** boasts a precision-engineered **aluminum 
 
 With dimensions tailored for easy installation, this intake manifold balances performance gains with practical fitment. The broad RPM range of 3500-8000 allows users to experience significant power improvements during aggressive driving conditions. Although designed for high RPM, it remains a versatile component that can support a variety of performance setups, making it a worthwhile upgrade for those seeking enhanced engine responsiveness and power output.
 
-## <a href="https://www.amazon.com/dp/B0D9LKHZ58?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jghyperx Intake Manifold Aluminum Dual Plane Compatible With Ford Small Block Windsor 351 5.8l V8 Engine Silver</a>
+## <a href="https://www.amazon.com/dp/B0D9LKHZ58?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jghyperx Intake Manifold Aluminum Dual Plane Compatible With Ford Small Block Windsor 351 5.8l V8 Engine Silver</a>
 
 
-<a href="https://www.amazon.com/dp/B0D9LKHZ58?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JGhyperX 54023 8023 7181 Intake Manifold Aluminum Dual Plane Compatible with Ford Small Block Windsor 351 5.8L 1969-1997 SBF 351W 1,500-6,800 RPM V8 Engine Silver" src="https://m.media-amazon.com/images/I/31KYei8pOEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D9LKHZ58?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JGhyperX 54023 8023 7181 Intake Manifold Aluminum Dual Plane Compatible with Ford Small Block Windsor 351 5.8L 1969-1997 SBF 351W 1,500-6,800 RPM V8 Engine Silver" src="https://m.media-amazon.com/images/I/31KYei8pOEL._SL500_.jpg"/></a>
 
 
 The **JGhyperX 54023 8023 7181 Intake Manifold Aluminum Dual Plane** is ideal for automotive enthusiasts and mechanics looking to upgrade or replace the intake manifold on their **Ford Small Block Windsor 351 5.8L V8 engines** from 1969 to 1997. This product is perfect for those who want to enhance engine performance within the 1,500-6,800 RPM range, delivering better airflow and power output for street or mild performance applications.
@@ -175,10 +175,10 @@ The **JGhyperX Intake Manifold** is engineered with a **dual plane aluminum desi
 
 Additionally, the manifold's compatibility with a broad range of **Ford Small Block Windsor 351W** engines manufactured between 1969 and 1997 ensures versatility and ease of integration into existing setups. Its well-thought-out dimensions guarantee a direct fit, minimizing the need for aftermarket modifications. Overall, this intake manifold offers a balanced combination of durability, performance enhancement, and practicality for those seeking reliable improvements to their V8 engine's breathing capabilities.
 
-## <a href="https://www.amazon.com/dp/B08DLZ18NG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Speedmaster Pce349.1006 Compatible With Ford Sb 289 302 351 Windsor Intake Manifold Gasket Set</a>
+## <a href="https://www.amazon.com/dp/B08DLZ18NG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Speedmaster Pce349.1006 Compatible With Ford Sb 289 302 351 Windsor Intake Manifold Gasket Set</a>
 
 
-<a href="https://www.amazon.com/dp/B08DLZ18NG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Speedmaster PCE349.1006 Compatible with Ford SB 289 302 351 Windsor Intake Manifold Gasket Set (1262R) 2.25 x1.40" src="https://m.media-amazon.com/images/I/41bpPf6qUpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08DLZ18NG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Speedmaster PCE349.1006 Compatible with Ford SB 289 302 351 Windsor Intake Manifold Gasket Set (1262R) 2.25 x1.40" src="https://m.media-amazon.com/images/I/41bpPf6qUpL._SL500_.jpg"/></a>
 
 
 The **Speedmaster PCE349.1006 Compatible with Ford SB 289 302 351 Windsor Intake Manifold Gasket Set (1262R) 2.25 x1.40** is ideal for automotive enthusiasts and professional mechanics who are looking to replace or upgrade the intake manifold gasket on their Ford Windsor engines. If you own a vehicle equipped with a Ford SB 289, 302, or 351 Windsor engine and want a reliable gasket set that ensures a perfect seal and optimal engine performance, this product is designed for you.
@@ -199,10 +199,10 @@ The **Speedmaster PCE349.1006 intake manifold gasket set** is engineered to prov
 
 With its compatibility specifically tailored for Ford Windsor engines, this gasket set simplifies the replacement process by offering a direct fit without the need for modifications. Users will benefit from reduced engine misfires, improved fuel efficiency, and smoother engine operation. The lightweight design also facilitates easier handling during installation, making it a practical choice for both professional mechanics and experienced DIY enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B0D9C4R4PN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jghyperx 7521 54026 Air Gap Intake Manifold Aluminum Dual Plane</a>
+## <a href="https://www.amazon.com/dp/B0D9C4R4PN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jghyperx 7521 54026 Air Gap Intake Manifold Aluminum Dual Plane</a>
 
 
-<a href="https://www.amazon.com/dp/B0D9C4R4PN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JGhyperX 7521 54026 air gap Intake Manifold Aluminum Dual Plane Compatible with Ford Small Block Windsor 260 289 302 1962-2001 SBF 4.3L 4.7L 5.0L V8 Engine" src="https://m.media-amazon.com/images/I/41SzOWDx0FL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D9C4R4PN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JGhyperX 7521 54026 air gap Intake Manifold Aluminum Dual Plane Compatible with Ford Small Block Windsor 260 289 302 1962-2001 SBF 4.3L 4.7L 5.0L V8 Engine" src="https://m.media-amazon.com/images/I/41SzOWDx0FL._SL500_.jpg"/></a>
 
 
 The **JGhyperX 7521 54026 air gap Intake Manifold** is ideal for automotive enthusiasts and mechanics who own or work on **Ford Small Block Windsor engines** ranging from 260 to 302 cubic inches. This includes models from 1962 to 2001 with engine sizes of **4.3L, 4.7L, and 5.0L V8**. If you are seeking to enhance engine performance, improve airflow, and maintain reliable engine compatibility, this intake manifold is a perfect upgrade choice.
@@ -225,10 +225,10 @@ The **JGhyperX 7521 54026 air gap Intake Manifold** features an advanced **alumi
 
 Its compatibility with a broad range of **Ford Small Block Windsor engines** from 1962 to 2001 makes it a versatile upgrade for many Ford V8 enthusiasts. The durable aluminum construction ensures long-lasting performance while keeping the manifold relatively lightweight. Overall, this intake manifold provides a reliable way to boost your engine’s power and responsiveness, making it a valuable addition for those looking to optimize their Ford V8 engine’s performance.
 
-## <a href="https://www.amazon.com/dp/B0CR9YJFWV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dicmic Aluminum Dual Plane Intake Manifold</a>
+## <a href="https://www.amazon.com/dp/B0CR9YJFWV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dicmic Aluminum Dual Plane Intake Manifold</a>
 
 
-<a href="https://www.amazon.com/dp/B0CR9YJFWV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="DICMIC Aluminum Dual Plane Intake Manifold Compatible with Ford Small Block Windsor V8 5.8L 351W Idle-6800 RPM Range Replace# 84023" src="https://m.media-amazon.com/images/I/31GZCRrhv6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CR9YJFWV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="DICMIC Aluminum Dual Plane Intake Manifold Compatible with Ford Small Block Windsor V8 5.8L 351W Idle-6800 RPM Range Replace# 84023" src="https://m.media-amazon.com/images/I/31GZCRrhv6L._SL500_.jpg"/></a>
 
 
 The **DICMIC Aluminum Dual Plane Intake Manifold** is ideal for automotive enthusiasts and mechanics seeking a reliable upgrade for their **Ford Small Block Windsor V8 5.8L 351W** engine. Those who want to enhance engine performance, particularly within the **idle to 6800 RPM range**, will find this intake manifold a perfect fit. It is especially suited for users looking to replace part number **84023** with a high-quality, durable component.
@@ -251,10 +251,10 @@ The **DICMIC Aluminum Dual Plane Intake Manifold** boasts a robust aluminum buil
 
 Designed with precise dimensions to fit the **Ford Small Block Windsor V8 5.8L 351W**, this manifold ensures seamless integration without extensive modifications. The improved air intake efficiency translates into better throttle response and smoother engine operation. For users aiming to replace the original part #**84023**, the DICMIC manifold provides a direct upgrade that can help extend engine life and improve overall driving experience.
 
-## <a href="https://www.amazon.com/dp/B0D9C3L5RX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jghyperx Pc4001 Intake Manifold Aluminum Dual Plane</a>
+## <a href="https://www.amazon.com/dp/B0D9C3L5RX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jghyperx Pc4001 Intake Manifold Aluminum Dual Plane</a>
 
 
-<a href="https://www.amazon.com/dp/B0D9C3L5RX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JGhyperX PC4001 Intake Manifold Aluminum Dual Plane Compatible with Ford Windsor Small Block 1962-2001 SBF 260 289 302 4.3L 4.7L 5.0L V8 Engine" src="https://m.media-amazon.com/images/I/41d-zNOqKDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D9C3L5RX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JGhyperX PC4001 Intake Manifold Aluminum Dual Plane Compatible with Ford Windsor Small Block 1962-2001 SBF 260 289 302 4.3L 4.7L 5.0L V8 Engine" src="https://m.media-amazon.com/images/I/41d-zNOqKDL._SL500_.jpg"/></a>
 
 
 The **JGhyperX PC4001 Intake Manifold Aluminum Dual Plane** is ideal for automotive enthusiasts and mechanics who own or work on the **Ford Windsor Small Block engines** from 1962 to 2001, specifically models with 260, 289, 302, 4.3L, 4.7L, and 5.0L V8 engines. This product is perfect for those seeking a reliable, high-performance upgrade to enhance engine efficiency and power output in their classic or restored Ford vehicles.

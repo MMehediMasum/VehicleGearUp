@@ -22,10 +22,10 @@ Brands like Hycline, Schwinn, and WTB offer reliable options for different ridin
 
 
 
-## <a href="https://www.amazon.com/dp/B0BS545VNT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">26-inch Mountain Bike Tires Set: Hycline 2-pack 26x1.95 Inch Folding Replacement Puncture-resistant Bicycle Tires</a>
+## <a href="https://www.amazon.com/dp/B0BS545VNT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">26-inch Mountain Bike Tires Set: Hycline 2-pack 26x1.95 Inch Folding Replacement Puncture-resistant Bicycle Tires</a>
 
 
-<a href="https://www.amazon.com/dp/B0BS545VNT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="26-inch Mountain Bike Tires Set: Hycline 2-Pack 26x1.95 inch (54-559mm) Folding Replacement Puncture-Resistant Bicycle Tires and Pair 26-inch Inner Tubes with Tire Levers for MTB Off-Road Bike" src="https://m.media-amazon.com/images/I/51E01Iwl5PL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BS545VNT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="26-inch Mountain Bike Tires Set: Hycline 2-Pack 26x1.95 inch (54-559mm) Folding Replacement Puncture-Resistant Bicycle Tires and Pair 26-inch Inner Tubes with Tire Levers for MTB Off-Road Bike" src="https://m.media-amazon.com/images/I/51E01Iwl5PL._SL500_.jpg"/></a>
 
 
 The **26-inch Mountain Bike Tires Set** by **Hycline** is ideal for avid mountain bikers and off-road enthusiasts seeking durable and reliable tire replacements. If you own a **26-inch MTB** and want to enhance your bike's performance with **puncture-resistant** and easy-to-install tires, this set is perfect for you. It is also suitable for riders who prefer folding tires for convenient storage and transport.
@@ -47,10 +47,10 @@ The **Hycline 26-inch Mountain Bike Tires Set** offers a combination of robust f
 
 These tires boast a **30 TPI (threads per inch)** rating, which balances durability and flexibility, enhancing overall ride comfort and traction. Their **26x1.95-inch** size fits most standard mountain bikes, making them a versatile choice for riders looking to replace worn-out tires or upgrade their current setup. With improved grip and reliable performance, this set supports safer and more enjoyable off-road biking experiences.
 
-## <a href="https://www.amazon.com/dp/B0DDKZTP5T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hapleby Premium Folding Bike Tires 26x1.95 Inch</a>
+## <a href="https://www.amazon.com/dp/B0DDKZTP5T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hapleby Premium Folding Bike Tires 26x1.95 Inch</a>
 
 
-<a href="https://www.amazon.com/dp/B0DDKZTP5T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hapleby 2PCS Premium Folding Bike Tires 26x1.95 Inch (50-559mm), Replacement Mountain Bike Tires 60 TPI Puncture-Resistant, Came with 2PCS Tire levers" src="https://m.media-amazon.com/images/I/512sPLracDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DDKZTP5T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hapleby 2PCS Premium Folding Bike Tires 26x1.95 Inch (50-559mm), Replacement Mountain Bike Tires 60 TPI Puncture-Resistant, Came with 2PCS Tire levers" src="https://m.media-amazon.com/images/I/512sPLracDL._SL500_.jpg"/></a>
 
 
 The **Hapleby 2PCS Premium Folding Bike Tires 26x1.95 Inch** are ideal for mountain bike enthusiasts and casual riders who need reliable, durable, and easy-to-replace tires. If you are someone who enjoys off-road cycling or requires puncture-resistant tires to minimize downtime on trails, these tires are an excellent choice. They are perfect for riders looking to upgrade their existing tires with a quality product that offers both performance and protection.
@@ -73,10 +73,10 @@ These **Hapleby mountain bike tires** are designed with a high thread per inch (
 
 Additionally, the package comes with two tire levers, which are essential tools for quick and hassle-free tire replacements. This thoughtful inclusion ensures that even riders who are less experienced with bike maintenance can confidently manage tire changes on the trail. Overall, the **Hapleby 2PCS Premium Folding Bike Tires** combine convenience, durability, and performance, making them a valuable upgrade for mountain bike owners seeking reliability and ease of use.
 
-## <a href="https://www.amazon.com/dp/B0DBN845Z9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Blackburn Mountain Bike Tire</a>
+## <a href="https://www.amazon.com/dp/B0DBN845Z9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Blackburn Mountain Bike Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B0DBN845Z9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Blackburn Mountain Bike Tire 26" src="https://m.media-amazon.com/images/I/51OMMAcRxvL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DBN845Z9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Blackburn Mountain Bike Tire 26" src="https://m.media-amazon.com/images/I/51OMMAcRxvL._SL500_.jpg"/></a>
 
 
 The **Blackburn Mountain Bike Tire 26" x 1.75-2.25** is ideal for avid mountain bikers and outdoor enthusiasts who demand durability and performance from their tires. Whether you're tackling rugged trails or cruising through mixed terrain, this tire is designed for riders seeking reliable traction and a smooth ride. If you own a mountain bike with 26-inch wheels and want a tire that balances grip and speed, this product is a perfect match.
@@ -98,10 +98,10 @@ The **Blackburn Mountain Bike Tire 26" x 1.75-2.25** features robust tread patte
 
 By choosing this tire, users benefit from increased confidence on challenging trails, thanks to its consistent traction and resistance to punctures. The tire's design also contributes to a smoother ride by absorbing shocks and vibrations, reducing fatigue during long rides. Overall, the Blackburn tire provides a dependable and comfortable mountain biking experience for those seeking performance and durability.
 
-## <a href="https://www.amazon.com/dp/B09V49C8PV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hycline 26-inch Mountain Bike Tires 2-pack</a>
+## <a href="https://www.amazon.com/dp/B09V49C8PV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hycline 26-inch Mountain Bike Tires 2-pack</a>
 
 
-<a href="https://www.amazon.com/dp/B09V49C8PV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="2-Pack 26-inch Mountain Bike Tires: Hycline 26x1.95 inch (54-559mm) Folding Replacement Puncture-Resistant Bicycle Tires with Pair Tire Levers for MTB Off-Road Bike" src="https://m.media-amazon.com/images/I/519fDaTSASL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09V49C8PV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="2-Pack 26-inch Mountain Bike Tires: Hycline 26x1.95 inch (54-559mm) Folding Replacement Puncture-Resistant Bicycle Tires with Pair Tire Levers for MTB Off-Road Bike" src="https://m.media-amazon.com/images/I/519fDaTSASL._SL500_.jpg"/></a>
 
 
 The **2-Pack 26-inch Mountain Bike Tires** are perfect for avid **mountain bikers** and **off-road enthusiasts** looking for durable and reliable replacement tires. These tires are ideal for those who frequently tackle rugged terrains and need a **puncture-resistant** solution to ensure a smooth and uninterrupted ride. Whether you're a seasoned biker or a weekend warrior, these tires provide the resilience and performance needed for demanding trails.
@@ -122,10 +122,10 @@ The **Hycline 26x1.95 inch Mountain Bike Tires** boast a **puncture-resistant** 
 
 Another notable aspect of these tires is the inclusion of a **pair of tire levers**, which simplifies the installation process. This thoughtful addition is particularly beneficial for those who prefer a DIY approach when replacing their bike tires. Furthermore, the dimensions of the **26x1.95 inches** provide a perfect balance of width and grip, offering stability and control on various off-road surfaces. Overall, these tires are a practical choice for those prioritizing durability and performance on their biking adventures.
 
-## <a href="https://www.amazon.com/dp/B0030RMC10?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Schwinn Replacement Bike Tire</a>
+## <a href="https://www.amazon.com/dp/B0030RMC10?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Schwinn Replacement Bike Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B0030RMC10?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Schwinn Replacement Bike Tire, 26" src="https://m.media-amazon.com/images/I/41oCVdwUYyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0030RMC10?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Schwinn Replacement Bike Tire, 26" src="https://m.media-amazon.com/images/I/41oCVdwUYyL._SL500_.jpg"/></a>
 
 
 The **Schwinn Replacement Bike Tire, 26" x 1.95"**, is ideal for mountain bikers and outdoor enthusiasts who need a reliable and durable tire for all-terrain riding. If you frequently ride on trails with varying surfaces or require a tire that can withstand rough conditions while offering strong performance, this tire is a perfect fit for your bike. It is especially suitable for those who prioritize puncture resistance and a secure grip on challenging terrains.
@@ -148,10 +148,10 @@ The **Schwinn Replacement Bike Tire** features a robust design with wide and blo
 
 Designed to fit a broad range of rim widths from **19mm to 29mm**, this tire offers flexibility for different mountain bike models. The recommended **PSI range of 40 to 65** allows riders to adjust air pressure based on terrain and personal preference, providing a balance between comfort and performance. Overall, the Schwinn Replacement Bike Tire is a durable, versatile choice for riders seeking enhanced traction, durability, and peace of mind on their off-road adventures.
 
-## <a href="https://www.amazon.com/dp/B003I1PXUU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Schwinn Replacement Bike Tire</a>
+## <a href="https://www.amazon.com/dp/B003I1PXUU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Schwinn Replacement Bike Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B003I1PXUU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Schwinn Replacement Bike Tire, 26" src="https://m.media-amazon.com/images/I/41wdSCkTSZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B003I1PXUU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Schwinn Replacement Bike Tire, 26" src="https://m.media-amazon.com/images/I/41wdSCkTSZL._SL500_.jpg"/></a>
 
 
 The **Schwinn Replacement Bike Tire, 26" x 1.95"** is ideal for mountain bike enthusiasts and casual riders who need a reliable, durable tire for off-road adventures and everyday cycling. This tire is perfect for those looking to enhance their bike's performance with a high-traction tread and sturdy construction, ensuring safety and control on various terrains. Riders with internal rim widths between 19mm and 29mm will find this tire a great fit for their bikes.
@@ -173,10 +173,10 @@ The **Schwinn Replacement Bike Tire** features a robust steel bead construction 
 
 Additionally, the tire’s compatibility with internal rim widths from **19mm to 29mm** and its flexible PSI range between **40 and 65** allows cyclists to adjust tire pressure according to their specific riding needs, whether they prefer a smoother ride or more aggressive traction. Overall, this tire offers a balanced combination of strength, versatility, and performance, making it a smart investment for anyone looking to maintain or improve their mountain bike’s handling and durability.
 
-## <a href="https://www.amazon.com/dp/B001CJV7NW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wtb Velociraptor 26" X 2.1" Mountain Bike Front Tire</a>
+## <a href="https://www.amazon.com/dp/B001CJV7NW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wtb Velociraptor 26" X 2.1" Mountain Bike Front Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B001CJV7NW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WTB Velociraptor 26" src="https://m.media-amazon.com/images/I/41FANAZeoeL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B001CJV7NW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WTB Velociraptor 26" src="https://m.media-amazon.com/images/I/41FANAZeoeL._SL500_.jpg"/></a>
 
 
 The **WTB Velociraptor 26" x 2.1" Mountain Bike Front Tire** is ideal for avid mountain bikers and trail enthusiasts who demand superior control and durability on technical trails and rocky surfaces. If you frequently ride on challenging terrains and need a reliable front tire that can handle aggressive conditions, this tire is designed to meet your needs.
@@ -199,10 +199,10 @@ The **WTB Velociraptor front tire** is engineered with an aggressive tread patte
 
 With its 26-inch height and 2.1-inch width, this tire strikes a perfect balance between speed and maneuverability. It’s light enough to keep your bike responsive but wide enough to absorb shocks and provide a smooth ride over obstacles. Whether you are tackling tight corners or rough descents, the WTB Velociraptor front tire enhances your bike’s performance, making it a reliable choice for serious mountain bikers seeking enhanced control and durability.
 
-## <a href="https://www.amazon.com/dp/B07969V5RX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bell Flat Defense Mountain Bike Tire</a>
+## <a href="https://www.amazon.com/dp/B07969V5RX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bell Flat Defense Mountain Bike Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B07969V5RX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bell 7091040 Flat Defense Mountain Bike Tire, 26" src="https://m.media-amazon.com/images/I/41bDRwH8ajL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07969V5RX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bell 7091040 Flat Defense Mountain Bike Tire, 26" src="https://m.media-amazon.com/images/I/41bDRwH8ajL._SL500_.jpg"/></a>
 
 
 The **Bell 7091040 Flat Defense Mountain Bike Tire** is ideal for avid mountain bikers and outdoor enthusiasts seeking a reliable, durable, and high-performance tire for rugged terrains. If you frequently ride on rocky trails, dirt paths, or uneven surfaces, this tire is designed to enhance your biking experience by providing excellent traction and protection against flats. It is perfect for riders who prioritize safety and durability without compromising on speed and maneuverability.
@@ -224,10 +224,10 @@ The **Bell 7091040 Flat Defense Mountain Bike Tire** features innovative flat de
 
 Additionally, the tire's compatibility with a range of widths from **1.75 to 2.125 inches** allows for versatility in adjusting to different trail conditions and rider preferences. The lightweight yet sturdy design helps maintain speed and agility, enabling better control and smoother rides over long distances. Overall, this tire combines durability, performance, and protection, making it a valuable upgrade for serious mountain bikers.
 
-## <a href="https://www.amazon.com/dp/B0BQ8RCZZS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mohegia 2-pack 26x1.95 Inch Folding Replacement Bicycle Tires And Inner Tubes</a>
+## <a href="https://www.amazon.com/dp/B0BQ8RCZZS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mohegia 2-pack 26x1.95 Inch Folding Replacement Bicycle Tires And Inner Tubes</a>
 
 
-<a href="https://www.amazon.com/dp/B0BQ8RCZZS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="26-inch Mountain Bike Tires Set: MOHEGIA 2-Pack 26x1.95 Inch Folding Replacement Bicycle Tires and Inner Tubes with Tire Levers Pair" src="https://m.media-amazon.com/images/I/51GVLFS6iPL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BQ8RCZZS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="26-inch Mountain Bike Tires Set: MOHEGIA 2-Pack 26x1.95 Inch Folding Replacement Bicycle Tires and Inner Tubes with Tire Levers Pair" src="https://m.media-amazon.com/images/I/51GVLFS6iPL._SL500_.jpg"/></a>
 
 
 The **26-inch Mountain Bike Tires Set** by **MOHEGIA** is ideal for avid mountain bikers and cycling enthusiasts looking to upgrade or replace their worn-out tires. This set is perfect for those who own a 26-inch mountain bike and want durable, reliable tires that can handle rough terrains with ease. If you seek a hassle-free installation and enhanced riding performance, this tire set is designed just for you.
@@ -249,10 +249,10 @@ The **MOHEGIA 26-inch Mountain Bike Tires Set** features a robust build that pro
 
 Included inner tubes and tire levers add significant value to the package, allowing for quick and efficient replacements without needing extra tools. This makes the set an excellent choice for riders who prefer to perform their own maintenance or need a reliable spare set during longer rides. Overall, these tires combine functionality, convenience, and toughness to elevate the mountain biking experience.
 
-## <a href="https://www.amazon.com/dp/B08CKHBX62?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fincci Foldable 26x2.10 Mountain Bike Tires</a>
+## <a href="https://www.amazon.com/dp/B08CKHBX62?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fincci Foldable 26x2.10 Mountain Bike Tires</a>
 
 
-<a href="https://www.amazon.com/dp/B08CKHBX62?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fincci Foldable 26x2.10 Mountain Bike Tires - 26 Inch Bike Tires with 1mm Nylon Puncture Proof - Black Kevlar 26 Bike Tire 60 TPI with Cross Country Profile for MTB, XC, Folding,Hybrid Bicycles" src="https://m.media-amazon.com/images/I/412Uk1vsRBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08CKHBX62?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fincci Foldable 26x2.10 Mountain Bike Tires - 26 Inch Bike Tires with 1mm Nylon Puncture Proof - Black Kevlar 26 Bike Tire 60 TPI with Cross Country Profile for MTB, XC, Folding,Hybrid Bicycles" src="https://m.media-amazon.com/images/I/412Uk1vsRBL._SL500_.jpg"/></a>
 
 
 The **Fincci Foldable 26x2.10 Mountain Bike Tires** are ideal for avid mountain bikers and outdoor enthusiasts who demand durability and performance from their tires. If you own a **26 inch MTB, XC, folding, or hybrid bicycle** and seek reliable puncture protection combined with excellent traction, these tires are designed for you.

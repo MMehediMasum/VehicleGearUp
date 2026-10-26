@@ -23,10 +23,10 @@ The 20V MAX series is popular for its power and portability. Brushless motors pr
 
 
 
-## <a href="https://www.amazon.com/dp/B01IFSX6UY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dewalt Dwmt74737 Tough Box 7pc Deep Drive Impact Socket Set</a>
+## <a href="https://www.amazon.com/dp/B01IFSX6UY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dewalt Dwmt74737 Tough Box 7pc Deep Drive Impact Socket Set</a>
 
 
-<a href="https://www.amazon.com/dp/B01IFSX6UY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="DEWALT DWMT74737 Tough Box 7PC mm 1/2 Deep Drive Impact Socket Set" src="https://m.media-amazon.com/images/I/412ahtRw12L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01IFSX6UY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="DEWALT DWMT74737 Tough Box 7PC mm 1/2 Deep Drive Impact Socket Set" src="https://m.media-amazon.com/images/I/412ahtRw12L._SL500_.jpg"/></a>
 
 
 The **DEWALT DWMT74737 Tough Box 7PC mm 1/2 Deep Drive Impact Socket Set** is ideal for professional mechanics, automotive enthusiasts, and DIYers who require a reliable and durable socket set for heavy-duty impact applications. If you frequently work on vehicles or machinery and need sockets that can withstand high torque and tough conditions, this set is designed to meet your demands with efficiency and ease.
@@ -49,10 +49,10 @@ The **DEWALT DWMT74737 Tough Box 7PC mm 1/2 Deep Drive Impact Socket Set** featu
 
 Additionally, the set’s compact **tough box** keeps all pieces organized and protected, making it convenient for both storage and transport. Its lightweight profile enhances user comfort during prolonged use. Whether you are tightening or loosening bolts, this set delivers consistent performance, saving time and effort while enhancing your overall productivity.
 
-## <a href="https://www.amazon.com/dp/B0B9T821KC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dewalt 20v Max Cordless Impact Wrench Kit</a>
+## <a href="https://www.amazon.com/dp/B0B9T821KC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dewalt 20v Max Cordless Impact Wrench Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0B9T821KC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="DEWALT 20V MAX Cordless Impact Wrench Kit, 20V MAX, 1/2" src="https://m.media-amazon.com/images/I/41ZS3JmnxBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B9T821KC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="DEWALT 20V MAX Cordless Impact Wrench Kit, 20V MAX, 1/2" src="https://m.media-amazon.com/images/I/41ZS3JmnxBL._SL500_.jpg"/></a>
 
 
 The **DEWALT 20V MAX Cordless Impact Wrench Kit** is ideal for professional mechanics, DIY enthusiasts, and construction workers who require a powerful, portable, and reliable tool for heavy-duty fastening tasks. If you need a cordless wrench that combines high performance with convenience, this tool is designed to meet your needs efficiently.
@@ -75,10 +75,10 @@ The **DEWALT 20V MAX Cordless Impact Wrench Kit** features a robust motor that p
 
 Additionally, the 1/2" hog ring anvil enhances productivity by simplifying socket changes, which is especially beneficial during repetitive tasks. The kit's inclusion of a high-capacity battery, charger, and a durable carrying bag ensures that users have everything they need to get started and maintain the tool's readiness on the go. Despite its power, the wrench’s weight remains manageable, helping reduce user fatigue during extended use. Overall, this tool balances power, convenience, and versatility, making it a valuable addition to any professional or serious hobbyist’s toolkit.
 
-## <a href="https://www.amazon.com/dp/B00307F38O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dewalt Impact Socket Set</a>
+## <a href="https://www.amazon.com/dp/B00307F38O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dewalt Impact Socket Set</a>
 
 
-<a href="https://www.amazon.com/dp/B00307F38O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="DeWalt Impact Socket Set 1/2 Drive, 10 Piece 1/4" src="https://m.media-amazon.com/images/I/51QxJ1snZpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00307F38O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="DeWalt Impact Socket Set 1/2 Drive, 10 Piece 1/4" src="https://m.media-amazon.com/images/I/51QxJ1snZpL._SL500_.jpg"/></a>
 
 
 The **DeWalt Impact Socket Set 1/2 Drive, 10 Piece 1/4" to 1/2" Impact Socket Adapter Set (DW22812)** is ideal for professional mechanics, DIY enthusiasts, and anyone who frequently works with power tools and impact drivers. If you need a reliable, durable, and versatile socket adapter set that can handle tough jobs and provide a secure fit, this product is designed for you.
@@ -100,10 +100,10 @@ The **DeWalt Impact Socket Set (DW22812)** is engineered with professional-grade
 
 Additionally, the set's compact dimensions (**Height: 8.8 inches, Width: 6.0 inches, Length: 12.0 inches**) make it easy to store in a toolbox or carry to different work sites. The multi-colored finish helps users quickly identify the correct adapter, reducing downtime. Overall, the DeWalt Impact Socket Set combines durability, versatility, and convenience to meet the needs of users seeking reliable socket adapters for their impact tools.
 
-## <a href="https://www.amazon.com/dp/B0B9T68W3B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dewalt 20v Max Cordless Impact Wrench</a>
+## <a href="https://www.amazon.com/dp/B0B9T68W3B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dewalt 20v Max Cordless Impact Wrench</a>
 
 
-<a href="https://www.amazon.com/dp/B0B9T68W3B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="DEWALT 20V MAX Cordless Impact Wrench, 1/2 Impact Gun, High Torque with Hog Ring Anvil, Tool Only (DCF900B)" src="https://m.media-amazon.com/images/I/41LYUzsYubL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B9T68W3B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="DEWALT 20V MAX Cordless Impact Wrench, 1/2 Impact Gun, High Torque with Hog Ring Anvil, Tool Only (DCF900B)" src="https://m.media-amazon.com/images/I/41LYUzsYubL._SL500_.jpg"/></a>
 
 
 The **DEWALT 20V MAX Cordless Impact Wrench** is the perfect tool for professionals and DIY enthusiasts who demand power and efficiency in their work. Ideal for mechanics, construction workers, and home improvement aficionados, this impact wrench provides the high torque needed for heavy-duty tasks without the inconvenience of cords. If you're looking for a tool that can handle tough jobs while offering mobility and ease of use, this is the product for you.
@@ -123,10 +123,10 @@ The **DEWALT 20V MAX Cordless Impact Wrench** boasts impressive features like a 
 
 Moreover, the **cordless design** of this impact wrench provides unparalleled freedom of movement, allowing users to work in diverse environments without being tethered to a power outlet. This mobility is especially advantageous in tight or remote locations where traditional corded tools might struggle. Although the unit is sold as a tool only, requiring a separate purchase of a battery and charger, its performance and versatility make it a worthy investment for those serious about efficiency and productivity in their projects.
 
-## <a href="https://www.amazon.com/dp/B09YXXFPBJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dewalt 20v Max Cordless Impact Wrench</a>
+## <a href="https://www.amazon.com/dp/B09YXXFPBJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dewalt 20v Max Cordless Impact Wrench</a>
 
 
-<a href="https://www.amazon.com/dp/B09YXXFPBJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="DEWALT 20V MAX Cordless Impact Wrench, 1/2' Hog Ring, Includes LED Work Light and Belt Clip, Bare Tool Only (DCF891B)" src="https://m.media-amazon.com/images/I/41xzufCWnjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09YXXFPBJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="DEWALT 20V MAX Cordless Impact Wrench, 1/2' Hog Ring, Includes LED Work Light and Belt Clip, Bare Tool Only (DCF891B)" src="https://m.media-amazon.com/images/I/41xzufCWnjL._SL500_.jpg"/></a>
 
 
 The **DEWALT 20V MAX Cordless Impact Wrench, 1/2' Hog Ring** is ideal for professional mechanics, construction workers, and serious DIY enthusiasts who require a powerful, portable, and reliable tool for heavy-duty fastening tasks. If you need a versatile impact wrench that delivers high torque without the hassle of cords, this bare tool-only option is perfect for those who already own compatible 20V MAX batteries and chargers.
@@ -149,10 +149,10 @@ The **DEWALT 20V MAX Cordless Impact Wrench** boasts a compact design measuring 
 
 Equipped with a **1/2' hog ring** anvil, this impact wrench offers secure socket retention for efficient and reliable operation. The inclusion of a **belt clip** adds to the tool's portability, allowing users to keep it close at hand without interrupting workflow. As a bare tool, it allows existing DEWALT 20V MAX users to integrate seamlessly into their tool collection, maximizing value and convenience.
 
-## <a href="https://www.amazon.com/dp/B09HVXKJF6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dewalt Dcf911b 20v Max 1/2" Impact Wrench</a>
+## <a href="https://www.amazon.com/dp/B09HVXKJF6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dewalt Dcf911b 20v Max 1/2" Impact Wrench</a>
 
 
-<a href="https://www.amazon.com/dp/B09HVXKJF6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="DEWALT DCF911B 20V MAX* 1/2" src="https://m.media-amazon.com/images/I/31Od1+ldZFL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09HVXKJF6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="DEWALT DCF911B 20V MAX* 1/2" src="https://m.media-amazon.com/images/I/31Od1+ldZFL._SL500_.jpg"/></a>
 
 
 The **DEWALT DCF911B 20V MAX **1/2" Impact Wrench with Hog Ring Anvil**** is ideal for both professional contractors and serious DIY enthusiasts who need a reliable, cordless impact wrench for heavy-duty fastening tasks. If you work on automotive repairs, construction projects, or machinery maintenance, this tool offers the power and portability required to complete jobs efficiently. Users looking for a compact yet powerful wrench without the hassle of cords will find this model particularly useful.
@@ -174,10 +174,10 @@ The **DEWALT DCF911B** stands out with its balance of power and portability. Its
 
 Additionally, the tool's compatibility with the **20V MAX **battery platform**** means users can leverage their existing DEWALT batteries, reducing extra costs and enhancing convenience. The lightweight design minimizes fatigue, allowing for longer working periods without discomfort. Overall, the DEWALT DCF911B is a versatile and dependable impact wrench that delivers excellent performance for a wide range of fastening needs.
 
-## <a href="https://www.amazon.com/dp/B0CZRQ86ML?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Cordless Impact Wrench 1/2 Inch</a>
+## <a href="https://www.amazon.com/dp/B0CZRQ86ML?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Cordless Impact Wrench 1/2 Inch</a>
 
 
-<a href="https://www.amazon.com/dp/B0CZRQ86ML?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Cordless Impact Wrench 1/2 Inch, 1200N·m(886ft・lbs) Brushless High Torque Impact Gun, 21V Electric Impact Driver, 2x4.0Ah Batteries, Charger &amp; 6 Sockets, Variable Speeds for Car/Truck RV/Mower" src="https://m.media-amazon.com/images/I/51HgWgF1qHL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CZRQ86ML?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Cordless Impact Wrench 1/2 Inch, 1200N·m(886ft・lbs) Brushless High Torque Impact Gun, 21V Electric Impact Driver, 2x4.0Ah Batteries, Charger &amp; 6 Sockets, Variable Speeds for Car/Truck RV/Mower" src="https://m.media-amazon.com/images/I/51HgWgF1qHL._SL500_.jpg"/></a>
 
 
 The **Cordless Impact Wrench 1/2 Inch** is ideal for automotive enthusiasts, professional mechanics, and DIYers who need a powerful and portable tool for loosening or tightening bolts and nuts. If you regularly work on cars, trucks, RVs, or lawn mowers and require a high-torque, cordless solution that offers flexibility and ease of use, this impact wrench is designed for you.
@@ -201,10 +201,10 @@ The **TaskStar Cordless Impact Wrench** boasts a robust brushless motor capable 
 
 Equipped with two high-capacity 4.0Ah batteries, the impact wrench ensures longer working periods without frequent recharges, ideal for professional settings or extensive DIY projects. The included charger and six sockets add convenience, providing everything needed to tackle a variety of fastener sizes. Despite its powerful output, the tool maintains a relatively lightweight profile at just over 9 pounds, making it manageable for continuous use without excessive strain.
 
-## <a href="https://www.amazon.com/dp/B0DQKTT41V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Cordless Impact Wrench 1/2 Inch For Dewalt 20v Battery</a>
+## <a href="https://www.amazon.com/dp/B0DQKTT41V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Cordless Impact Wrench 1/2 Inch For Dewalt 20v Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B0DQKTT41V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Cordless Impact Wrench 1/2 inch for Dewalt 20V Battery, 1000/1200N.m Impact Driver High Torque Brushless Electric Impact Gun Includes LED Work Light Variable Speeds for Car/Truck RV/Mower" src="https://m.media-amazon.com/images/I/41Ia1QTQqUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DQKTT41V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Cordless Impact Wrench 1/2 inch for Dewalt 20V Battery, 1000/1200N.m Impact Driver High Torque Brushless Electric Impact Gun Includes LED Work Light Variable Speeds for Car/Truck RV/Mower" src="https://m.media-amazon.com/images/I/41Ia1QTQqUL._SL500_.jpg"/></a>
 
 
 The **Cordless Impact Wrench 1/2 inch for Dewalt 20V Battery** is ideal for automotive enthusiasts, mechanics, and DIYers who need a powerful and portable tool for heavy-duty fastening tasks. If you work on cars, trucks, RVs, or lawn mowers and require high torque combined with ease of use, this impact wrench is designed to meet your needs efficiently.
@@ -226,10 +226,10 @@ This **1/2 inch cordless impact wrench** combines power and portability, making 
 
 Additionally, the integrated **LED work light** enhances usability in dimly lit environments, ensuring you can work effectively even in tight or poorly illuminated spaces. The variable speed feature offers greater control over fastening speed and torque, allowing users to adjust the tool’s power output based on the specific task, whether it’s loosening stubborn bolts or performing delicate assembly work. Overall, this impact wrench is a versatile and reliable tool tailored for demanding automotive and mechanical applications.
 
-## <a href="https://www.amazon.com/dp/B0C98KW176?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Orion Motor Tech 1/2" Drive Lug Nut Socket Set</a>
+## <a href="https://www.amazon.com/dp/B0C98KW176?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Orion Motor Tech 1/2" Drive Lug Nut Socket Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0C98KW176?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Orion Motor Tech 1/2" src="https://m.media-amazon.com/images/I/41Eeou-K+PL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C98KW176?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Orion Motor Tech 1/2" src="https://m.media-amazon.com/images/I/41Eeou-K+PL._SL500_.jpg"/></a>
 
 
 The **Orion Motor Tech 1/2" Drive Lug Nut Socket Set** is ideal for automotive enthusiasts, professional mechanics, and DIYers who require a reliable and versatile tool for removing and installing lug nuts on various vehicles. If you often work on cars, trucks, or SUVs and need a durable, precise, and easy-to-use socket set, this product is designed to meet those needs.
@@ -252,10 +252,10 @@ The **Orion Motor Tech 1/2" Drive Lug Nut Socket Set** features a comprehensive 
 
 Built with durability in mind, this socket set is perfect for frequent use in automotive repair shops or home garages. The robust construction from **Orion Motor Tech** ensures that each socket withstands the high torque demands of impact wrenches, reducing the risk of rounding off lug nuts. Overall, this set offers excellent value for those seeking a reliable, versatile, and user-friendly lug nut socket collection.
 
-## <a href="https://www.amazon.com/dp/B0DPHRVVJG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Alloyman Cordless Impact Wrench</a>
+## <a href="https://www.amazon.com/dp/B0DPHRVVJG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Alloyman Cordless Impact Wrench</a>
 
 
-<a href="https://www.amazon.com/dp/B0DPHRVVJG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Alloyman Cordless Impact Wrench, 1475Ft-lbs (2000N.m) 1/2 High Torque Brushless Impact Gun, 20V Power Impact Driver, 4000mAh Battery,3 Sockets, Brushless Motor Variable Speeds for Car/Truck RV/Mower" src="https://m.media-amazon.com/images/I/51G4UYj0FuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DPHRVVJG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Alloyman Cordless Impact Wrench, 1475Ft-lbs (2000N.m) 1/2 High Torque Brushless Impact Gun, 20V Power Impact Driver, 4000mAh Battery,3 Sockets, Brushless Motor Variable Speeds for Car/Truck RV/Mower" src="https://m.media-amazon.com/images/I/51G4UYj0FuL._SL500_.jpg"/></a>
 
 
 The **Alloyman Cordless Impact Wrench** is ideal for professional mechanics, DIY enthusiasts, and anyone in need of a powerful, portable tool for heavy-duty fastening tasks. If you frequently work on cars, trucks, RVs, or lawnmowers and require high torque combined with cordless convenience, this impact wrench is designed to meet your needs. Its robust build and versatile features make it perfect for those who value both performance and mobility.

@@ -23,10 +23,10 @@ AGM batteries provide good performance and durability at a lower price. Battery 
 
 
 
-## <a href="https://www.amazon.com/dp/B07SW353M8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Weize Deep Cycle Agm 12 Volt 100ah Battery</a>
+## <a href="https://www.amazon.com/dp/B07SW353M8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Weize Deep Cycle Agm 12 Volt 100ah Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B07SW353M8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Weize Deep Cycle AGM 12 Volt 100Ah Battery, Maintenance-Free, 3% Self-Discharge Rate, 1150A Max Discharge Current, Perfect for RV, Solar, Trolling Motor, Wind, Marine, Camping and Off-Grid System" src="https://m.media-amazon.com/images/I/41mP3RXxD3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07SW353M8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Weize Deep Cycle AGM 12 Volt 100Ah Battery, Maintenance-Free, 3% Self-Discharge Rate, 1150A Max Discharge Current, Perfect for RV, Solar, Trolling Motor, Wind, Marine, Camping and Off-Grid System" src="https://m.media-amazon.com/images/I/41mP3RXxD3L._SL500_.jpg"/></a>
 
 
 The **Weize Deep Cycle AGM 12 Volt 100Ah Battery** is ideal for individuals who require a reliable and maintenance-free power source for their **RV, solar systems, trolling motors, wind energy setups, marine applications, camping adventures,** or **off-grid systems**. If you need a durable battery with a low self-discharge rate and high discharge current capacity, this product is designed to meet those demands efficiently.
@@ -48,10 +48,10 @@ The **Weize Deep Cycle AGM Battery** features advanced Absorbent Glass Mat (AGM)
 
 With a maximum discharge current of **1150A**, this battery delivers powerful bursts of energy ideal for starting engines or running high-demand devices. Its compact size and robust build quality make it versatile for a wide range of uses, from powering solar setups to providing reliable energy on camping trips or in marine vessels. Overall, it combines convenience, power, and longevity, making it a valuable investment for users seeking dependable deep cycle battery performance.
 
-## <a href="https://www.amazon.com/dp/B075RFXHYK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Renogy Deep Cycle Agm 12 Volt 100ah Battery</a>
+## <a href="https://www.amazon.com/dp/B075RFXHYK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Renogy Deep Cycle Agm 12 Volt 100ah Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B075RFXHYK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Renogy Deep Cycle AGM 12 Volt 100Ah Battery, 3% Self-Discharge Rate, 1100A Max Discharge Current, Safe Charge Appliances for RV, Camping, Cabin, Marine and Off-Grid System, Maintenance-Free" src="https://m.media-amazon.com/images/I/31soCn59teL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B075RFXHYK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Renogy Deep Cycle AGM 12 Volt 100Ah Battery, 3% Self-Discharge Rate, 1100A Max Discharge Current, Safe Charge Appliances for RV, Camping, Cabin, Marine and Off-Grid System, Maintenance-Free" src="https://m.media-amazon.com/images/I/31soCn59teL._SL500_.jpg"/></a>
 
 
 The **Renogy Deep Cycle AGM 12 Volt 100Ah Battery** is ideal for outdoor enthusiasts and off-grid living users who require a reliable and maintenance-free power source. Whether you own an **RV, cabin, marine vessel**, or are setting up a **camping or off-grid system**, this battery offers a durable and efficient energy solution tailored to your needs.
@@ -74,10 +74,10 @@ The **Renogy Deep Cycle AGM 12 Volt 100Ah Battery** combines robust performance 
 
 Additionally, the **AGM technology** provides a sealed, spill-proof design that makes the battery safe for indoor and mobile environments. The **maintenance-free** aspect means users can focus on their activities without worrying about battery upkeep. Its compact size and sturdy build allow for flexible installation options in RVs, boats, or remote cabins, enhancing the convenience and reliability of your off-grid power system.
 
-## <a href="https://www.amazon.com/dp/B0F845WMSN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">12v 100ah Lifepo4 Battery</a>
+## <a href="https://www.amazon.com/dp/B0F845WMSN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">12v 100ah Lifepo4 Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B0F845WMSN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="12V 100Ah BCI Group 24 LiFePO4 Battery, Max. 15000 Deep Cycle Lithium Rechargeable Battery, Built in 100A BMS for RV, Trolling Motor, Camping, Marine, Home Energy Storage" src="https://m.media-amazon.com/images/I/41SqB5Kt+OL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F845WMSN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="12V 100Ah BCI Group 24 LiFePO4 Battery, Max. 15000 Deep Cycle Lithium Rechargeable Battery, Built in 100A BMS for RV, Trolling Motor, Camping, Marine, Home Energy Storage" src="https://m.media-amazon.com/images/I/41SqB5Kt+OL._SL500_.jpg"/></a>
 
 
 The **12V 100Ah BCI Group 24 LiFePO4 Battery** is ideal for individuals seeking a reliable and long-lasting power source for their **RV, trolling motor, camping, marine**, or **home energy storage** needs. This battery is perfect for outdoor enthusiasts, boat owners, and homeowners looking for an efficient and durable rechargeable battery solution that supports deep cycling and high performance.
@@ -99,10 +99,10 @@ The **12V 100Ah LiFePO4 Battery** by SEMENERG offers advanced features that ensu
 
 This battery's impressive capacity and ability to handle up to **15,000 deep cycles** make it an excellent investment for users who require consistent power over long periods without frequent replacements. Additionally, the **LiFePO4 technology** provides faster charging times and higher energy efficiency, helping users maximize their energy usage while reducing maintenance efforts and environmental impact.
 
-## <a href="https://www.amazon.com/dp/B0BGKHQQTP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Weize 12v 100ah Deep Cycle Battery</a>
+## <a href="https://www.amazon.com/dp/B0BGKHQQTP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Weize 12v 100ah Deep Cycle Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B0BGKHQQTP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="WEIZE 12V 100Ah Deep Cycle Battery, Group Size 31 Battery for RV, Solar, Camping, Cabin, Marine and Off-Grid System, 1150A Max Discharge Current, 3% Self-Discharge Rate" src="https://m.media-amazon.com/images/I/41bcALxLzeL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BGKHQQTP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="WEIZE 12V 100Ah Deep Cycle Battery, Group Size 31 Battery for RV, Solar, Camping, Cabin, Marine and Off-Grid System, 1150A Max Discharge Current, 3% Self-Discharge Rate" src="https://m.media-amazon.com/images/I/41bcALxLzeL._SL500_.jpg"/></a>
 
 
 The **WEIZE 12V 100Ah Deep Cycle Battery** is an excellent choice for outdoor enthusiasts and individuals who require a reliable power source for their **RV, solar setups, camping trips, cabins, marine applications**, and **off-grid systems**. If you are someone who often finds themselves in remote areas or enjoys spending time in nature, this battery is designed to keep your power needs covered without a hitch.
@@ -122,10 +122,10 @@ The **WEIZE 12V 100Ah Deep Cycle Battery** stands out with its impressive **1150
 
 Another significant advantage of this battery is its **3% self-discharge rate**, which is considerably lower than many other batteries in the market. This means that the battery retains its charge over longer periods, making it ideal for situations where the battery might sit unused for a while. Whether you're using it for **seasonal camping** or as a backup power source in a **cabin**, this feature ensures that the battery is ready to deliver power whenever needed, without frequent recharging.
 
-## <a href="https://www.amazon.com/dp/B07V4482W1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Camco Double Battery Box</a>
+## <a href="https://www.amazon.com/dp/B07V4482W1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Camco Double Battery Box</a>
 
 
-<a href="https://www.amazon.com/dp/B07V4482W1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Camco Double Battery Box - Safely Stores RV, Automotive, and Marine Batteries - Features a Heavy-Duty Corrosion-Resilient Polymer Construction and Measures Inside 21-1/2" src="https://m.media-amazon.com/images/I/31IZ8DgO0XL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07V4482W1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Camco Double Battery Box - Safely Stores RV, Automotive, and Marine Batteries - Features a Heavy-Duty Corrosion-Resilient Polymer Construction and Measures Inside 21-1/2" src="https://m.media-amazon.com/images/I/31IZ8DgO0XL._SL500_.jpg"/></a>
 
 
 The **Camco Double Battery Box** is ideal for RV owners, automotive enthusiasts, and marine adventurers who need a reliable and safe solution to store and transport their batteries. If you frequently travel or work with multiple batteries and require durable protection from the elements, this battery box is designed to meet your needs.
@@ -147,10 +147,10 @@ The **Camco Double Battery Box** stands out for its robust **polymer constructio
 
 Additionally, the design focuses on practicality and safety. The box’s sturdy build ensures that batteries remain securely housed, reducing the risk of shifting or accidental contact during travel. The **Camco battery box** also simplifies battery maintenance by providing easy access while shielding batteries from dirt and debris. Overall, this product offers a balance of protection, convenience, and durability, making it a wise investment for anyone looking to keep their batteries safe and functional over time.
 
-## <a href="https://www.amazon.com/dp/B095GYPBTW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Eco-worthy Portable 12v Lithium Battery</a>
+## <a href="https://www.amazon.com/dp/B095GYPBTW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Eco-worthy Portable 12v Lithium Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B095GYPBTW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ECO-WORTHY Portable 12V Lithium Battery, 12.8V 20Ah Lithium Iron Phosphate DEEP CYCLE BATTERY, Built-in BMS, 4000+ Cycles, Perfect for Outdoor Camping Fishing RV Marine Trolling Motor Fishfinder" src="https://m.media-amazon.com/images/I/41sW9GdDcrL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B095GYPBTW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ECO-WORTHY Portable 12V Lithium Battery, 12.8V 20Ah Lithium Iron Phosphate DEEP CYCLE BATTERY, Built-in BMS, 4000+ Cycles, Perfect for Outdoor Camping Fishing RV Marine Trolling Motor Fishfinder" src="https://m.media-amazon.com/images/I/41sW9GdDcrL._SL500_.jpg"/></a>
 
 
 The **ECO-WORTHY Portable 12V Lithium Battery** is ideal for outdoor enthusiasts and professionals who require a reliable and long-lasting power source. Whether you are camping, fishing, traveling in an RV, or using marine equipment like trolling motors and fishfinders, this battery offers the perfect combination of portability and performance. It is especially suitable for those who need a durable, lightweight battery with advanced safety features and a long lifecycle.
@@ -172,10 +172,10 @@ The **ECO-WORTHY Portable 12V Lithium Battery** features a robust **lithium iron
 
 With compact dimensions of approximately **10.08 inches in length, 5.87 inches in width, and 5.98 inches in height**, and weighing only **5.42 pounds**, this battery is designed for easy portability without sacrificing performance. Its impressive **4000+ cycle life** means users can enjoy consistent energy output for years, reducing the need for frequent replacements. Whether powering your RV appliances or marine electronics, this battery delivers stable voltage and reliable power, enhancing your outdoor experience.
 
-## <a href="https://www.amazon.com/dp/B0CSTDTGWK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Noco Snap-top Bg27 Battery Box</a>
+## <a href="https://www.amazon.com/dp/B0CSTDTGWK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Noco Snap-top Bg27 Battery Box</a>
 
 
-<a href="https://www.amazon.com/dp/B0CSTDTGWK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="NOCO Snap-Top BG27 Battery Box, Group 27 12V Battery Box for Marine, Automotive, RV, Boat, Camper and Travel Trailer Batteries" src="https://m.media-amazon.com/images/I/31cupJT0PtL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CSTDTGWK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="NOCO Snap-Top BG27 Battery Box, Group 27 12V Battery Box for Marine, Automotive, RV, Boat, Camper and Travel Trailer Batteries" src="https://m.media-amazon.com/images/I/31cupJT0PtL._SL500_.jpg"/></a>
 
 
 The **NOCO Snap-Top BG27 Battery Box** is ideal for individuals who need a reliable and secure solution for housing their **Group 27 12V batteries**. Whether you own a **marine vessel, automotive vehicle, RV, boat, camper, or travel trailer**, this battery box is designed to protect your battery from environmental damage and ensure safe transportation. If you require a durable and versatile battery enclosure that offers both convenience and safety, this product is perfect for you.
@@ -197,10 +197,10 @@ The **NOCO Snap-Top BG27 Battery Box** features a robust design that offers exce
 
 In addition to its protective qualities, the battery box's compatibility with a wide range of vehicles such as boats, campers, and travel trailers means it caters to a broad audience of outdoor enthusiasts and professionals alike. The product’s focus on durability and ease of use translates to enhanced safety and convenience, ultimately extending the life of your battery and providing peace of mind during your travels or daily usage.
 
-## <a href="https://www.amazon.com/dp/B0FC663FL9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mini 12v 100ah Lifepo4 Lithium Battery</a>
+## <a href="https://www.amazon.com/dp/B0FC663FL9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mini 12v 100ah Lifepo4 Lithium Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B0FC663FL9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mini 12V 100Ah LiFePO4 Lithium Battery, 100A BMS 1280W Energy Small Size,8000+ Deep Cycle Marine Battery 12V, Lithium Batteries Mini 100Ah for Boat,Trolling Motor,RV,Golf Cart,Solar,Kayak,Camping" src="https://m.media-amazon.com/images/I/416XAa6u4EL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FC663FL9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mini 12V 100Ah LiFePO4 Lithium Battery, 100A BMS 1280W Energy Small Size,8000+ Deep Cycle Marine Battery 12V, Lithium Batteries Mini 100Ah for Boat,Trolling Motor,RV,Golf Cart,Solar,Kayak,Camping" src="https://m.media-amazon.com/images/I/416XAa6u4EL._SL500_.jpg"/></a>
 
 
 The **Mini 12V 100Ah LiFePO4 Lithium Battery** is ideal for outdoor enthusiasts and professionals who require a reliable, compact, and long-lasting power source. This battery is perfect for those who own a **boat**, **trolling motor**, **RV**, **golf cart**, or engage in activities like **solar power setups**, **kayaking**, and **camping**. If you need a durable battery that supports deep cycling and offers a high energy output in a small form factor, this product is designed for you.
@@ -223,10 +223,10 @@ The **Mini 12V 100Ah LiFePO4 Lithium Battery** excels in providing a compact yet
 
 Additionally, the battery's ability to deliver over **8000 deep cycles** significantly reduces the need for frequent replacements, making it an economical investment over time. The lightweight nature and robust construction ensure easy handling and durability in rugged environments. Whether powering a **solar setup**, **marine vessel**, or **camping gear**, this battery provides consistent and efficient energy, enhancing the overall user experience in various applications.
 
-## <a href="https://www.amazon.com/dp/B0F9TL76B2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Camco 55374 Double End-to-end Battery Box</a>
+## <a href="https://www.amazon.com/dp/B0F9TL76B2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Camco 55374 Double End-to-end Battery Box</a>
 
 
-<a href="https://www.amazon.com/dp/B0F9TL76B2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Camco 55374 Double End-to-End Battery Box – Fits Two 6V GC2 or 12V Group 24/24M Batteries – Heavy-Duty Corrosion-Resistant Polypropylene – Includes Straps &amp; Clamps – Free Limited Warranty" src="https://m.media-amazon.com/images/I/31G6DCFSXxL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F9TL76B2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Camco 55374 Double End-to-End Battery Box – Fits Two 6V GC2 or 12V Group 24/24M Batteries – Heavy-Duty Corrosion-Resistant Polypropylene – Includes Straps &amp; Clamps – Free Limited Warranty" src="https://m.media-amazon.com/images/I/31G6DCFSXxL._SL500_.jpg"/></a>
 
 
 The **Camco 55374 Double End-to-End Battery Box** is ideal for RV owners, boat enthusiasts, and anyone needing a reliable and durable solution to house two batteries securely. If you require a protective casing that fits two **6V GC2 or 12V Group 24/24M batteries** while offering resistance to harsh environmental conditions, this battery box is the perfect choice. It is especially suited for users who want easy installation combined with long-lasting performance.
@@ -249,10 +249,10 @@ The **Camco 55374 Battery Box** boasts a robust design made from corrosion-resis
 
 Additionally, the included straps and clamps simplify the installation process, securing the batteries firmly in place to prevent movement and potential damage during transit or rough conditions. The free limited warranty further enhances the value proposition, assuring users of the product’s quality and reliability. Overall, this battery box offers a practical and durable solution for those needing to protect and organize multiple batteries in demanding environments.
 
-## <a href="https://www.amazon.com/dp/B0FJ8S736F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">12v 200ah Lifepo4 Battery</a>
+## <a href="https://www.amazon.com/dp/B0FJ8S736F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">12v 200ah Lifepo4 Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B0FJ8S736F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="12V 200Ah LiFePO4 Battery Lithium Battery with 150A BMS, 3000 Life Cycles &amp; 5-Year Lifespan,Up to 3000+ Perfect for RV, Solar, Trolling Motor, Wind, Marine, Camping and Off-Grid System (12.8V 200AH)" src="https://m.media-amazon.com/images/I/31Ex9iKX5wL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FJ8S736F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="12V 200Ah LiFePO4 Battery Lithium Battery with 150A BMS, 3000 Life Cycles &amp; 5-Year Lifespan,Up to 3000+ Perfect for RV, Solar, Trolling Motor, Wind, Marine, Camping and Off-Grid System (12.8V 200AH)" src="https://m.media-amazon.com/images/I/31Ex9iKX5wL._SL500_.jpg"/></a>
 
 
 The **12V 200Ah LiFePO4 Battery** is ideal for individuals seeking a reliable and long-lasting power source for their **RV, solar setups, trolling motors, wind systems, marine applications, camping,** and **off-grid systems**. Whether you are an outdoor enthusiast, a boater, or someone looking to invest in sustainable energy storage, this battery offers a robust solution designed to meet demanding energy needs.

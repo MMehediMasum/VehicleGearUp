@@ -23,10 +23,10 @@ Dunlop D401 tires suit classic Harley models, balancing comfort and control. Cus
 
 
 
-## <a href="https://www.amazon.com/dp/B07K8RHXN1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pirelli Angel St Motorcycle Tires</a>
+## <a href="https://www.amazon.com/dp/B07K8RHXN1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pirelli Angel St Motorcycle Tires</a>
 
 
-<a href="https://www.amazon.com/dp/B07K8RHXN1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pirelli Angel ST 120/70ZR17 (58W) Front &amp; 190/50ZR17 (73W) Rear Motorcycle Tires – High-Performance Sport Touring Tire for Enhanced Grip, Durability &amp; Stability – Fits Sport &amp; Touring Bikes" src="https://m.media-amazon.com/images/I/41PEoq0EVrL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07K8RHXN1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pirelli Angel ST 120/70ZR17 (58W) Front &amp; 190/50ZR17 (73W) Rear Motorcycle Tires – High-Performance Sport Touring Tire for Enhanced Grip, Durability &amp; Stability – Fits Sport &amp; Touring Bikes" src="https://m.media-amazon.com/images/I/41PEoq0EVrL._SL500_.jpg"/></a>
 
 
 The **Pirelli Angel ST 120/70ZR17 (58W) Front & 190/50ZR17 (73W) Rear Motorcycle Tires** are ideal for riders who demand a perfect blend of performance and durability. These tires are best suited for motorcycle enthusiasts who own **sport** or **touring bikes** and seek enhanced grip, stability, and long-lasting wear for both aggressive riding and long-distance touring.
@@ -49,10 +49,10 @@ The **Pirelli Angel ST** tires feature advanced compound technology that offers 
 
 Additionally, the tire’s profile and construction enhance overall stability, providing precise steering response and comfort during long rides. The front 120/70ZR17 and rear 190/50ZR17 sizes perfectly complement sport and touring bikes, ensuring optimal performance and ride quality. With these tires, riders gain a dependable balance of performance, endurance, and safety for their motorcycle adventures.
 
-## <a href="https://www.amazon.com/dp/B09QXH13SL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kenda Km1 (km001) 120/70zr17 Front &amp; 160/60zr17 Rear Tires For Sport Touring Motorcycles</a>
+## <a href="https://www.amazon.com/dp/B09QXH13SL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kenda Km1 (km001) 120/70zr17 Front &amp; 160/60zr17 Rear Tires For Sport Touring Motorcycles</a>
 
 
-<a href="https://www.amazon.com/dp/B09QXH13SL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kenda KM1 (KM001) 120/70ZR17 Front (58W) &amp; 160/60ZR17 Rear (69W) Tires for Sport Touring Motorcycles, Radial with High-Speed Stability &amp; Excellent Wet Grip w/Keychain (120/70-17) (160/60-17) (2-Pack)" src="https://m.media-amazon.com/images/I/41SWAL+lGOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09QXH13SL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kenda KM1 (KM001) 120/70ZR17 Front (58W) &amp; 160/60ZR17 Rear (69W) Tires for Sport Touring Motorcycles, Radial with High-Speed Stability &amp; Excellent Wet Grip w/Keychain (120/70-17) (160/60-17) (2-Pack)" src="https://m.media-amazon.com/images/I/41SWAL+lGOL._SL500_.jpg"/></a>
 
 
 The **Kenda KM1 (KM001) 120/70ZR17 Front (58W) & 160/60ZR17 Rear (69W) Tires** are ideal for sport touring motorcycle riders who seek a perfect balance between performance and durability. If you frequently embark on long rides that demand both high-speed stability and excellent wet grip, these tires are tailored to meet your needs. Enthusiasts who prioritize safety without compromising on sporty handling will find these tires especially beneficial.
@@ -74,10 +74,10 @@ The **Kenda KM1 tires** feature a **radial design** that enhances flexibility an
 
 Additionally, the tires are engineered with special compounds to maximize **wet grip**, providing enhanced traction during adverse weather conditions. This not only boosts rider confidence but also contributes to safer journeys in unpredictable environments. The overall durability and robust design of the Kenda KM1 tires ensure long-lasting performance, making them a smart investment for riders seeking dependable and high-quality sport touring tires.
 
-## <a href="https://www.amazon.com/dp/B07CN68S4D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop Tires Harley Davidson D401 Front Tire</a>
+## <a href="https://www.amazon.com/dp/B07CN68S4D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop Tires Harley Davidson D401 Front Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B07CN68S4D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop Tires Harley Davidson D401 Front Tire (130/90B-16)" src="https://m.media-amazon.com/images/I/41Mfu3PJ2zL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07CN68S4D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop Tires Harley Davidson D401 Front Tire (130/90B-16)" src="https://m.media-amazon.com/images/I/41Mfu3PJ2zL._SL500_.jpg"/></a>
 
 
 The **Dunlop Tires Harley Davidson D401 Front Tire (130/90B-16)** is ideal for Harley Davidson motorcycle owners who seek a reliable and high-performance front tire. If you value excellent handling, durability, and a tire specifically designed to complement your Harley’s riding dynamics, this tire is a great choice for you. It suits riders who prioritize safety and a smooth riding experience on various road conditions.
@@ -100,10 +100,10 @@ The **Dunlop D401 Front Tire** features a robust tread design optimized for exce
 
 Additionally, the tire’s construction ensures longevity and consistent performance, which means fewer replacements and better value over time. Being a product from **Dunlop**, a reputable manufacturer in the motorcycle tire industry, users can trust the quality and reliability of this tire. Its specific design for Harley Davidson models ensures compatibility and safety, making it an excellent investment for riders who want to maintain their bike’s optimal performance.
 
-## <a href="https://www.amazon.com/dp/B0B1VGSZQC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tcmt Front Fender Fit For Harley Touring Electra Street Road Glide Road King</a>
+## <a href="https://www.amazon.com/dp/B0B1VGSZQC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tcmt Front Fender Fit For Harley Touring Electra Street Road Glide Road King</a>
 
 
-<a href="https://www.amazon.com/dp/B0B1VGSZQC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TCMT Front Fender Fit For Harley Touring Electra Street Road Glide Road King 17" src="https://m.media-amazon.com/images/I/41kWu+XSphL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B1VGSZQC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TCMT Front Fender Fit For Harley Touring Electra Street Road Glide Road King 17" src="https://m.media-amazon.com/images/I/41kWu+XSphL._SL500_.jpg"/></a>
 
 
 The **TCMT Front Fender** is an ideal choice for **Harley Touring enthusiasts** who are looking to enhance their motorcycle's style and performance. This fender is designed for those who own models like the **Electra, Street, Road Glide, and Road King** with wheel and tire sizes ranging from **130/80B-17 to 130/60B-19** for years **2009-2022**. If you're someone who values both aesthetics and functionality in your motorcycle accessories, this product is tailored for you.
@@ -123,10 +123,10 @@ The **TCMT Front Fender** offers excellent **compatibility** with various **Harl
 
 In addition to its customizable finish, the fender's design contributes to a **sleek and modern appearance**, enhancing the overall look of your motorcycle. This **aesthetic upgrade** can significantly increase the visual appeal of your bike, making it stand out on the road. However, potential buyers should note that the fender may require **professional installation** to ensure a perfect fit and finish. This consideration is important for those who are not experienced in motorcycle modifications.
 
-## <a href="https://www.amazon.com/dp/B0FB33WTZW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fatflex 16" Rear Wheel Chrome Twisted Spokes With 3.5" Rim</a>
+## <a href="https://www.amazon.com/dp/B0FB33WTZW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fatflex 16" Rear Wheel Chrome Twisted Spokes With 3.5" Rim</a>
 
 
-<a href="https://www.amazon.com/dp/B0FB33WTZW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="FatFlex 16" src="https://m.media-amazon.com/images/I/51N7ufDhHvL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FB33WTZW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="FatFlex 16" src="https://m.media-amazon.com/images/I/51N7ufDhHvL._SL500_.jpg"/></a>
 
 
 The **FatFlex 16" Rear Wheel Chrome Twisted Spokes with 3.5" Rim** is ideal for motorcycle enthusiasts who own 2008 and up ABS Harley Dyna, Softail, or Sportster models, specifically for Touring 2008 ABS models. If you want to customize your bike with a stylish, durable, and performance-enhancing rear wheel, this product is perfect for you. Riders who value both aesthetics and functionality will appreciate this upgrade.
@@ -148,10 +148,10 @@ The **FatFlex 16" Rear Wheel** features a robust construction with chrome twiste
 
 Additionally, being custom-designed for 2008 and newer ABS Harley Dyna, Softail, and Sportster Touring models, this wheel ensures a perfect fit without compromising safety or ride quality. The attention to detail by **FatFlex** guarantees that the wheel meets high standards for performance, making it a worthwhile investment for those who want to personalize their bike while maintaining top-notch reliability and style.
 
-## <a href="https://www.amazon.com/dp/B0F1MQDFS6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fatflex Stainless Steel Fat Spokes 21 Inch Black Front Wheel Dual Disc For Harley Davidson Touring</a>
+## <a href="https://www.amazon.com/dp/B0F1MQDFS6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fatflex Stainless Steel Fat Spokes 21 Inch Black Front Wheel Dual Disc For Harley Davidson Touring</a>
 
 
-<a href="https://www.amazon.com/dp/B0F1MQDFS6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="FatFlex Stainless Steel Fat Spokes 21 Inch Black Front Wheel Dual Disc for Harley Davidson Touring 00-07 Wheels Rims Updating-2135FD-1TW-BBB" src="https://m.media-amazon.com/images/I/51O8KYLOghL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F1MQDFS6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="FatFlex Stainless Steel Fat Spokes 21 Inch Black Front Wheel Dual Disc for Harley Davidson Touring 00-07 Wheels Rims Updating-2135FD-1TW-BBB" src="https://m.media-amazon.com/images/I/51O8KYLOghL._SL500_.jpg"/></a>
 
 
 The **FatFlex Stainless Steel Fat Spokes 21 Inch Black Front Wheel Dual Disc** is ideal for Harley Davidson Touring owners from 2000 to 2007 who are looking to upgrade their bike's front wheel with a durable and stylish option. This product is perfect for riders who want to enhance both the performance and aesthetic appeal of their motorcycle with a reliable and high-quality wheel rim.
@@ -173,10 +173,10 @@ The **FatFlex Stainless Steel Fat Spokes 21 Inch Black Front Wheel** features ro
 
 Additionally, the black finish not only offers a modern aesthetic upgrade but also provides an extra layer of protection against rust and wear. This wheel rim is engineered by **FatFlex**, a brand known for quality motorcycle parts, ensuring that customers receive a product that combines performance with visual appeal. Overall, this upgrade adds both functionality and style, making it an excellent choice for Harley Davidson enthusiasts aiming to customize their touring bikes.
 
-## <a href="https://www.amazon.com/dp/B07DCF4XWR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop D401 Rear Motorcycle Tire</a>
+## <a href="https://www.amazon.com/dp/B07DCF4XWR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop D401 Rear Motorcycle Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B07DCF4XWR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop D401 Rear Motorcycle Tire 130/90B-16 (73H) Black Wall for Harley-Davidson FXR Touring, Sport Glide FXRT 1983-1992" src="https://m.media-amazon.com/images/I/413LANCZQXL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07DCF4XWR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop D401 Rear Motorcycle Tire 130/90B-16 (73H) Black Wall for Harley-Davidson FXR Touring, Sport Glide FXRT 1983-1992" src="https://m.media-amazon.com/images/I/413LANCZQXL._SL500_.jpg"/></a>
 
 
 The **Dunlop D401 Rear Motorcycle Tire 130/90B-16 (73H) Black Wall** is ideal for riders who own a **Harley-Davidson FXR Touring** or **Sport Glide FXRT** model from the years 1983 to 1992. This tire is perfect for motorcyclists seeking a reliable, durable, and high-performance rear tire that complements their classic Harley-Davidson bike while ensuring safety and enhanced handling on the road.
@@ -198,10 +198,10 @@ The **Dunlop D401 Rear Motorcycle Tire** features a black wall design that not o
 
 Constructed with high-quality materials by **Dunlop**, this tire offers exceptional durability and resistance to wear, ensuring that riders get the most mileage out of their investment. Its specific sizing (130/90B-16) and load rating (73H) are tailored to meet the demands of the FXR Touring and Sport Glide FXRT models, delivering optimal fitment and performance. This combination of features translates into a smoother ride, better road grip, and increased overall control, making it an excellent choice for Harley enthusiasts looking to maintain or upgrade their motorcycle's rear tire.
 
-## <a href="https://www.amazon.com/dp/B079K86BNZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bridgestone Battlecruise H50 Rear</a>
+## <a href="https://www.amazon.com/dp/B079K86BNZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bridgestone Battlecruise H50 Rear</a>
 
 
-<a href="https://www.amazon.com/dp/B079K86BNZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="130/90B-16 (73H) Bridgestone Battlecruise H50 Rear Compatible With Harley-Davidson FXR Touring, Sport Glide FXRT 1983-1992" src="https://m.media-amazon.com/images/I/41E8jgkWiOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B079K86BNZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="130/90B-16 (73H) Bridgestone Battlecruise H50 Rear Compatible With Harley-Davidson FXR Touring, Sport Glide FXRT 1983-1992" src="https://m.media-amazon.com/images/I/41E8jgkWiOL._SL500_.jpg"/></a>
 
 
 The **130/90B-16 (73H) Bridgestone Battlecruise H50 Rear** tire is ideal for motorcycle enthusiasts who own classic **Harley-Davidson FXR Touring** and **Sport Glide FXRT models from 1983-1992**. Riders seeking a reliable, high-performance rear tire that balances durability and handling for their vintage Harley-Davidson will find this tire a great fit. This product is perfect for those who want to maintain the authenticity of their bike while enhancing safety and ride quality.
@@ -224,10 +224,10 @@ The **Bridgestone Battlecruise H50 Rear tire** features a robust design tailored
 
 Additionally, this tire benefits from Bridgestone’s advanced rubber compounds that contribute to superior wear resistance and longevity, reducing the frequency of replacements and providing excellent value over time. The precise fitment for FXR Touring and Sport Glide FXRT models ensures optimal compatibility, making installation straightforward and maintaining the original handling characteristics of the motorcycle. Overall, this tire combines durability, safety, and performance, making it an excellent choice for riders passionate about preserving and enhancing their classic Harley-Davidson experience.
 
-## <a href="https://www.amazon.com/dp/B0BSGVBD1F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Harley Davidson Touring Motorcycle Cover</a>
+## <a href="https://www.amazon.com/dp/B0BSGVBD1F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Harley Davidson Touring Motorcycle Cover</a>
 
 
-<a href="https://www.amazon.com/dp/B0BSGVBD1F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Harley Davidson Touring Motorcycle Cover - 420D Oxford Cloth, Waterproof for Snow, Rain &amp; Dust Protection, Fits Electra Glide, Road King, Street Glide &amp; CVO Models" src="https://m.media-amazon.com/images/I/41KSYheavRL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BSGVBD1F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Harley Davidson Touring Motorcycle Cover - 420D Oxford Cloth, Waterproof for Snow, Rain &amp; Dust Protection, Fits Electra Glide, Road King, Street Glide &amp; CVO Models" src="https://m.media-amazon.com/images/I/41KSYheavRL._SL500_.jpg"/></a>
 
 
 The **Harley Davidson Touring Motorcycle Cover** is ideal for motorcycle enthusiasts who own models like the **Electra Glide**, **Road King**, **Street Glide**, or **CVO** and want reliable protection from the elements. If you are looking to shield your prized motorcycle from **snow, rain, and dust** while preserving its finish and longevity, this cover made from **420D Oxford Cloth** is a perfect choice.
@@ -249,10 +249,10 @@ The **Harley Davidson Touring Motorcycle Cover** features a robust **420D Oxford
 
 Additionally, the waterproof quality of the cover safeguards your bike from moisture damage, preventing rust and corrosion even in harsh weather. The material also acts as a barrier against dust and other environmental contaminants, helping to keep your motorcycle clean and in showroom condition. Overall, this cover provides peace of mind for Harley owners who want to maintain the pristine condition of their touring motorcycles year-round.
 
-## <a href="https://www.amazon.com/dp/B0F37VKSPW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fatflex 21 Stainless Steel Spokes Front Dual Wheels</a>
+## <a href="https://www.amazon.com/dp/B0F37VKSPW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fatflex 21 Stainless Steel Spokes Front Dual Wheels</a>
 
 
-<a href="https://www.amazon.com/dp/B0F37VKSPW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="FatFlex 21 * 3.5'' Stainless Steel Spokes Front Dual Wheels W/ABS Bearing for 2008-up Touring 21 Inch Harley Wheels and Rims Updating-2135FD-25TW-CCC（ABS)" src="https://m.media-amazon.com/images/I/51MQ3tjKF2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F37VKSPW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="FatFlex 21 * 3.5'' Stainless Steel Spokes Front Dual Wheels W/ABS Bearing for 2008-up Touring 21 Inch Harley Wheels and Rims Updating-2135FD-25TW-CCC（ABS)" src="https://m.media-amazon.com/images/I/51MQ3tjKF2L._SL500_.jpg"/></a>
 
 
 The **FatFlex 21  **3.5'' Stainless Steel Spokes Front Dual Wheels**** with **ABS Bearing** is ideal for motorcycle enthusiasts who own 2008-up Touring models and are looking to upgrade their **21 Inch Harley Wheels and Rims**. This product is perfect for riders seeking enhanced durability, performance, and style for their Harley motorcycles. If you want a reliable and high-quality wheel upgrade that offers both functionality and aesthetic appeal, this item is an excellent choice.

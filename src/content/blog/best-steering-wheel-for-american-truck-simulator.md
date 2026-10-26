@@ -20,10 +20,10 @@ Compatibility matters. Some wheels work with PC, Xbox, or PlayStation. Others in
 
 
 
-## <a href="https://www.amazon.com/dp/B0D36621HM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hori Truck Control System</a>
+## <a href="https://www.amazon.com/dp/B0D36621HM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hori Truck Control System</a>
 
 
-<a href="https://www.amazon.com/dp/B0D36621HM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HORI Truck Control System for Windows 11/10 with Force Feedback Steering Wheel, Shifter Control Panel, &amp; Pedals" src="https://m.media-amazon.com/images/I/41pQ0ivsuNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D36621HM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HORI Truck Control System for Windows 11/10 with Force Feedback Steering Wheel, Shifter Control Panel, &amp; Pedals" src="https://m.media-amazon.com/images/I/41pQ0ivsuNL._SL500_.jpg"/></a>
 
 
 The **HORI Truck Control System** for **Windows 11/10** is perfect for serious sim racing enthusiasts and professional truck driving gamers who seek an immersive and realistic driving experience. Ideal for users who want precise control over their virtual trucks, this system is designed to enhance gameplay with features that replicate real-world driving conditions.
@@ -46,10 +46,10 @@ The **HORI Truck Control System** is engineered to deliver an exceptional drivin
 
 Equipped with a dedicated **shifter control panel** and responsive **pedals**, this system offers comprehensive control over your virtual truck’s movements. The ergonomic design ensures comfort during long gaming sessions, while the sturdy construction minimizes unwanted movement, enabling precise inputs. With full compatibility for **Windows 11 and 10**, users can seamlessly integrate this setup into their existing gaming environment for an enhanced simulation experience.
 
-## <a href="https://www.amazon.com/dp/B0CFM2QNBH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Thrustmaster Simtask Steering Kit</a>
+## <a href="https://www.amazon.com/dp/B0CFM2QNBH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Thrustmaster Simtask Steering Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0CFM2QNBH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Thrustmaster SimTask Steering Kit, Adjustable Clamp and Spinner Knob, for Truck and Farm Simulation Gaming (Compatible with PS, XBOX, PC)" src="https://m.media-amazon.com/images/I/41cuE5DQ0OL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CFM2QNBH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Thrustmaster SimTask Steering Kit, Adjustable Clamp and Spinner Knob, for Truck and Farm Simulation Gaming (Compatible with PS, XBOX, PC)" src="https://m.media-amazon.com/images/I/41cuE5DQ0OL._SL500_.jpg"/></a>
 
 
 The **Thrustmaster SimTask Steering Kit** is ideal for avid gamers who enjoy **truck and farm simulation games** on **PS, XBOX, and PC**. If you are looking for a highly customizable and immersive steering experience to enhance your simulation gameplay, this kit is designed to meet your needs. Whether you are a casual player or a dedicated sim enthusiast, this steering kit offers precision and comfort to elevate your gaming sessions.
@@ -72,10 +72,10 @@ The **Thrustmaster SimTask Steering Kit** features an adjustable clamp that prov
 
 Designed with versatility in mind, the kit's compatibility across **PS, XBOX, and PC** platforms makes it a flexible choice for gamers who enjoy multiple systems. Its compact size and lightweight build enhance portability and ease of use, making it suitable for home setups or on-the-go gaming. The sleek black design also complements any gaming environment without being intrusive.
 
-## <a href="https://www.amazon.com/dp/B09M63FP4T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Obokidly Upgrade Type Diy Racing Simulator Steering Wheel Turn Signal Wiper Lever Switch</a>
+## <a href="https://www.amazon.com/dp/B09M63FP4T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Obokidly Upgrade Type Diy Racing Simulator Steering Wheel Turn Signal Wiper Lever Switch</a>
 
 
-<a href="https://www.amazon.com/dp/B09M63FP4T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Obokidly Upgrade Type DIY Racing Simulator Steering Wheel Turn Signal Wiper Lever Switch For Logitech G27 G29 G920 G923 Logitech Thrustmaster T300 (Upgrade Type-For G27/G29, Black)" src="https://m.media-amazon.com/images/I/51bXB0VzUyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09M63FP4T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Obokidly Upgrade Type DIY Racing Simulator Steering Wheel Turn Signal Wiper Lever Switch For Logitech G27 G29 G920 G923 Logitech Thrustmaster T300 (Upgrade Type-For G27/G29, Black)" src="https://m.media-amazon.com/images/I/51bXB0VzUyL._SL500_.jpg"/></a>
 
 
 The **Obokidly Upgrade Type DIY Racing Simulator Steering Wheel Turn Signal Wiper Lever Switch** is ideal for serious racing game enthusiasts and DIY sim racers who want to enhance their setup with realistic controls. Specifically designed for compatibility with **Logitech G27, G29, G920, G923**, and **Logitech Thrustmaster T300** steering wheels, this switch is perfect for users seeking a more immersive and customizable racing experience. If you want to add functional turn signal and wiper controls to your simulator, this upgrade offers a practical solution.
@@ -98,10 +98,10 @@ The **Obokidly Upgrade Type DIY Racing Simulator Steering Wheel Turn Signal Wipe
 
 Featuring a lightweight design, this switch is easy to handle and install, making it a convenient upgrade for DIY enthusiasts looking to expand the functionality of their racing wheels. By adding realistic turn signal and wiper controls, it not only improves the gaming experience but also helps users develop better hand coordination and multitasking skills during gameplay. Overall, this upgrade leverages both form and function to deliver a meaningful enhancement to any compatible racing simulator.
 
-## <a href="https://www.amazon.com/dp/B00Z0UWV98?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Logitech G920 Driving Force Racing Wheel And Floor Pedals</a>
+## <a href="https://www.amazon.com/dp/B00Z0UWV98?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Logitech G920 Driving Force Racing Wheel And Floor Pedals</a>
 
 
-<a href="https://www.amazon.com/dp/B00Z0UWV98?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Logitech G920 Driving Force Racing Wheel and Floor Pedals, Real Force Feedback, Stainless Steel Paddle Shifters, Leather Steering Wheel Cover for Xbox Series X|S, Xbox One, PC, Mac - Black" src="https://m.media-amazon.com/images/I/41366vu2dxL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00Z0UWV98?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Logitech G920 Driving Force Racing Wheel and Floor Pedals, Real Force Feedback, Stainless Steel Paddle Shifters, Leather Steering Wheel Cover for Xbox Series X|S, Xbox One, PC, Mac - Black" src="https://m.media-amazon.com/images/I/41366vu2dxL._SL500_.jpg"/></a>
 
 
 The **Logitech G920 Driving Force Racing Wheel and Floor Pedals** is ideal for serious racing enthusiasts and gamers who want a highly immersive and realistic driving experience. It is perfect for users with an Xbox Series X|S, Xbox One, PC, or Mac who are looking to elevate their racing gameplay with authentic force feedback and precise control. If you are passionate about racing simulators and want to feel every turn and bump on the track, this racing wheel set is designed for you.
@@ -124,10 +124,10 @@ The **Logitech G920 Driving Force Racing Wheel** features advanced **real force 
 
 Additionally, the **leather steering wheel cover** offers a comfortable grip that reduces fatigue during long gaming sessions. The floor pedals are well designed for accurate throttle, brake, and clutch control, allowing for improved reaction times and better overall driving performance. Its compatibility with multiple platforms like **Xbox Series X|S, Xbox One, PC, and Mac** makes it a versatile choice for many users seeking a premium racing experience.
 
-## <a href="https://www.amazon.com/dp/B00Z0UWWYC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Logitech G29 Driving Force Racing Wheel And Floor Pedals</a>
+## <a href="https://www.amazon.com/dp/B00Z0UWWYC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Logitech G29 Driving Force Racing Wheel And Floor Pedals</a>
 
 
-<a href="https://www.amazon.com/dp/B00Z0UWWYC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Logitech G29 Driving Force Racing Wheel and Floor Pedals, Real Force Feedback, Stainless Steel Paddle Shifters, Leather Steering Wheel Cover for PS5, PS4, PC, Mac - Black" src="https://m.media-amazon.com/images/I/41FVFskJChL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00Z0UWWYC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Logitech G29 Driving Force Racing Wheel and Floor Pedals, Real Force Feedback, Stainless Steel Paddle Shifters, Leather Steering Wheel Cover for PS5, PS4, PC, Mac - Black" src="https://m.media-amazon.com/images/I/41FVFskJChL._SL500_.jpg"/></a>
 
 
 The **Logitech G29 Driving Force Racing Wheel and Floor Pedals** is ideal for passionate racing game enthusiasts who want an immersive and realistic driving experience. This product is perfect for gamers using **PS5, PS4, PC, or Mac** platforms who seek precise control and enhanced feedback during gameplay. Whether you are a casual player or a dedicated sim racer, the G29 offers a professional-grade setup to elevate your racing skills.
@@ -150,10 +150,10 @@ The **Logitech G29 Racing Wheel** features advanced **Real Force Feedback** that
 
 Designed with comfort and style in mind, the **leather steering wheel cover** offers a firm grip and adds a premium touch to the setup. Its compatibility with popular gaming platforms like **PS5, PS4, PC, and Mac** ensures broad accessibility for gamers regardless of their system preference. With manageable dimensions and weight, the Logitech G29 is easy to set up in any gaming space, making it an excellent choice for those seeking a high-quality racing wheel without sacrificing convenience.
 
-## <a href="https://www.amazon.com/dp/B0CNGMZLHC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pxn V99 Driving Force Steering Wheel</a>
+## <a href="https://www.amazon.com/dp/B0CNGMZLHC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pxn V99 Driving Force Steering Wheel</a>
 
 
-<a href="https://www.amazon.com/dp/B0CNGMZLHC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PXN V99 Driving Force Steering Wheel, 3.2Nm Dual-Motor Force Feedback Base, 11.8-inch TPR Rubber Wheel Cover Sim Racing Wheel With Shifter and Pedal, Desk Clamp, for PC, PS4, Xbox One, Xbox Serive X|S" src="https://m.media-amazon.com/images/I/41YEAotX3dL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CNGMZLHC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PXN V99 Driving Force Steering Wheel, 3.2Nm Dual-Motor Force Feedback Base, 11.8-inch TPR Rubber Wheel Cover Sim Racing Wheel With Shifter and Pedal, Desk Clamp, for PC, PS4, Xbox One, Xbox Serive X|S" src="https://m.media-amazon.com/images/I/41YEAotX3dL._SL500_.jpg"/></a>
 
 
 The **PXN V99 Driving Force Steering Wheel** is ideal for **gaming enthusiasts** and **sim-racing aficionados** who crave an immersive and realistic driving experience. This product is perfect for those who seek to elevate their racing game setup with a high-quality steering wheel that offers **precision, comfort,** and **compatibility** with multiple platforms such as **PC, PS4, Xbox One,** and **Xbox Series X|S**. If you're passionate about sim racing and want to feel every turn and drift, this steering wheel is a must-have addition to your gaming arsenal.
@@ -175,10 +175,10 @@ The **PXN V99 Driving Force Steering Wheel** features a **3.2Nm Dual-Motor Force
 
 Additionally, the steering wheel's **compatibility with multiple gaming platforms** means that users can enjoy a seamless transition between different consoles and PCs without needing multiple steering setups. The inclusion of a **shifter and pedal** further enriches the simulation experience, offering a more comprehensive and immersive driving feel. The **desk clamp** ensures that the wheel remains stable during use, providing a consistent and reliable performance. These features collectively make the **PXN V99** a standout choice for sim racing enthusiasts who demand both quality and versatility in their gaming equipment.
 
-## <a href="https://www.amazon.com/dp/B081C89QNK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Pxn Racing Wheel </a>
+## <a href="https://www.amazon.com/dp/B081C89QNK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Pxn Racing Wheel </a>
 
 
-<a href="https://www.amazon.com/dp/B081C89QNK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PXN Racing Wheel - Gaming Steering Wheel for PC, V3II 180 Degree Driving Wheel Volante PC Universal Usb Car Racing with Pedal for PS4, PC, PS3,Xbox Series X|S, Xbox One" src="https://m.media-amazon.com/images/I/415zbaz1iHL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B081C89QNK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PXN Racing Wheel - Gaming Steering Wheel for PC, V3II 180 Degree Driving Wheel Volante PC Universal Usb Car Racing with Pedal for PS4, PC, PS3,Xbox Series X|S, Xbox One" src="https://m.media-amazon.com/images/I/415zbaz1iHL._SL500_.jpg"/></a>
 
 
 The **PXN Racing Wheel - V3II** is ideal for gamers seeking an immersive and realistic driving experience across multiple platforms including **PC**, **PS4**, **PS3**, **Xbox Series X|S**, and **Xbox One**. If you are passionate about racing games and want a versatile, responsive, and user-friendly steering wheel that enhances your gameplay, this universal **gaming steering wheel** with pedal set is a perfect choice.
@@ -201,10 +201,10 @@ The **PXN Racing Wheel V3II** features a 180-degree driving wheel that offers sm
 
 With a simple USB connection, this **gaming steering wheel** is designed for quick installation and immediate use, making it accessible for both beginners and seasoned gamers. The ergonomic design and responsive controls improve driving accuracy, allowing players to better navigate tracks and improve lap times. Overall, the PXN Racing Wheel V3II delivers a balanced combination of functionality, ease of use, and cross-platform versatility that can elevate your racing game experience.
 
-## <a href="https://www.amazon.com/dp/B083TY68CQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pc Racing Wheel Steering Wheel Pxn V900 Driving Simulator</a>
+## <a href="https://www.amazon.com/dp/B083TY68CQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pc Racing Wheel Steering Wheel Pxn V900 Driving Simulator</a>
 
 
-<a href="https://www.amazon.com/dp/B083TY68CQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PC Racing Wheel Steering Wheel PXN V900 Driving Simulator 270°/900° Rotation christmas gift Gaming Steering Wheel with Pedals for PC,PS4,PS3,Xbox Series X|S, Xbox One" src="https://m.media-amazon.com/images/I/41EEKbv2j0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B083TY68CQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PC Racing Wheel Steering Wheel PXN V900 Driving Simulator 270°/900° Rotation christmas gift Gaming Steering Wheel with Pedals for PC,PS4,PS3,Xbox Series X|S, Xbox One" src="https://m.media-amazon.com/images/I/41EEKbv2j0L._SL500_.jpg"/></a>
 
 
 The **PC Racing Wheel Steering Wheel PXN V900** is ideal for avid gamers and simulation enthusiasts who want an immersive and realistic driving experience. Whether you play on **PC, PS4, PS3, Xbox Series X|S, or Xbox One**, this versatile gaming steering wheel with pedals is perfect for those seeking enhanced control and precision in racing games. It makes a great **Christmas gift** for anyone passionate about racing simulations or looking to upgrade their current setup.
@@ -227,10 +227,10 @@ The **PXN V900 Racing Wheel** features dual rotation modes of **270° and 900°*
 
 Designed with compatibility in mind, the steering wheel supports multiple platforms including **PC, PlayStation, and Xbox**, making it a versatile choice for gamers who own more than one console. Its sturdy construction and ergonomic design ensure comfortable long gaming sessions, while the black finish adds a professional look to any gaming setup. Overall, the PXN V900 combines functionality, durability, and wide compatibility to elevate your racing simulation experience.
 
-## <a href="https://www.amazon.com/dp/B0C7VQ8P8M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gtplayer Sim Racing Wheel Stand Simulator Cockpit Wheel Stand Racing Steering Shifter Mount</a>
+## <a href="https://www.amazon.com/dp/B0C7VQ8P8M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gtplayer Sim Racing Wheel Stand Simulator Cockpit Wheel Stand Racing Steering Shifter Mount</a>
 
 
-<a href="https://www.amazon.com/dp/B0C7VQ8P8M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GTPLAYER Sim Racing Wheel Stand Simulator Cockpit Wheel Stand Racing Steering Shifter Mount fit for Logitech G25 G27 G29 G920 G923 Thrustmaster T330TS Gaming Stand Wheel Pedals NOT Included (Black)" src="https://m.media-amazon.com/images/I/41w9HkvEbVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C7VQ8P8M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GTPLAYER Sim Racing Wheel Stand Simulator Cockpit Wheel Stand Racing Steering Shifter Mount fit for Logitech G25 G27 G29 G920 G923 Thrustmaster T330TS Gaming Stand Wheel Pedals NOT Included (Black)" src="https://m.media-amazon.com/images/I/41w9HkvEbVL._SL500_.jpg"/></a>
 
 
 The **GTPLAYER Sim Racing Wheel Stand Simulator Cockpit Wheel Stand** is perfect for avid sim racing enthusiasts looking to enhance their gaming experience. Ideal for those who own popular racing wheels like the **Logitech G25, G27, G29, G920, G923**, or **Thrustmaster T330TS**, this stand offers a sturdy and adjustable platform to mount your wheel and shifter securely. If you want a realistic racing setup without investing in a full cockpit, this stand is an excellent choice.
@@ -254,10 +254,10 @@ The **GTPLAYER Wheel Stand** boasts a robust build designed to hold your racing 
 
 Additionally, the stand’s compatibility with various popular racing wheels makes it a versatile accessory for many users. The inclusion of a shifter mount further elevates the racing simulation experience, allowing for smooth gear changes that mimic real driving. While the pedals are not included, the stand’s design accommodates most pedal sets, enabling users to build a complete cockpit tailored to their needs. Overall, this product balances functionality, durability, and convenience, making it a valuable addition to any sim racing enthusiast’s gear.
 
-## <a href="https://www.amazon.com/dp/B093WN8H8N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Usb American Truck Simulator Shifter</a>
+## <a href="https://www.amazon.com/dp/B093WN8H8N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Usb American Truck Simulator Shifter</a>
 
 
-<a href="https://www.amazon.com/dp/B093WN8H8N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="USB American Truck Simulator Shifter, Gearshift Knob Fit for ATS &amp; ETS2 Games, PC Sim Racing Shifter Compatible with Logitech G27 G29 G920 Thrustmaster TH8A Fanatec SQ" src="https://m.media-amazon.com/images/I/31x4oL2ySKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B093WN8H8N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="USB American Truck Simulator Shifter, Gearshift Knob Fit for ATS &amp; ETS2 Games, PC Sim Racing Shifter Compatible with Logitech G27 G29 G920 Thrustmaster TH8A Fanatec SQ" src="https://m.media-amazon.com/images/I/31x4oL2ySKL._SL500_.jpg"/></a>
 
 
 The **USB American Truck Simulator Shifter** is perfect for avid sim racing enthusiasts and gamers who enjoy immersive driving experiences in **ATS** and **ETS2** games. Ideal for users who own popular racing wheels like the **Logitech G27, G29, G920**, **Thrustmaster TH8A**, or **Fanatec SQ**, this gearshift knob enhances realism and control during gameplay. If you're looking to elevate your PC sim racing setup with a high-quality, compatible shifter, this item is an excellent choice.

@@ -23,10 +23,10 @@ Whitewall tires add a classic look without losing grip or durability. Some tires
 
 
 
-## <a href="https://www.amazon.com/dp/B001CD6U7G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop Harley Davidson D402 Front Tire</a>
+## <a href="https://www.amazon.com/dp/B001CD6U7G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop Harley Davidson D402 Front Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B001CD6U7G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop Harley Davidson D402 Front Tire (Single / MT90B-16)" src="https://m.media-amazon.com/images/I/41XKC3iQ9gL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B001CD6U7G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop Harley Davidson D402 Front Tire (Single / MT90B-16)" src="https://m.media-amazon.com/images/I/41XKC3iQ9gL._SL500_.jpg"/></a>
 
 
 The **Dunlop Harley Davidson D402 Front Tire (Single / MT90B-16)** is ideal for motorcycle enthusiasts who own Harley Davidson bikes and seek a reliable, high-performance front tire. If you prioritize durability, excellent road grip, and enhanced safety during rides, this tire is designed to meet those needs effectively. Riders who often navigate various road conditions will benefit greatly from this robust tire.
@@ -47,10 +47,10 @@ The **Dunlop Harley Davidson D402 Front Tire** features advanced tread technolog
 
 Another significant benefit is the tire’s longevity; the durable rubber compound resists wear and tear, making it a cost-effective choice for riders who want long-lasting performance. The specific design tailored to Harley Davidson motorcycles ensures that the tire complements the bike’s handling characteristics, improving overall ride comfort and control. Choosing this tire means investing in enhanced safety, reliability, and riding pleasure.
 
-## <a href="https://www.amazon.com/dp/B0F6VR3L9Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop American Elite Ae2 Front Tire</a>
+## <a href="https://www.amazon.com/dp/B0F6VR3L9Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop American Elite Ae2 Front Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B0F6VR3L9Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop American Elite AE2 130/60B-19 Front Tire | Harley Touring Motorcycle" src="https://m.media-amazon.com/images/I/31MnIcfS4yL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F6VR3L9Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop American Elite AE2 130/60B-19 Front Tire | Harley Touring Motorcycle" src="https://m.media-amazon.com/images/I/31MnIcfS4yL._SL500_.jpg"/></a>
 
 
 The **Dunlop American Elite AE2 130/60B-19 Front Tire** is ideal for Harley Touring motorcycle owners who seek a reliable and high-performance tire specifically designed for long-distance rides and enhanced road grip. If you prioritize safety, durability, and smooth handling on various road conditions, this tire is an excellent choice for your touring adventures.
@@ -73,10 +73,10 @@ The **Dunlop American Elite AE2 Front Tire** boasts a thoughtful design tailored
 
 Additionally, this tire's lightweight construction at 13.0 pounds reduces the unsprung weight of the motorcycle, which improves overall handling and responsiveness. The black color and Dunlop branding not only provide a classic look but also assure users of the tire's quality and performance standards. Overall, the Dunlop American Elite AE2 is a premium choice for riders who demand reliability, safety, and an exceptional riding experience on their Harley Touring bikes.
 
-## <a href="https://www.amazon.com/dp/B07V42JRD9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop Harley Davidson D402 Whitewall Front Tire</a>
+## <a href="https://www.amazon.com/dp/B07V42JRD9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop Harley Davidson D402 Whitewall Front Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B07V42JRD9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop Harley Davidson D402 Whitewall Front Tire (Wide Whitewall / MT90B-16)" src="https://m.media-amazon.com/images/I/41PE7M1c0NL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07V42JRD9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop Harley Davidson D402 Whitewall Front Tire (Wide Whitewall / MT90B-16)" src="https://m.media-amazon.com/images/I/41PE7M1c0NL._SL500_.jpg"/></a>
 
 
 Ideal for motorcycle enthusiasts who own a Harley Davidson and seek a blend of classic style with reliable performance, the **Dunlop Harley Davidson D402 Whitewall Front Tire** is perfect for those wanting to enhance their bike’s appearance while ensuring safety and durability. This tire suits riders looking for a wide whitewall design that complements the vintage aesthetic of their motorcycle.
@@ -98,10 +98,10 @@ The **Dunlop Harley Davidson D402 Whitewall Front Tire** stands out with its cla
 
 Beyond aesthetics, this tire’s durable design withstands the rigors of everyday riding, offering longevity and reliability. The combination of functionality and vintage style makes it an ideal option for riders who want to maintain their bike’s iconic look while enjoying modern tire technology. Although slightly heavier, the benefits in grip and control make it a worthy investment for Harley Davidson owners focused on both performance and appearance.
 
-## <a href="https://www.amazon.com/dp/B001KPITV6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop Harley Davidson D402 Rear Tire</a>
+## <a href="https://www.amazon.com/dp/B001KPITV6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop Harley Davidson D402 Rear Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B001KPITV6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop Harley Davidson D402 Rear Tire (Single / MT90-16B)" src="https://m.media-amazon.com/images/I/4156pr1wIJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B001KPITV6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop Harley Davidson D402 Rear Tire (Single / MT90-16B)" src="https://m.media-amazon.com/images/I/4156pr1wIJL._SL500_.jpg"/></a>
 
 
 The **Dunlop Harley Davidson D402 Rear Tire (Single / MT90-16B)** is ideal for motorcycle enthusiasts who own Harley Davidson bikes and seek a reliable, high-performance rear tire. This tire suits riders looking for enhanced stability, durability, and superior traction on both wet and dry roads. If you prioritize safety and a smooth ride on your Harley, this tire is designed to meet those needs effectively.
@@ -124,10 +124,10 @@ The **Dunlop Harley Davidson D402 Rear Tire** features a robust construction wit
 
 With its high-quality materials and precise manufacturing standards, this tire offers excellent wear resistance, ensuring riders get extended mileage before needing a replacement. The tire’s compatibility with Harley Davidson motorcycles ensures a perfect fit, which is crucial for maintaining the bike’s original performance characteristics. Overall, the **Dunlop D402 Rear Tire** is a smart investment for those who want to maintain safety, improve handling, and enjoy a superior riding experience.
 
-## <a href="https://www.amazon.com/dp/B07DCFC3VT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop D402 Front Motorcycle Tire</a>
+## <a href="https://www.amazon.com/dp/B07DCFC3VT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop D402 Front Motorcycle Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B07DCFC3VT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop D402 Front Motorcycle Tire MH90-21 (54H) Black Wall Compatible With Harley-Davidson Sportster 1200 Custom XL1200C 1996-2010" src="https://m.media-amazon.com/images/I/41rzIYHV2dL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07DCFC3VT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop D402 Front Motorcycle Tire MH90-21 (54H) Black Wall Compatible With Harley-Davidson Sportster 1200 Custom XL1200C 1996-2010" src="https://m.media-amazon.com/images/I/41rzIYHV2dL._SL500_.jpg"/></a>
 
 
 The **Dunlop D402 Front Motorcycle Tire MH90-21 (54H) Black Wall** is an excellent choice for **Harley-Davidson Sportster 1200 Custom XL1200C** owners from **1996 to 2010** who are looking for a reliable and durable tire. This tire is ideal for riders who prioritize performance and safety, ensuring a smooth and stable ride. If you often find yourself on long rides or need a tire that can handle various road conditions, this is the right choice for you.
@@ -147,10 +147,10 @@ The **Dunlop D402** is known for its **exceptional durability**, making it a fav
 
 Another standout feature is the tire's **enhanced grip**, which significantly contributes to rider safety. This feature is particularly beneficial for those who frequently ride in varying weather conditions, as it helps maintain stability and control. The tire's compatibility with the **Harley-Davidson Sportster 1200 Custom XL1200C** ensures a perfect fit, enhancing the overall performance of the motorcycle.
 
-## <a href="https://www.amazon.com/dp/B0067F1KPG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop Harley Davidson D402 Front Tire</a>
+## <a href="https://www.amazon.com/dp/B0067F1KPG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop Harley Davidson D402 Front Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B0067F1KPG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop Harley Davidson D402 Front Tire (Single / MH90-21)" src="https://m.media-amazon.com/images/I/41XKC3iQ9gL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0067F1KPG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop Harley Davidson D402 Front Tire (Single / MH90-21)" src="https://m.media-amazon.com/images/I/41XKC3iQ9gL._SL500_.jpg"/></a>
 
 
 The **Dunlop Harley Davidson D402 Front Tire (Single / MH90-21)** is ideal for motorcycle enthusiasts who own Harley Davidson bikes and seek a reliable, high-performance front tire. This tire is perfect for riders who value durability, superior grip, and a comfortable riding experience on both urban roads and highways. If you want a tire that enhances your bike's handling and safety, this product is an excellent choice.
@@ -173,10 +173,10 @@ The **Dunlop Harley Davidson D402 Front Tire** stands out due to its dedicated d
 
 Additionally, the tire’s dimensions and lightweight nature contribute to improved maneuverability and responsiveness. Riders will notice smoother steering and less vibration, which enhances overall comfort during long rides. The reputation of **Dunlop** as a manufacturer adds an extra layer of trust in the tire’s performance and longevity, making it a worthy investment for serious Harley Davidson riders.
 
-## <a href="https://www.amazon.com/dp/B001KPALEO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop Harley Davidson D402 Whitewall Rear Tire</a>
+## <a href="https://www.amazon.com/dp/B001KPALEO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop Harley Davidson D402 Whitewall Rear Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B001KPALEO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop Harley Davidson D402 Whitewall Rear Tire (Wide Whitewall / MT90-16B)" src="https://m.media-amazon.com/images/I/41z6jhuKJKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B001KPALEO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop Harley Davidson D402 Whitewall Rear Tire (Wide Whitewall / MT90-16B)" src="https://m.media-amazon.com/images/I/41z6jhuKJKL._SL500_.jpg"/></a>
 
 
 The **Dunlop Harley Davidson D402 Whitewall Rear Tire (Wide Whitewall / MT90-16B)** is ideal for motorcycle enthusiasts who own Harley Davidson bikes and seek a blend of classic style and reliable performance. This tire is perfect for riders who prioritize both aesthetics and durability, especially those who want to maintain the iconic look of their Harley with the distinctive wide whitewall design. If you are looking to enhance your bike’s appearance while ensuring safety and longevity on the road, this tire is a great choice.
@@ -198,10 +198,10 @@ The **Dunlop Harley Davidson D402 Whitewall Rear Tire** combines functionality w
 
 Beyond aesthetics, this tire is engineered to deliver a smooth ride with enhanced stability and grip, especially during cornering and braking. Its dimensions are tailored to fit the rear of select Harley Davidson motorcycles, ensuring compatibility and optimal performance. For riders who value both form and function, the Dunlop D402 Whitewall tire offers a compelling combination of vintage style and modern reliability.
 
-## <a href="https://www.amazon.com/dp/B000GZIDPI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop Harley-davidson D402 Rear Motorcycle Tire</a>
+## <a href="https://www.amazon.com/dp/B000GZIDPI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop Harley-davidson D402 Rear Motorcycle Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B000GZIDPI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop Harley-Davidson D402 Rear Motorcycle Tire MU85B-16 (77H) Black Wall - Fits: Harley-Davidson CVO Dyna Wide Glide FXDWGSE 2002" src="https://m.media-amazon.com/images/I/41gZxlOfNeL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000GZIDPI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop Harley-Davidson D402 Rear Motorcycle Tire MU85B-16 (77H) Black Wall - Fits: Harley-Davidson CVO Dyna Wide Glide FXDWGSE 2002" src="https://m.media-amazon.com/images/I/41gZxlOfNeL._SL500_.jpg"/></a>
 
 
 The **Dunlop Harley-Davidson D402 Rear Motorcycle Tire MU85B-16 (77H) Black Wall** is ideal for Harley-Davidson enthusiasts who want a reliable, durable, and high-performance tire specifically designed to fit models like the **Harley-Davidson CVO Dyna Wide Glide FXDWGSE 2002**. This tire is perfect for riders seeking enhanced stability and grip on the road, ensuring a safer and smoother riding experience.
@@ -224,10 +224,10 @@ The **Dunlop Harley-Davidson D402 Rear Motorcycle Tire** features advanced tread
 
 In addition to performance, the tire’s compatibility with select **Harley-Davidson models** means it fits perfectly without requiring modifications. Riders benefit from improved handling and safety, thanks to Dunlop’s dedication to quality and precision engineering. Overall, this tire is a smart investment for serious riders looking for a reliable, stylish, and high-performing rear tire for their Harley-Davidson motorcycle.
 
-## <a href="https://www.amazon.com/dp/B079GLN7GR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">21x3.5 Mammoth Fat Spoke Wheel 00-07 Harley Touring</a>
+## <a href="https://www.amazon.com/dp/B079GLN7GR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">21x3.5 Mammoth Fat Spoke Wheel 00-07 Harley Touring</a>
 
 
-<a href="https://www.amazon.com/dp/B079GLN7GR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="21X3.5 MAMMOTH FAT SPOKE 00-07 WHEEL 120/70-21 WW SHINKO TIRE KIT HARLEY TOURING" src="https://m.media-amazon.com/images/I/51nwSVwYw0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B079GLN7GR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="21X3.5 MAMMOTH FAT SPOKE 00-07 WHEEL 120/70-21 WW SHINKO TIRE KIT HARLEY TOURING" src="https://m.media-amazon.com/images/I/51nwSVwYw0L._SL500_.jpg"/></a>
 
 
 The **21X3.5 Mammoth Fat Spoke 00-07 Wheel 120/70-21 WW Shinko Tire Kit Harley Touring** is ideal for motorcycle enthusiasts who own Harley Touring models from 2000 to 2007 and seek a reliable, durable, and high-performance wheel and tire upgrade. This kit is perfect for riders who want to enhance their bike’s aesthetics while ensuring robust performance on various terrains.
@@ -250,10 +250,10 @@ The **21X3.5 Mammoth Fat Spoke wheel** comes with a rugged fat spoke design that
 
 Crafted by **DKLECHUI**, this wheel and tire kit balances weight and durability with a total weight of **45.0 pounds**. The sturdy construction ensures that riders experience less vibration and a smoother ride. While the kit is tailored for Harley Touring models from 2000 to 2007, it delivers a significant upgrade in both aesthetics and performance, making it a great investment for riders aiming to maintain or restore their motorcycle’s handling capabilities.
 
-## <a href="https://www.amazon.com/dp/B001CD6U5I?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop Harley Davidson D401 Rear Tire</a>
+## <a href="https://www.amazon.com/dp/B001CD6U5I?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop Harley Davidson D401 Rear Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B001CD6U5I?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop Harley Davidson D401 Rear Tire (Single / 130/90B-16)" src="https://m.media-amazon.com/images/I/41zkhCxBerL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B001CD6U5I?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop Harley Davidson D401 Rear Tire (Single / 130/90B-16)" src="https://m.media-amazon.com/images/I/41zkhCxBerL._SL500_.jpg"/></a>
 
 
 The **Dunlop Harley Davidson D401 Rear Tire** is an excellent choice for motorcycle enthusiasts who prioritize performance and reliability on the road. Ideal for **Harley Davidson** riders seeking a tire that combines durability with enhanced handling capabilities, this tire is crafted to meet the demands of long journeys and challenging terrains. If you're a rider looking to maintain optimal performance while ensuring safety, this tire is designed with you in mind.

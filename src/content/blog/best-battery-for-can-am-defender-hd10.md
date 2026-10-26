@@ -23,10 +23,10 @@ AGM batteries require little maintenance and deliver steady power for long rides
 
 
 
-## <a href="https://www.amazon.com/dp/B07WC35FK8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Utv Battery</a>
+## <a href="https://www.amazon.com/dp/B07WC35FK8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Utv Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B07WC35FK8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="UTV Battery; RG30L-BS 500+ CCA's; Can-Am (2016, 2017, 2018, 2019) Defender MAX HD10 / Defender MAX HD10 CAB/Defender MAX HD10 XT; Part# 66010-97A, 66010-97B, 66010-97C, BTX30L, B30L-B, CB30L-B" src="https://m.media-amazon.com/images/I/41ZrD0KmCxL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07WC35FK8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="UTV Battery; RG30L-BS 500+ CCA's; Can-Am (2016, 2017, 2018, 2019) Defender MAX HD10 / Defender MAX HD10 CAB/Defender MAX HD10 XT; Part# 66010-97A, 66010-97B, 66010-97C, BTX30L, B30L-B, CB30L-B" src="https://m.media-amazon.com/images/I/41ZrD0KmCxL._SL500_.jpg"/></a>
 
 
 The **UTV Battery RG30L-BS** is ideal for owners of **Can-Am Defender MAX HD10** models from **2016 to 2019** who need a reliable power source to ensure consistent vehicle performance. Whether you use your UTV for work, recreation, or off-road adventures, this battery provides the necessary power to keep your vehicle running smoothly in demanding conditions.
@@ -48,10 +48,10 @@ The **Renegade UTV Battery RG30L-BS** is engineered to deliver consistent and re
 
 Additionally, the battery’s robust construction and trusted brand reputation provide users with peace of mind regarding longevity and durability. While it is slightly heavier than some alternatives, its weight contributes to a solid and stable power source that withstands vibrations and shocks common in rough terrain. Overall, this battery offers a balance of power, reliability, and fitment that enhances the operational efficiency of your UTV for both everyday use and challenging adventures.
 
-## <a href="https://www.amazon.com/dp/B0FH2V1VGG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ajc Battery Compatible With Can-am Defender Pro Hd10 Dps 1000cc Utv Battery</a>
+## <a href="https://www.amazon.com/dp/B0FH2V1VGG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ajc Battery Compatible With Can-am Defender Pro Hd10 Dps 1000cc Utv Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B0FH2V1VGG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="AJC Battery Compatible with Can-Am Defender PRO HD10 DPS 1000CC UTV Battery (2023)" src="https://m.media-amazon.com/images/I/415mepjV6jL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FH2V1VGG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="AJC Battery Compatible with Can-Am Defender PRO HD10 DPS 1000CC UTV Battery (2023)" src="https://m.media-amazon.com/images/I/415mepjV6jL._SL500_.jpg"/></a>
 
 
 The **AJC Battery Compatible with Can-Am Defender PRO HD10 DPS 1000CC UTV Battery (2023)** is an excellent choice for owners of the Can-Am Defender PRO HD10 who need a reliable and high-performance replacement battery. Ideal for outdoor enthusiasts, farmers, and professionals using their UTVs in demanding environments, this battery ensures consistent power delivery and durability for extended use. If you rely on your UTV for heavy-duty tasks or off-road adventures, this battery is designed to meet your needs.
@@ -73,10 +73,10 @@ The **AJC Battery** offers a perfect balance of power and portability, tailored 
 
 Manufactured by **AJC Battery**, this battery emphasizes both quality and longevity. Users benefit from its robust construction that withstands vibrations and shocks commonly encountered during off-road rides. Overall, this battery supports your UTV’s performance, ensuring you can focus on your work or adventure without worrying about power failures.
 
-## <a href="https://www.amazon.com/dp/B0CYR1N8QX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ajc Battery Compatible With Can-am Defender Max Hd10 Xt Cab Utv Battery</a>
+## <a href="https://www.amazon.com/dp/B0CYR1N8QX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ajc Battery Compatible With Can-am Defender Max Hd10 Xt Cab Utv Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B0CYR1N8QX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="AJC Battery Compatible with Can-Am Defender MAX HD10 XT CAB 976CC UTV Battery (2020)" src="https://m.media-amazon.com/images/I/41CCD22ouhL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CYR1N8QX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="AJC Battery Compatible with Can-Am Defender MAX HD10 XT CAB 976CC UTV Battery (2020)" src="https://m.media-amazon.com/images/I/41CCD22ouhL._SL500_.jpg"/></a>
 
 
 The **AJC Battery Compatible with Can-Am Defender MAX HD10 XT CAB 976CC UTV Battery (2020)** is ideal for off-road enthusiasts and UTV owners who require a reliable and durable power source. If you own a **Can-Am Defender MAX HD10 XT CAB 976CC UTV** and need a high-performance battery that delivers consistent power for demanding outdoor adventures, this product is designed specifically to meet those needs. It is perfect for users who prioritize long-lasting energy and dependable starts in rugged environments.
@@ -98,10 +98,10 @@ The **AJC Battery** is engineered to meet the specific power requirements of the
 
 With this battery, users benefit from reliable engine starts and consistent performance, reducing downtime during outdoor adventures. The brand’s focus on quality manufacturing processes means that this battery will maintain optimal power output over time, enhancing the overall experience of UTV ownership. Whether you’re working on rugged trails or enjoying recreational rides, this battery provides peace of mind with dependable energy delivery.
 
-## <a href="https://www.amazon.com/dp/B07W954SW6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Utv Battery Rg30l-ws</a>
+## <a href="https://www.amazon.com/dp/B07W954SW6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Utv Battery Rg30l-ws</a>
 
 
-<a href="https://www.amazon.com/dp/B07W954SW6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="UTV Battery; RG30L-WS 600+ CCA's; Can-Am (2016, 2017, 2018, 2019) Defender Max HD10 / Defender XT CAB/Defender Xt HD10; Part# 66010-97A, 66010-97B, 66010-97C, BTX30L, B30L-B, CB30L-B" src="https://m.media-amazon.com/images/I/4125RpMbjiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07W954SW6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="UTV Battery; RG30L-WS 600+ CCA's; Can-Am (2016, 2017, 2018, 2019) Defender Max HD10 / Defender XT CAB/Defender Xt HD10; Part# 66010-97A, 66010-97B, 66010-97C, BTX30L, B30L-B, CB30L-B" src="https://m.media-amazon.com/images/I/4125RpMbjiL._SL500_.jpg"/></a>
 
 
 The **UTV Battery; RG30L-WS 600+ CCA's** is the perfect choice for owners of the **Can-Am Defender Max HD10**, **Defender XT CAB**, and **Defender Xt HD10** models from **2016 to 2019**. If you're a rider who demands reliable performance and longevity from your off-road vehicle, this battery is engineered to meet those needs. Whether you're tackling rugged terrains or enjoying a casual ride, this battery offers consistent power delivery to keep your adventures uninterrupted.
@@ -121,10 +121,10 @@ The **RG30L-WS** battery is engineered to provide superior **performance** and *
 
 Another significant feature of this battery is its precise fit for the **Can-Am Defender** models from **2016 to 2019**. This ensures that installation is straightforward and hassle-free, a benefit for those who prefer a DIY approach. The compatibility also means that users can be confident in the performance and safety of the battery in their vehicle, as it is specifically designed for these models. These features make the **RG30L-WS** a smart investment for any **Can-Am Defender** owner seeking a dependable power solution.
 
-## <a href="https://www.amazon.com/dp/B0B5YH3YPS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Can-am Defender 2nd Battery Kit</a>
+## <a href="https://www.amazon.com/dp/B0B5YH3YPS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Can-am Defender 2nd Battery Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0B5YH3YPS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Can-Am Defender 2nd Battery Kit, UTV Stereo Second Battery Kit w/ 1200 ca AGM Battery, Mount, Isolator, Wires &amp; Hardware" src="https://m.media-amazon.com/images/I/41V8u2uLESL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B5YH3YPS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Can-Am Defender 2nd Battery Kit, UTV Stereo Second Battery Kit w/ 1200 ca AGM Battery, Mount, Isolator, Wires &amp; Hardware" src="https://m.media-amazon.com/images/I/41V8u2uLESL._SL500_.jpg"/></a>
 
 
 The **Can-Am Defender 2nd Battery Kit** is perfect for **UTV owners** who require additional power capacity for their accessories and electronics. Ideal for those who use their vehicles for extended outdoor adventures, work in remote locations, or run multiple electronic devices, this kit ensures reliable and uninterrupted power supply.
@@ -145,10 +145,10 @@ The **Can-Am Defender 2nd Battery Kit** features a robust **1200 ca AGM battery*
 
 With this kit, users benefit from increased battery capacity without sacrificing safety or convenience. The **AGM battery technology** ensures maintenance-free use and superior resistance to vibration and shocks, which is crucial for off-road environments. Ultimately, this kit empowers UTV enthusiasts to enjoy longer trips and more functionality from their vehicles without worrying about power limitations.
 
-## <a href="https://www.amazon.com/dp/B0CNT6XCG4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Weize Lithium Ytx30l-bs Motorcycle Battery</a>
+## <a href="https://www.amazon.com/dp/B0CNT6XCG4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Weize Lithium Ytx30l-bs Motorcycle Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B0CNT6XCG4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Weize Lithium YTX30L-BS, 700A Lithium LiFePO4 YTX30L Motorcycle Battery, 12V 10AH ATV, UTV, Jet Ski, Scooter, Lawn Mower, Tractor, Generator Battery, Built-in Smart BMS" src="https://m.media-amazon.com/images/I/511AWHoU2kL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CNT6XCG4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Weize Lithium YTX30L-BS, 700A Lithium LiFePO4 YTX30L Motorcycle Battery, 12V 10AH ATV, UTV, Jet Ski, Scooter, Lawn Mower, Tractor, Generator Battery, Built-in Smart BMS" src="https://m.media-amazon.com/images/I/511AWHoU2kL._SL500_.jpg"/></a>
 
 
 The **Weize Lithium YTX30L-BS** battery is ideal for individuals seeking a reliable, lightweight, and long-lasting power source for their motorcycles, ATVs, UTVs, jet skis, scooters, lawn mowers, tractors, or generators. This battery is perfect for riders and outdoor equipment users who demand consistent performance, easy maintenance, and enhanced durability in a compact form.
@@ -170,10 +170,10 @@ The **Weize Lithium YTX30L-BS** features advanced **LiFePO4 technology**, which 
 
 With its compact size and robust design, this battery fits a variety of applications from motorcycles to generators, providing versatility for users with multiple devices. The strong **700A starting current** guarantees quick and reliable starts even in cold weather. Overall, the **Weize Lithium YTX30L-BS** offers a blend of power, durability, and advanced technology, making it a smart investment for anyone looking to upgrade their power source.
 
-## <a href="https://www.amazon.com/dp/B0CYRK35X5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ajc Battery Compatible With Can-am Defender Hd10 Utv Battery</a>
+## <a href="https://www.amazon.com/dp/B0CYRK35X5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ajc Battery Compatible With Can-am Defender Hd10 Utv Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B0CYRK35X5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="AJC Battery Compatible with Can-Am Defender HD10 UTV Battery (2016-2018)" src="https://m.media-amazon.com/images/I/41CCD22ouhL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CYRK35X5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="AJC Battery Compatible with Can-Am Defender HD10 UTV Battery (2016-2018)" src="https://m.media-amazon.com/images/I/41CCD22ouhL._SL500_.jpg"/></a>
 
 
 The **AJC Battery Compatible with Can-Am Defender HD10 UTV Battery (2016-2018)** is ideal for UTV owners who require a reliable and powerful battery replacement. If you own a Can-Am Defender HD10 model from 2016 to 2018 and want to ensure consistent performance, this battery is designed to meet your needs with its robust specifications and compatibility.
@@ -195,10 +195,10 @@ The **AJC Battery** offers a perfect blend of size and power, making it an excel
 
 Additionally, being manufactured by **AJC Battery**, a trusted brand in the industry, this battery guarantees high-quality standards and dependable performance. Users benefit from a consistent and powerful energy source that supports smooth engine starts and reduces downtime, critical for outdoor adventures or work tasks. Investing in this battery means securing your UTV’s operational reliability for years to come.
 
-## <a href="https://www.amazon.com/dp/B0DY589HYP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Agm Powersports Battery</a>
+## <a href="https://www.amazon.com/dp/B0DY589HYP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Agm Powersports Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B0DY589HYP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="AGM Powersports Battery – Maintenance-Free For AGM Battery for Can-Am Defender HD10 2017-2023 Defender HD8 2017-2021 Model-VN51-ZT34863" src="https://m.media-amazon.com/images/I/412nj7OxaqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DY589HYP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="AGM Powersports Battery – Maintenance-Free For AGM Battery for Can-Am Defender HD10 2017-2023 Defender HD8 2017-2021 Model-VN51-ZT34863" src="https://m.media-amazon.com/images/I/412nj7OxaqL._SL500_.jpg"/></a>
 
 
 The **AGM Powersports Battery** is ideal for owners of the **Can-Am Defender HD10 (2017-2023)** and **Defender HD8 (2017-2021)** models who seek a reliable, maintenance-free power source. This battery is perfect for outdoor enthusiasts and professionals who demand consistent performance from their vehicles without the hassle of regular upkeep.
@@ -220,10 +220,10 @@ This **AGM Powersports Battery** utilizes advanced Absorbent Glass Mat (AGM) tec
 
 Additionally, this battery’s compatibility with **Can-Am Defender HD10 (2017-2023)** and **HD8 (2017-2021) models** ensures optimal power delivery tailored to these vehicles’ specifications. The durable black casing contributes not only to its sleek appearance but also to its resilience against environmental factors. Overall, this battery offers a hassle-free, dependable power solution that enhances the performance and reliability of your Can-Am Defender.
 
-## <a href="https://www.amazon.com/dp/B0FH2VFY9M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ajc Battery Compatible With Can-am Defender Dps Hd10 1000cc Utv Battery</a>
+## <a href="https://www.amazon.com/dp/B0FH2VFY9M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ajc Battery Compatible With Can-am Defender Dps Hd10 1000cc Utv Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B0FH2VFY9M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="AJC Battery Compatible with Can-Am Defender DPS HD10 1000CC UTV Battery (2022-2023)" src="https://m.media-amazon.com/images/I/415mepjV6jL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FH2VFY9M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="AJC Battery Compatible with Can-Am Defender DPS HD10 1000CC UTV Battery (2022-2023)" src="https://m.media-amazon.com/images/I/415mepjV6jL._SL500_.jpg"/></a>
 
 
 The **AJC Battery Compatible with Can-Am Defender DPS HD10 1000CC UTV Battery (2022-2023)** is ideal for UTV owners who demand reliable power and durability. If you own a **Can-Am Defender DPS HD10 1000CC** model from 2022 or 2023 and need a dependable replacement battery, this product is designed specifically for you. It is perfect for outdoor enthusiasts, farmers, and professionals who rely on their UTV for tough terrain and long hours of operation.
@@ -245,10 +245,10 @@ The **AJC Battery** boasts a compact and lightweight design, making it an excell
 
 Additionally, the battery's robust construction by **AJC Battery** ensures durability and long life, even under harsh conditions. Its precise dimensions and weight also contribute to improved vehicle balance and handling. Overall, this battery offers a blend of convenience, reliability, and performance, making it a smart investment for anyone looking to maintain or upgrade their UTV's power source.
 
-## <a href="https://www.amazon.com/dp/B0CFPZ9P5T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Utv Stereo Platinum Series Agm 925 Battery</a>
+## <a href="https://www.amazon.com/dp/B0CFPZ9P5T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Utv Stereo Platinum Series Agm 925 Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B0CFPZ9P5T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="UTV Stereo Platinum Series AGM 925 Battery - for Polaris RZR Replacement Battery and Can-am Defender Direct Replacement" src="https://m.media-amazon.com/images/I/21PPPF+zCNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CFPZ9P5T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="UTV Stereo Platinum Series AGM 925 Battery - for Polaris RZR Replacement Battery and Can-am Defender Direct Replacement" src="https://m.media-amazon.com/images/I/21PPPF+zCNL._SL500_.jpg"/></a>
 
 
 The **UTV Stereo Platinum Series AGM 925 Battery** is ideal for outdoor enthusiasts and UTV owners who need a reliable and durable replacement battery for their **Polaris RZR** or **Can-am Defender**. If you prioritize long-lasting power and a maintenance-free experience, this battery is designed to deliver consistent performance in rugged environments. It is perfect for those who want to avoid frequent battery replacements and enjoy uninterrupted adventures.

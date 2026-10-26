@@ -23,10 +23,10 @@ Roof racks can also work but need proper crossbars that fit Mazda 3’s fixed po
 
 
 
-## <a href="https://www.amazon.com/dp/B000ELQNYM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Allen Deluxe 3-bike Trunk Mount Rack</a>
+## <a href="https://www.amazon.com/dp/B000ELQNYM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Allen Deluxe 3-bike Trunk Mount Rack</a>
 
 
-<a href="https://www.amazon.com/dp/B000ELQNYM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ALLEN Deluxe 3-Bike Trunk Mount Rack, Blk/ Silver" src="https://m.media-amazon.com/images/I/41X8MUUaTyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000ELQNYM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ALLEN Deluxe 3-Bike Trunk Mount Rack, Blk/ Silver" src="https://m.media-amazon.com/images/I/41X8MUUaTyL._SL500_.jpg"/></a>
 
 
 The **ALLEN Deluxe 3-Bike Trunk Mount Rack** is ideal for outdoor enthusiasts and cyclists who need a reliable and easy-to-use bike carrier for their vehicle. If you frequently travel with multiple bikes and want a secure, space-saving solution, this rack is perfect for you. Its design suits those who own sedans, hatchbacks, or SUVs and are looking for a versatile and durable trunk-mounted bike rack.
@@ -49,10 +49,10 @@ The **ALLEN Deluxe 3-Bike Trunk Mount Rack** features a sturdy frame made by **A
 
 Additionally, the rack’s compact size means it won’t obstruct rear visibility or interfere with trunk access, making it practical for everyday use. The weather-resistant black and silver finish enhances durability against the elements, ensuring that the rack maintains its functionality and appearance over time. For cyclists who want a dependable and efficient way to transport multiple bikes, this trunk mount rack is a highly beneficial accessory.
 
-## <a href="https://www.amazon.com/dp/B07QLB2GRD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Saris Bones Ex 3-bike Trunk Rack</a>
+## <a href="https://www.amazon.com/dp/B07QLB2GRD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Saris Bones Ex 3-bike Trunk Rack</a>
 
 
-<a href="https://www.amazon.com/dp/B07QLB2GRD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Saris Bones EX 3-Bike Trunk Rack Bicycle Carrier, Durable, Rust-Free, Anti-Sway Straps, Fits Most Vehicles, Made in USA, Arc-Based Design, 100% Recyclable Materials" src="https://m.media-amazon.com/images/I/31hvyAscx3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07QLB2GRD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Saris Bones EX 3-Bike Trunk Rack Bicycle Carrier, Durable, Rust-Free, Anti-Sway Straps, Fits Most Vehicles, Made in USA, Arc-Based Design, 100% Recyclable Materials" src="https://m.media-amazon.com/images/I/31hvyAscx3L._SL500_.jpg"/></a>
 
 
 The **Saris Bones EX 3-Bike Trunk Rack Bicycle Carrier** is ideal for avid cyclists who need a reliable and sturdy solution for transporting up to three bikes. Perfect for outdoor enthusiasts, families, or anyone who frequently travels with their bicycles, this carrier fits most vehicles and offers a durable, rust-free design made in the USA. If you are looking for a hassle-free way to carry multiple bikes securely without damaging your vehicle, this trunk rack is an excellent choice.
@@ -74,10 +74,10 @@ The **Saris Bones EX 3-Bike Trunk Rack** boasts an innovative **arc-based design
 
 Beyond its practical features, this bike carrier emphasizes durability and environmental responsibility. Constructed from **rust-free materials**, it withstands the elements and maintains its sleek black finish over time. Its **100% recyclable materials** underline Saris’ commitment to sustainability. The rack’s compatibility with most vehicles and straightforward installation process make it user-friendly, supporting hassle-free transport for cycling adventures.
 
-## <a href="https://www.amazon.com/dp/B0171A6MOY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Yakima Fullback 3</a>
+## <a href="https://www.amazon.com/dp/B0171A6MOY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Yakima Fullback 3</a>
 
 
-<a href="https://www.amazon.com/dp/B0171A6MOY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Yakima 3-Bike Premium Trunk Mount Carrier, Bike Rack w/ Locks &amp; Bottle Opener, FullBack 3" src="https://m.media-amazon.com/images/I/41xQZP8rU7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0171A6MOY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Yakima 3-Bike Premium Trunk Mount Carrier, Bike Rack w/ Locks &amp; Bottle Opener, FullBack 3" src="https://m.media-amazon.com/images/I/41xQZP8rU7L._SL500_.jpg"/></a>
 
 
 The **Yakima 3-Bike Premium Trunk Mount Carrier**, FullBack 3, is ideal for cycling enthusiasts and families who need a reliable and secure way to transport up to three bikes. If you own a car and frequently take your bikes on road trips, weekend rides, or vacations, this **bike rack** offers a convenient and sturdy solution that fits most vehicles with trunks or rear hatches. It is perfect for those seeking an easy-to-install carrier with added security features.
@@ -101,10 +101,10 @@ The **Yakima FullBack 3** trunk mount carrier is designed with user convenience 
 
 Beyond its functional features, this **bike rack** also adds value through its thoughtful extras, such as the integrated **bottle opener**, ideal for post-ride refreshments. Its compact size and lightweight design make it easy to install and remove, saving time and effort for users. Overall, the Yakima 3-Bike Premium Trunk Mount Carrier combines practicality, security, and durability, making it a top choice for those looking to transport their bikes safely and efficiently.
 
-## <a href="https://www.amazon.com/dp/B00TRTSGBA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Allen Sports Deluxe Trunk Mount 3-bike Carrier</a>
+## <a href="https://www.amazon.com/dp/B00TRTSGBA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Allen Sports Deluxe Trunk Mount 3-bike Carrier</a>
 
 
-<a href="https://www.amazon.com/dp/B00TRTSGBA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Allen Sports Deluxe Trunk Mount 3-Bike Carrier, Model 103DN-R, Black" src="https://m.media-amazon.com/images/I/41xyU29ZQ3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00TRTSGBA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Allen Sports Deluxe Trunk Mount 3-Bike Carrier, Model 103DN-R, Black" src="https://m.media-amazon.com/images/I/41xyU29ZQ3L._SL500_.jpg"/></a>
 
 
 The **Allen Sports Deluxe Trunk Mount 3-Bike Carrier, Model 103DN-R**, is ideal for cycling enthusiasts who want a reliable and convenient way to transport up to three bikes on the back of their vehicle. This carrier is perfect for families, weekend riders, or anyone who frequently travels with multiple bicycles and prefers a trunk-mounted solution that is easy to install and remove.
@@ -127,10 +127,10 @@ The **Allen Sports Deluxe Trunk Mount 3-Bike Carrier** features a robust and adj
 
 With dimensions measuring 4.5 inches in height, 36 inches in width, and 72 inches in length, this carrier offers an ideal balance between capacity and compactness. It supports up to three bicycles, which is perfect for families or groups of friends heading out on cycling adventures. The combination of convenience, protection, and style makes this model a practical choice for anyone seeking a dependable bike transport solution.
 
-## <a href="https://www.amazon.com/dp/B0DR25YV65?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Erkul Heavy Duty Roof Rack Cross Bars For Mazda 3 Hatchback</a>
+## <a href="https://www.amazon.com/dp/B0DR25YV65?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Erkul Heavy Duty Roof Rack Cross Bars For Mazda 3 Hatchback</a>
 
 
-<a href="https://www.amazon.com/dp/B0DR25YV65?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Erkul Heavy Duty 220 lbs Roof Rack Cross Bars for Mazda 3 Hatchback 2010-2013 | Aluminum Crossbars with Anti Theft Lock for Rooftop | Compatible with Fixed Points Roofs - Silver" src="https://m.media-amazon.com/images/I/41u7j00UBcL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DR25YV65?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Erkul Heavy Duty 220 lbs Roof Rack Cross Bars for Mazda 3 Hatchback 2010-2013 | Aluminum Crossbars with Anti Theft Lock for Rooftop | Compatible with Fixed Points Roofs - Silver" src="https://m.media-amazon.com/images/I/41u7j00UBcL._SL500_.jpg"/></a>
 
 
 The **Erkul Heavy Duty 220 lbs Roof Rack Cross Bars** are an ideal choice for **Mazda 3 Hatchback 2010-2013** owners who frequently travel and need additional storage space. These crossbars are perfect for adventure enthusiasts who enjoy activities like biking, kayaking, or camping, and require a reliable solution to carry their gear.
@@ -151,10 +151,10 @@ The **Erkul Heavy Duty Roof Rack Cross Bars** offer a robust solution for those 
 
 Additionally, the crossbars are specifically designed for **fixed points roofs**, providing a seamless fit for **Mazda 3 Hatchback 2010-2013** models. While installation might require some precision to reduce wind noise at higher speeds, the benefits of increased storage and the convenience of carrying additional gear make these crossbars an excellent investment for outdoor enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B00C45HMBY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Allen Sports Premier 3-bike Trunk Rack</a>
+## <a href="https://www.amazon.com/dp/B00C45HMBY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Allen Sports Premier 3-bike Trunk Rack</a>
 
 
-<a href="https://www.amazon.com/dp/B00C45HMBY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Allen Sports Premier 3-Bike Trunk Rack, Model S103 (Black and red)" src="https://m.media-amazon.com/images/I/41renOJ-bIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00C45HMBY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Allen Sports Premier 3-Bike Trunk Rack, Model S103 (Black and red)" src="https://m.media-amazon.com/images/I/41renOJ-bIL._SL500_.jpg"/></a>
 
 
 The **Allen Sports Premier 3-Bike Trunk Rack, Model S103** is ideal for cyclists who need a reliable and convenient way to transport up to three bikes on their vehicle. Perfect for weekend warriors, family outings, or casual riders, this rack suits those looking for an easy-to-install, sturdy solution without sacrificing vehicle accessibility or bike safety.
@@ -177,10 +177,10 @@ The **Allen Sports Premier 3-Bike Trunk Rack** boasts a sturdy steel constructio
 
 Users benefit from the rack's compact size and simple installation process, which allows quick setup and removal without the need for special tools. The rack's ability to carry up to three bikes makes it a practical choice for families or groups of friends heading out for cycling adventures. Overall, the Allen Sports Premier 3-Bike Trunk Rack combines convenience, strength, and design to offer a dependable solution for bike transport.
 
-## <a href="https://www.amazon.com/dp/B0DCGDYQLR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Foldable Car Trunk Bike Rack</a>
+## <a href="https://www.amazon.com/dp/B0DCGDYQLR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Foldable Car Trunk Bike Rack</a>
 
 
-<a href="https://www.amazon.com/dp/B0DCGDYQLR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Foldable Car Trunk Bike Rack, Mounts 3 Bicycles, Durable Bicycle Rack Carrier for Bikes, Hatchbacks, Sedans,SUV, Vans" src="https://m.media-amazon.com/images/I/41WUWMxVt4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DCGDYQLR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Foldable Car Trunk Bike Rack, Mounts 3 Bicycles, Durable Bicycle Rack Carrier for Bikes, Hatchbacks, Sedans,SUV, Vans" src="https://m.media-amazon.com/images/I/41WUWMxVt4L._SL500_.jpg"/></a>
 
 
 The **Foldable Car Trunk Bike Rack** is ideal for cyclists who need a reliable and convenient way to transport up to three bicycles. Whether you own a **hatchback**, **sedan**, **SUV**, or **van**, this durable bicycle rack carrier is perfect for weekend riders, families, and outdoor enthusiasts looking for a versatile and easy-to-use bike transport solution.
@@ -204,10 +204,10 @@ The **BENTFL Foldable Car Trunk Bike Rack** is designed with versatility and con
 
 Additionally, the rack’s secure mounting system minimizes bike movement during transit, reducing the risk of damage to both the bicycles and the vehicle. Its compatibility with hatchbacks, sedans, SUVs, and vans makes it an excellent choice for diverse car owners seeking a dependable bike transportation method. The color options, black and red, not only enhance the aesthetic appeal but also increase visibility, contributing to safer road travel. Overall, this bike rack combines practicality with durability to meet the needs of avid cyclists and families alike.
 
-## <a href="https://www.amazon.com/dp/B00152VYZC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Thule Passage 3 Bike Trunk Mount Carrier</a>
+## <a href="https://www.amazon.com/dp/B00152VYZC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Thule Passage 3 Bike Trunk Mount Carrier</a>
 
 
-<a href="https://www.amazon.com/dp/B00152VYZC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Thule 911XT Passage 3 Bike Trunk Mount Carrier,Black" src="https://m.media-amazon.com/images/I/416GOr69K9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00152VYZC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Thule 911XT Passage 3 Bike Trunk Mount Carrier,Black" src="https://m.media-amazon.com/images/I/416GOr69K9L._SL500_.jpg"/></a>
 
 
 The **Thule 911XT Passage 3 Bike Trunk Mount Carrier** in **Black** is ideal for outdoor enthusiasts and casual cyclists who need a reliable and easy-to-use solution for transporting up to three bikes. If you own a vehicle with a trunk or hatchback and want a secure way to carry your bikes without investing in a roof rack or hitch, this carrier is perfect for you.
@@ -230,10 +230,10 @@ The **Thule 911XT Passage 3** offers a robust trunk-mounted bike carrier solutio
 
 This carrier’s durable black finish and quality materials offer long-lasting performance, even in varying weather conditions. The included straps and hooks secure the carrier firmly to the trunk, enhancing safety during travel. For cyclists who want a hassle-free, cost-effective way to transport their bikes without permanent vehicle modifications, the **Thule Passage 3** is an excellent choice that balances convenience with reliability.
 
-## <a href="https://www.amazon.com/dp/B00AW6XL8K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Saris Bones 3-bike Trunk Rack</a>
+## <a href="https://www.amazon.com/dp/B00AW6XL8K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Saris Bones 3-bike Trunk Rack</a>
 
 
-<a href="https://www.amazon.com/dp/B00AW6XL8K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Saris Bones 3-Bike Trunk Rack Bicycle Carrier, Durable, Rust-Free, Anti-Sway Straps, Fits Most Vehicles, Made in USA, Arc-Based Design, 100% Recyclable Materials" src="https://m.media-amazon.com/images/I/419pX-+AF0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00AW6XL8K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Saris Bones 3-Bike Trunk Rack Bicycle Carrier, Durable, Rust-Free, Anti-Sway Straps, Fits Most Vehicles, Made in USA, Arc-Based Design, 100% Recyclable Materials" src="https://m.media-amazon.com/images/I/419pX-+AF0L._SL500_.jpg"/></a>
 
 
 The **Saris Bones 3-Bike Trunk Rack Bicycle Carrier** is ideal for cycling enthusiasts who need a reliable and durable way to transport up to three bicycles. Whether you are a casual rider, a weekend adventurer, or a family looking to bring multiple bikes along for a trip, this bike rack suits most vehicles and offers a secure fit. Its rust-free construction and anti-sway straps make it perfect for those who prioritize longevity and bike protection during transit.
@@ -256,10 +256,10 @@ The **Saris Bones 3-Bike Trunk Rack** features an innovative **arc-based design*
 
 Beyond its functionality, the rack’s compatibility with most vehicles means fewer limitations when planning trips. Its environmentally conscious design, using **100% recyclable materials**, appeals to eco-aware users who want to reduce their footprint. Overall, this bike carrier combines practicality, durability, and sustainability, making it a smart investment for anyone looking to transport bikes safely and efficiently.
 
-## <a href="https://www.amazon.com/dp/B0B7XWPL78?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Omac Roof Rack Cross Bars For Mazda 3 Hatchback 2010-2013</a>
+## <a href="https://www.amazon.com/dp/B0B7XWPL78?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Omac Roof Rack Cross Bars For Mazda 3 Hatchback 2010-2013</a>
 
 
-<a href="https://www.amazon.com/dp/B0B7XWPL78?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OMAC Roof Rack Cross Bars for Mazda 3 Hatchback 2010-2013 Lockable 165Lbs Aluminium Black 2Pcs fits Fixpoints Cargo Carriers Kayak Canoe Bike Snowboard" src="https://m.media-amazon.com/images/I/41sODjAod2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B7XWPL78?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OMAC Roof Rack Cross Bars for Mazda 3 Hatchback 2010-2013 Lockable 165Lbs Aluminium Black 2Pcs fits Fixpoints Cargo Carriers Kayak Canoe Bike Snowboard" src="https://m.media-amazon.com/images/I/41sODjAod2L._SL500_.jpg"/></a>
 
 
 The **OMAC Roof Rack Cross Bars** are perfect for owners of the **Mazda 3 Hatchback** from **2010-2013** who frequently find themselves in need of additional cargo space. Ideal customers are outdoor enthusiasts who enjoy kayaking, canoeing, biking, or snowboarding and need a reliable way to transport their gear. These roof rack cross bars are also suitable for families and individuals who often travel and require extra storage capacity for their luggage or camping equipment.

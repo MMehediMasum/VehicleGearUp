@@ -23,10 +23,10 @@ Popular options include MAS Performance, ACCEL, and STEINBRÜCKE, all known for 
 
 
 
-## <a href="https://www.amazon.com/dp/B0C3Q7VYTF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hei Distributor 65k Coil With Spark Plug Wires 9000rpm</a>
+## <a href="https://www.amazon.com/dp/B0C3Q7VYTF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hei Distributor 65k Coil With Spark Plug Wires 9000rpm</a>
 
 
-<a href="https://www.amazon.com/dp/B0C3Q7VYTF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="HEI Distributor 65K Coil with Spark Plug Wires 9000RPM, HEI Distributor for Chevy 350 Replacement for SBC BBC GM 283 305 307 327 400 454 Small/Big Blocks V8" src="https://m.media-amazon.com/images/I/51-BUIF5UuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C3Q7VYTF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="HEI Distributor 65K Coil with Spark Plug Wires 9000RPM, HEI Distributor for Chevy 350 Replacement for SBC BBC GM 283 305 307 327 400 454 Small/Big Blocks V8" src="https://m.media-amazon.com/images/I/51-BUIF5UuL._SL500_.jpg"/></a>
 
 
 The **HEI Distributor 65K Coil with Spark Plug Wires 9000RPM** is ideal for automotive enthusiasts and mechanics looking to upgrade or replace the ignition system in their classic Chevy engines. Specifically designed for **Chevy 350** and compatible with a range of small and big block V8 engines such as SBC, BBC, GM 283, 305, 307, 327, 400, and 454, this kit is perfect for those seeking reliable performance and enhanced ignition capabilities. If you own any of these engines and want a dependable distributor upgrade, this product is tailored for you.
@@ -48,10 +48,10 @@ The **HEI Distributor 65K Coil** kit by Voltstorm, manufactured by ZhanDe, is a 
 
 Built to endure high RPMs up to 9000, this distributor kit is engineered for performance enthusiasts who push their engines to the limit. Its design supports a variety of Chevy V8 engines, both small and big blocks, offering versatility for different applications. The durable build quality guarantees that this distributor can withstand the rigors of daily driving or high-performance use, providing users with reliable ignition and smoother engine operation.
 
-## <a href="https://www.amazon.com/dp/B08L73LYQF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mas Performance Hei Distributor With Red Cap And Wiring Kit</a>
+## <a href="https://www.amazon.com/dp/B08L73LYQF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mas Performance Hei Distributor With Red Cap And Wiring Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B08L73LYQF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MAS Performance HEI Distributor with Red Cap and Wiring Kit including 65K Coil Compatible with Chevy 305-454 Chevrolet C10 GMC SBC BBC 350-400 4.3L 5.0L 5.7L 6.6L 7.4L" src="https://m.media-amazon.com/images/I/41WT42SN44L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08L73LYQF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MAS Performance HEI Distributor with Red Cap and Wiring Kit including 65K Coil Compatible with Chevy 305-454 Chevrolet C10 GMC SBC BBC 350-400 4.3L 5.0L 5.7L 6.6L 7.4L" src="https://m.media-amazon.com/images/I/41WT42SN44L._SL500_.jpg"/></a>
 
 
 The **MAS Performance HEI Distributor with Red Cap and Wiring Kit including 65K Coil** is an excellent choice for automotive enthusiasts and mechanics looking to upgrade or replace the ignition system in classic Chevrolet and GMC engines. Ideal for those who own or work on Chevy 305-454, Chevrolet C10, GMC SBC BBC 350-400, and engines ranging from 4.3L to 7.4L, this distributor is designed to deliver reliable performance and compatibility with a wide range of V8 engines. If you want a straightforward installation with enhanced ignition efficiency, this product is tailored for you.
@@ -73,10 +73,10 @@ The **MAS Performance HEI Distributor** features a robust design that ensures co
 
 Additionally, the inclusion of a **65K Coil** provides a strong and reliable spark, which improves engine start-up, throttle response, and fuel efficiency. The red cap not only adds to the distributor’s aesthetic appeal but also provides excellent heat resistance, ensuring stable performance even under demanding operating conditions. Overall, this distributor is a dependable solution for anyone looking to maintain or boost their vehicle’s ignition system with a high-quality, brand-backed product.
 
-## <a href="https://www.amazon.com/dp/B082VJXVPK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mas Performance Ignition Distributor W/cap &amp; Rotor</a>
+## <a href="https://www.amazon.com/dp/B082VJXVPK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mas Performance Ignition Distributor W/cap &amp; Rotor</a>
 
 
-<a href="https://www.amazon.com/dp/B082VJXVPK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MAS Performance Ignition Distributor w/Cap &amp; Rotor compatible with Chevy/GM SBC 350 BBC 454 HEI 65k coil 7500RPM DD-SBC-HEI-V8 850001R" src="https://m.media-amazon.com/images/I/41vq7qH0fHL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B082VJXVPK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MAS Performance Ignition Distributor w/Cap &amp; Rotor compatible with Chevy/GM SBC 350 BBC 454 HEI 65k coil 7500RPM DD-SBC-HEI-V8 850001R" src="https://m.media-amazon.com/images/I/41vq7qH0fHL._SL500_.jpg"/></a>
 
 
 The **MAS Performance Ignition Distributor w/Cap & Rotor** is ideal for automotive enthusiasts and mechanics who own or work on **Chevy/GM SBC 350, BBC 454** engines and require a reliable, high-performance ignition solution. This product is perfect for those looking to enhance their vehicle’s ignition system with a durable and efficient distributor capable of handling up to **7500RPM**, ensuring optimal performance for classic and high-performance V8 engines.
@@ -99,10 +99,10 @@ The **MAS Performance Ignition Distributor** is designed to provide precise timi
 
 Engineers at MAS have crafted this distributor to withstand the demands of high RPMs, making it suitable for performance builds and daily drivers alike. The integrated **65k coil** enhances spark intensity, improving combustion and overall power output. This distributor not only boosts performance but also contributes to engine longevity by ensuring consistent ignition timing and reducing misfires.
 
-## <a href="https://www.amazon.com/dp/B07GFWF75P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Accel Performance Distributor Hei</a>
+## <a href="https://www.amazon.com/dp/B07GFWF75P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Accel Performance Distributor Hei</a>
 
 
-<a href="https://www.amazon.com/dp/B07GFWF75P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ACCEL 59130 Performance Distributor HEI with Coil" src="https://m.media-amazon.com/images/I/31ptnjdUD8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07GFWF75P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ACCEL 59130 Performance Distributor HEI with Coil" src="https://m.media-amazon.com/images/I/31ptnjdUD8L._SL500_.jpg"/></a>
 
 
 The **ACCEL 59130 Performance Distributor HEI with Coil** is an ideal purchase for automotive enthusiasts and mechanics looking for a reliable and high-performance distributor. This product is perfect for those who want to enhance their vehicle's ignition system and achieve better engine performance. Whether you're a professional mechanic or a DIY car enthusiast, this distributor is tailored to meet the needs of anyone aiming to upgrade their vehicle's ignition capabilities.
@@ -123,10 +123,10 @@ The **ACCEL 59130 Performance Distributor HEI with Coil** is designed to deliver
 
 One of the standout features is its **easy installation** process, which allows users to upgrade their ignition system without professional assistance, saving time and money. The **high-performance ignition system** boosts engine efficiency, leading to better fuel economy and overall engine performance. This makes it an attractive option for those looking to maximize their vehicle's potential.
 
-## <a href="https://www.amazon.com/dp/B07D3SD5SH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Steinbrücke High Performance Red Cap Hei Distributor</a>
+## <a href="https://www.amazon.com/dp/B07D3SD5SH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Steinbrücke High Performance Red Cap Hei Distributor</a>
 
 
-<a href="https://www.amazon.com/dp/B07D3SD5SH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="STEINBRÜCKE High Performance Red Cap HEI Distributor for Chevy gm SBC 283 305 307 327 350 400 BBC 454 396 427 Small/Big Block 65k coil 7500RPM" src="https://m.media-amazon.com/images/I/51YtW6nZ5eL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07D3SD5SH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="STEINBRÜCKE High Performance Red Cap HEI Distributor for Chevy gm SBC 283 305 307 327 350 400 BBC 454 396 427 Small/Big Block 65k coil 7500RPM" src="https://m.media-amazon.com/images/I/51YtW6nZ5eL._SL500_.jpg"/></a>
 
 
 The **STEINBRÜCKE High Performance Red Cap HEI Distributor** is ideal for automotive enthusiasts and professional mechanics who are looking to upgrade or replace the ignition system in their **Chevy GM SBC and BBC engines**. Specifically designed for models like the **283, 305, 307, 327, 350, 400, 454, 396, and 427** small and big block engines, this distributor is perfect for those seeking enhanced ignition performance and reliability at high RPMs. If you want a durable, high-quality distributor that supports up to **7500 RPM** and features a robust **65k coil**, this product is a great fit.
@@ -148,10 +148,10 @@ The **STEINBRÜCKE HEI Distributor** features a high-quality build that ensures 
 
 Additionally, the distributor’s robust design and the distinctive red cap not only improve aesthetics but also provide resistance to heat and wear, contributing to long-term reliability. Whether you are restoring a classic Chevy or enhancing a performance build, this distributor delivers consistent power delivery and increased durability, making it a valuable upgrade for any Chevy small or big block engine enthusiast.
 
-## <a href="https://www.amazon.com/dp/B076DXBHQC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Carmocar Performance Replacement Hei Distributor</a>
+## <a href="https://www.amazon.com/dp/B076DXBHQC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Carmocar Performance Replacement Hei Distributor</a>
 
 
-<a href="https://www.amazon.com/dp/B076DXBHQC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CARMOCAR Performance replacement for Chevy/gm SBC BBC Small Block/big Block 65k coil 7500RPM Hei Distributor 350 454 302 V8" src="https://m.media-amazon.com/images/I/31P2F-ekpML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B076DXBHQC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CARMOCAR Performance replacement for Chevy/gm SBC BBC Small Block/big Block 65k coil 7500RPM Hei Distributor 350 454 302 V8" src="https://m.media-amazon.com/images/I/31P2F-ekpML._SL500_.jpg"/></a>
 
 
 The **CARMOCAR Performance replacement for Chevy/GM SBC BBC Small Block/Big Block 65k coil 7500RPM Hei Distributor 350 454 302 V8** is ideal for automotive enthusiasts and mechanics looking to upgrade or replace the ignition system in their Chevrolet or GM V8 engines. Whether you own a **Small Block** or **Big Block** engine, this distributor is designed to enhance performance and reliability, making it perfect for those who demand high RPM capabilities and durable ignition components.
@@ -174,10 +174,10 @@ The **CARMOCAR Performance Hei Distributor** is engineered to deliver superior i
 
 Additionally, the lightweight and durable design of the distributor ensures it does not add unnecessary weight to the engine bay, while still maintaining high reliability under demanding conditions. The vibrant **red color** not only enhances the visual appeal but also makes it easier to spot during maintenance checks. Overall, this distributor is a practical investment for those looking to maintain or boost their Chevy/GM V8 engine’s ignition system performance.
 
-## <a href="https://www.amazon.com/dp/B08TB5KGNX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mas Racing Hei Distributor &amp; Spark Plug Wires &amp; Free Pigtail Wire Harness Combo Kit</a>
+## <a href="https://www.amazon.com/dp/B08TB5KGNX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mas Racing Hei Distributor &amp; Spark Plug Wires &amp; Free Pigtail Wire Harness Combo Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B08TB5KGNX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MAS Racing HEI Distributor&amp;Spark Plug Wires &amp; Free Pigtail Wire Harness Combo Kit Red Cap Replacement for Chevy 283 302 307 327 350 396 400 402 427 454 gm SBC BBC 65k Coil 7500RPM Chevrolet C10 GMC V8" src="https://m.media-amazon.com/images/I/411clEenvnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08TB5KGNX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MAS Racing HEI Distributor&amp;Spark Plug Wires &amp; Free Pigtail Wire Harness Combo Kit Red Cap Replacement for Chevy 283 302 307 327 350 396 400 402 427 454 gm SBC BBC 65k Coil 7500RPM Chevrolet C10 GMC V8" src="https://m.media-amazon.com/images/I/411clEenvnL._SL500_.jpg"/></a>
 
 
 The **MAS Racing HEI Distributor & Spark Plug Wires Combo Kit** is ideal for automotive enthusiasts and mechanics looking to upgrade or replace ignition components on classic Chevrolet engines. If you own a Chevy with engines such as the 283, 302, 307, 327, 350, 396, 400, 402, 427, or 454, and want a reliable, high-performance ignition solution, this kit is designed for you. It is especially suitable for those restoring vintage Chevrolet C10 or GMC V8 trucks who require a durable, easy-to-install ignition upgrade.
@@ -200,10 +200,10 @@ The **MAS Racing HEI Distributor & Spark Plug Wires Combo Kit** offers a compreh
 
 Featuring a durable red cap, the distributor is designed to withstand harsh engine conditions and reduce electrical interference. This enhances ignition reliability and helps maintain optimal engine performance. Overall, this combo kit provides a practical, all-in-one ignition upgrade for Chevy engine owners seeking enhanced durability and performance in their vehicle restoration or modification projects.
 
-## <a href="https://www.amazon.com/dp/B0BQXCRCJC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mas Racing Hei Ignition Distributor With Wiring Set Replacement</a>
+## <a href="https://www.amazon.com/dp/B0BQXCRCJC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mas Racing Hei Ignition Distributor With Wiring Set Replacement</a>
 
 
-<a href="https://www.amazon.com/dp/B0BQXCRCJC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MAS Racing HEI Ignition Distributor with Wiring Set Replacement for Chevy 302 454 gm SBC BBC 65k Coil 7500RPM Chevrolet C10 GMC 400 350 V8 4.6L 5.0L 5.7L 6.5L 6.6L 7.4L(HEI Red Cap)" src="https://m.media-amazon.com/images/I/51JL1rm9O3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BQXCRCJC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MAS Racing HEI Ignition Distributor with Wiring Set Replacement for Chevy 302 454 gm SBC BBC 65k Coil 7500RPM Chevrolet C10 GMC 400 350 V8 4.6L 5.0L 5.7L 6.5L 6.6L 7.4L(HEI Red Cap)" src="https://m.media-amazon.com/images/I/51JL1rm9O3L._SL500_.jpg"/></a>
 
 
 The **MAS Racing HEI Ignition Distributor with Wiring Set Replacement** is ideal for automotive enthusiasts and mechanics looking to upgrade or replace the ignition system on various **Chevy** and **GM V8 engines**. This product is perfect for those who own vehicles like the **Chevrolet C10** or trucks with engines ranging from **302** to **454 cubic inches**, including SBC, BBC, and other GM variants, and need a reliable ignition distributor capable of handling up to **7500 RPM**.
@@ -226,10 +226,10 @@ The **MAS Racing HEI Ignition Distributor** is engineered to deliver reliable ig
 
 Designed to handle up to **7500 RPM**, this distributor is ideal for high-performance applications, ensuring consistent spark delivery at high engine speeds. The robust build quality and precision manufacturing help maintain engine timing accuracy, which translates to smoother engine operation and enhanced fuel efficiency. Overall, this product offers a practical solution for anyone seeking to boost their vehicle's ignition reliability and performance.
 
-## <a href="https://www.amazon.com/dp/B08DCRPJ6V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hei Ignition Distributor With Cap For Chevy Gm Small Blocks And Big Blocks</a>
+## <a href="https://www.amazon.com/dp/B08DCRPJ6V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hei Ignition Distributor With Cap For Chevy Gm Small Blocks And Big Blocks</a>
 
 
-<a href="https://www.amazon.com/dp/B08DCRPJ6V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="HEI Ignition Distributor with Cap for Chevy GM Small Blocks 283 305 307 327 350 400 Big Blocks 396 427 454 Part # DD-SBC-HEI-V8, 850001R, 8362" src="https://m.media-amazon.com/images/I/31BXZ+RlqDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08DCRPJ6V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="HEI Ignition Distributor with Cap for Chevy GM Small Blocks 283 305 307 327 350 400 Big Blocks 396 427 454 Part # DD-SBC-HEI-V8, 850001R, 8362" src="https://m.media-amazon.com/images/I/31BXZ+RlqDL._SL500_.jpg"/></a>
 
 
 The **HEI Ignition Distributor with Cap** is ideal for automotive enthusiasts and mechanics who own or work on **Chevy GM Small Blocks** and **Big Blocks**, including models like the 283, 305, 307, 327, 350, 400, 396, 427, and 454. If you are looking for a reliable and efficient ignition system upgrade or replacement for your classic Chevy engine, this distributor offers a perfect blend of performance and durability.
@@ -252,10 +252,10 @@ The **HEI Ignition Distributor** is designed to provide consistent and reliable 
 
 Additionally, this product’s compatibility with a broad range of Chevy GM Small and Big Block engines makes it a versatile choice for restorers and performance tuners alike. Whether you are upgrading an old ignition system or replacing a faulty distributor, the **HEI Ignition Distributor with Cap** offers an excellent balance of performance, durability, and ease of installation. Its reputable brand backing from **THEBIGDEALS** further guarantees a dependable solution for your ignition system upgrade.
 
-## <a href="https://www.amazon.com/dp/B07L2WHMCQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jdmspeed New Hei Distributor With Spark Plug Wires Ignition Combo Kit</a>
+## <a href="https://www.amazon.com/dp/B07L2WHMCQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jdmspeed New Hei Distributor With Spark Plug Wires Ignition Combo Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B07L2WHMCQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JDMSPEED New HEI Distributor with Spark Plug Wires Ignition Combo Kit Replacement for Chevy SBC 350 BBC 454, Silicone" src="https://m.media-amazon.com/images/I/51iuftyFULL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07L2WHMCQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JDMSPEED New HEI Distributor with Spark Plug Wires Ignition Combo Kit Replacement for Chevy SBC 350 BBC 454, Silicone" src="https://m.media-amazon.com/images/I/51iuftyFULL._SL500_.jpg"/></a>
 
 
 The **JDMSPEED New HEI Distributor with Spark Plug Wires Ignition Combo Kit** is ideal for automotive enthusiasts and mechanics looking to upgrade or replace the ignition system in their classic Chevy engines, specifically the **SBC 350** and **BBC 454** models. This combo kit is perfect for those seeking a reliable and efficient ignition solution that combines both distributor and spark plug wires, ensuring smooth engine performance and easier installation.

@@ -22,10 +22,10 @@ Picking a helmet with these qualities lets you focus on the road, not the heat. 
 
 
 
-## <a href="https://www.amazon.com/dp/B00HLUWN34?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bell Qualifier Full-face Motorcycle Helmet</a>
+## <a href="https://www.amazon.com/dp/B00HLUWN34?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bell Qualifier Full-face Motorcycle Helmet</a>
 
 
-<a href="https://www.amazon.com/dp/B00HLUWN34?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BELL Qualifier Full-Face Motorcycle Helmet (Matte Black - Large)" src="https://m.media-amazon.com/images/I/3196pRwcjTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00HLUWN34?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BELL Qualifier Full-Face Motorcycle Helmet (Matte Black - Large)" src="https://m.media-amazon.com/images/I/3196pRwcjTL._SL500_.jpg"/></a>
 
 
 The **BELL Qualifier Full-Face Motorcycle Helmet (Matte Black - Large)** is ideal for motorcycle enthusiasts and daily riders who prioritize both safety and style. This helmet is perfect for those seeking a reliable full-face helmet that offers comprehensive protection, comfort, and a sleek matte black finish that complements any bike.
@@ -48,10 +48,10 @@ The **BELL Qualifier Full-Face Motorcycle Helmet** combines robust construction 
 
 Additionally, the sleek **matte black color** adds an aesthetic edge without compromising functionality. The helmet’s dimensions are tailored to fit large head sizes well, providing a secure and snug fit. With trusted manufacturing by **Vista Outdoor Sales LLC**, users can expect durability and high standards in safety performance. Overall, this helmet offers a great balance of safety, comfort, and style for riders seeking reliable headgear.
 
-## <a href="https://www.amazon.com/dp/B0792LPFGH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Glx M14 Open Face Motorcycle Helmet</a>
+## <a href="https://www.amazon.com/dp/B0792LPFGH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Glx M14 Open Face Motorcycle Helmet</a>
 
 
-<a href="https://www.amazon.com/dp/B0792LPFGH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GLX M14 Open Face Motorcycle Helmet - Matte Black, Medium - DOT Approved" src="https://m.media-amazon.com/images/I/41lYOmWlYQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0792LPFGH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GLX M14 Open Face Motorcycle Helmet - Matte Black, Medium - DOT Approved" src="https://m.media-amazon.com/images/I/41lYOmWlYQL._SL500_.jpg"/></a>
 
 
 The **GLX M14 Open Face Motorcycle Helmet** in **Matte Black** is ideal for riders who prioritize both style and safety without the bulk of a full-face helmet. Perfect for urban commuters and casual weekend riders who want a lightweight, comfortable helmet that meets safety standards, this helmet offers a great balance of protection and freedom of movement. If you value visibility, ventilation, and a sleek design, this helmet is a smart choice.
@@ -74,10 +74,10 @@ The **GLX M14 Open Face Helmet** features a robust outer shell that is engineere
 
 Additionally, the helmet's sleek **Matte Black** finish not only adds a touch of sophistication but also resists scratches and minor abrasions, keeping it looking new for longer. The helmet's dimensions are thoughtfully designed to fit snugly without compromising comfort, making it suitable for medium-sized heads. Overall, the GLX M14 offers a practical and stylish solution for riders who want dependable safety and comfort with a classic open face style.
 
-## <a href="https://www.amazon.com/dp/B0CQT5324R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Favoto Full Face Motorcycle Helmet</a>
+## <a href="https://www.amazon.com/dp/B0CQT5324R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Favoto Full Face Motorcycle Helmet</a>
 
 
-<a href="https://www.amazon.com/dp/B0CQT5324R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Favoto Full Face Motorcycle Helmet DOT Approved, Cascos para Motos Snowmobile Dirt Bike Helmet for Adults Men Women, Anti-Fog Film Included, Carbon Fiber, XL" src="https://m.media-amazon.com/images/I/51OYW4rJL+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CQT5324R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Favoto Full Face Motorcycle Helmet DOT Approved, Cascos para Motos Snowmobile Dirt Bike Helmet for Adults Men Women, Anti-Fog Film Included, Carbon Fiber, XL" src="https://m.media-amazon.com/images/I/51OYW4rJL+L._SL500_.jpg"/></a>
 
 
 The **Favoto Full Face Motorcycle Helmet** is ideal for both men and women who seek reliable and stylish head protection for various motorized activities such as riding motorcycles, snowmobiles, or dirt bikes. This helmet is perfect for adult riders who prioritize safety and comfort, and who want a helmet that meets strict safety standards while offering practical features like anti-fog protection.
@@ -100,10 +100,10 @@ The **Favoto Full Face Motorcycle Helmet** boasts a robust **carbon fiber** shel
 
 Comfort is further enhanced by the helmet’s ergonomic fit and ventilation system, which helps regulate temperature and reduces sweat buildup during long rides. The **DOT approval** guarantees that this helmet meets rigorous safety standards, providing peace of mind for riders. Overall, the Favoto helmet combines safety, functionality, and style, making it a great investment for adult riders looking for dependable headgear in a sleek carbon fiber finish.
 
-## <a href="https://www.amazon.com/dp/B01HEHOBOW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ilm Full Face Motorcycle Street Bike Helmet</a>
+## <a href="https://www.amazon.com/dp/B01HEHOBOW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ilm Full Face Motorcycle Street Bike Helmet</a>
 
 
-<a href="https://www.amazon.com/dp/B01HEHOBOW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ILM Full Face Motorcycle Street Bike Helmet with Removable Winter Neck Scarf + 2 Visors DOT Model-JK313 (M, Gloss Black)" src="https://m.media-amazon.com/images/I/41hhheVJM1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01HEHOBOW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ILM Full Face Motorcycle Street Bike Helmet with Removable Winter Neck Scarf + 2 Visors DOT Model-JK313 (M, Gloss Black)" src="https://m.media-amazon.com/images/I/41hhheVJM1L._SL500_.jpg"/></a>
 
 
 The **ILM Full Face Motorcycle Street Bike Helmet** with Removable Winter Neck Scarf and 2 Visors is ideal for motorcycle enthusiasts who prioritize both safety and comfort. This helmet is perfect for riders seeking a reliable, stylish, and versatile protective gear, especially those who often ride in varying weather conditions and need adaptable features to enhance their riding experience.
@@ -127,10 +127,10 @@ The **ILM Full Face Helmet** offers robust protection with its full-face coverag
 
 Additionally, the **removable winter neck scarf** adds a layer of comfort during colder months, making this helmet versatile for year-round use. The helmet’s lightweight design and ergonomic dimensions contribute to reduced neck strain, allowing for longer, more comfortable rides. Its sleek **gloss black color** and modern styling complement a wide range of motorcycle types and rider preferences, making it a practical and attractive choice for street bike riders.
 
-## <a href="https://www.amazon.com/dp/B07WSD5XR5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Motorcycle Half Helmet Sun Visor Quick Release Buckle Dot Approved Half Face Helmets For Men Women</a>
+## <a href="https://www.amazon.com/dp/B07WSD5XR5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Motorcycle Half Helmet Sun Visor Quick Release Buckle Dot Approved Half Face Helmets For Men Women</a>
 
 
-<a href="https://www.amazon.com/dp/B07WSD5XR5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Motorcycle Half Helmet Sun Visor Quick Release Buckle DOT Approved Half Face Helmets for Men Women (F02-Indian, XXL)" src="https://m.media-amazon.com/images/I/41nL+-zW2vL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07WSD5XR5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Motorcycle Half Helmet Sun Visor Quick Release Buckle DOT Approved Half Face Helmets for Men Women (F02-Indian, XXL)" src="https://m.media-amazon.com/images/I/41nL+-zW2vL._SL500_.jpg"/></a>
 
 
 The **Motorcycle Half Helmet Sun Visor Quick Release Buckle DOT Approved Half Face Helmet** in the **F02 Indian** design is perfect for riders seeking a blend of style, safety, and convenience. Ideal for both **men and women** who prefer a lightweight, comfortable helmet without compromising on protection, this helmet suits city commuters and casual weekend riders alike. If you value quick adjustments and sun protection while on the road, this helmet is a great choice.
@@ -152,10 +152,10 @@ The **VCOROS Motorcycle Half Helmet** is designed to offer a perfect balance bet
 
 Weighing only **2.0 pounds** and measuring just over 14 inches in length, this helmet ensures minimal strain on the neck during long rides. The DOT approval guarantees that it meets essential safety standards, providing peace of mind for riders. Its attractive **F02 Indian** coloring makes it a stylish accessory for anyone seeking an eye-catching yet functional helmet.
 
-## <a href="https://www.amazon.com/dp/B005TKF4S4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Daytona Cruiser Helmet</a>
+## <a href="https://www.amazon.com/dp/B005TKF4S4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Daytona Cruiser Helmet</a>
 
 
-<a href="https://www.amazon.com/dp/B005TKF4S4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Daytona Cruiser Helmet - Hi-Gloss White - Lightweight 3/4 Shell Motorcycle Helmet with Removable Gloss Black Bubble Visor Added - Bluetooth Compatible - L - 2.30 Pounds" src="https://m.media-amazon.com/images/I/41CtBrOm25L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B005TKF4S4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Daytona Cruiser Helmet - Hi-Gloss White - Lightweight 3/4 Shell Motorcycle Helmet with Removable Gloss Black Bubble Visor Added - Bluetooth Compatible - L - 2.30 Pounds" src="https://m.media-amazon.com/images/I/41CtBrOm25L._SL500_.jpg"/></a>
 
 
 The **Daytona Cruiser Helmet - Hi-Gloss White** is ideal for motorcycle enthusiasts who prioritize both style and functionality. This helmet is perfect for riders seeking a lightweight, comfortable option with modern features like Bluetooth compatibility and a removable visor. If you are a cruiser or casual rider who values safety without compromising on aesthetics, this helmet is an excellent choice.
@@ -178,10 +178,10 @@ The **Daytona Cruiser Helmet** features a lightweight **3/4 shell** design that 
 
 Additionally, the helmet’s **Bluetooth compatibility** allows riders to connect their devices seamlessly, enabling hands-free calls, music streaming, and GPS navigation. Manufactured by **Daytona Helmets**, known for their commitment to quality and safety, this helmet ensures reliable protection while maintaining comfort and style. Weighing just **2.3 pounds**, it strikes an ideal balance between durability and lightweight convenience for riders.
 
-## <a href="https://www.amazon.com/dp/B0D2676JNN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Oumurs Adult Atv Dirt Bike Helmet With Gloves &amp; Mask</a>
+## <a href="https://www.amazon.com/dp/B0D2676JNN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Oumurs Adult Atv Dirt Bike Helmet With Gloves &amp; Mask</a>
 
 
-<a href="https://www.amazon.com/dp/B0D2676JNN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OUMURS Adult ATV Dirt Bike Helmet with Gloves &amp; Mask Adjustable Sun Visor Motorcycle Adult Helmet Off-Road Motocross Downhill Moped MX for Unisex-Adult-Red Skull, XL" src="https://m.media-amazon.com/images/I/51l6CooEspL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D2676JNN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OUMURS Adult ATV Dirt Bike Helmet with Gloves &amp; Mask Adjustable Sun Visor Motorcycle Adult Helmet Off-Road Motocross Downhill Moped MX for Unisex-Adult-Red Skull, XL" src="https://m.media-amazon.com/images/I/51l6CooEspL._SL500_.jpg"/></a>
 
 
 The **OUMURS Adult ATV Dirt Bike Helmet with Gloves & Mask** is perfect for riders seeking a comprehensive protective gear set that combines safety and style. Ideal for off-road enthusiasts, motocross riders, and moped users, this **adjustable helmet** caters to both men and women who demand comfort and reliable protection during their adventurous rides.
@@ -204,10 +204,10 @@ The **OUMURS ATV Dirt Bike Helmet** boasts a well-engineered design that priorit
 
 With its robust build and appealing **Red Skull** aesthetic, this helmet not only delivers protection but also allows riders to express their unique style. The lightweight design minimizes fatigue, making it suitable for extended riding sessions. Whether tackling rugged trails or cruising on a moped, this helmet set from **Oumurs** ensures users can focus on their ride with confidence and comfort.
 
-## <a href="https://www.amazon.com/dp/B0F47K9FBC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Customtaylor33 High-intensity Grade Premium Reflective Tribal Flame Helmet Decals</a>
+## <a href="https://www.amazon.com/dp/B0F47K9FBC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Customtaylor33 High-intensity Grade Premium Reflective Tribal Flame Helmet Decals</a>
 
 
-<a href="https://www.amazon.com/dp/B0F47K9FBC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="customTAYLOR33 High-Intensity Grade Premium Reflective Tribal Flame Helmet Decals, Motorcycle Safety Sticker Decals (Special Edition Hot Pink)" src="https://m.media-amazon.com/images/I/41JTWDV4VZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F47K9FBC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="customTAYLOR33 High-Intensity Grade Premium Reflective Tribal Flame Helmet Decals, Motorcycle Safety Sticker Decals (Special Edition Hot Pink)" src="https://m.media-amazon.com/images/I/41JTWDV4VZL._SL500_.jpg"/></a>
 
 
 The **customTAYLOR33 High-Intensity Grade Premium Reflective Tribal Flame Helmet Decals** in **Special Edition Hot Pink** are perfect for **motorcycle enthusiasts** and **safety-conscious riders** who want to add a unique flair to their helmets while enhancing visibility during night rides. These decals are ideal for those who value both **style** and **safety** on the road.
@@ -228,10 +228,10 @@ The **customTAYLOR33 Helmet Decals** feature a **high-intensity reflective mater
 
 Designed with **easy application** in mind, these decals can be effortlessly applied to various surfaces, ensuring a snug fit on most helmets. The **durability** of the material means it can withstand different weather conditions, providing long-lasting performance without fading or peeling. However, the **limited color options** and **specific dimensions** might not cater to everyone's taste or helmet style, which is something potential buyers should consider.
 
-## <a href="https://www.amazon.com/dp/B0DKT38CKT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vevor Full Face Motorcycle Helmet</a>
+## <a href="https://www.amazon.com/dp/B0DKT38CKT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vevor Full Face Motorcycle Helmet</a>
 
 
-<a href="https://www.amazon.com/dp/B0DKT38CKT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VEVOR Full Face Motorcycle Helmet DOT Approved, Dual Visor with Bluetooth Slot &amp; Interchangeable Lens, Smart Street ABS &amp; High Density Helmet Comfortable Motocross Helmet, Fit for Youth &amp; Adults" src="https://m.media-amazon.com/images/I/41amDpfNUEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DKT38CKT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VEVOR Full Face Motorcycle Helmet DOT Approved, Dual Visor with Bluetooth Slot &amp; Interchangeable Lens, Smart Street ABS &amp; High Density Helmet Comfortable Motocross Helmet, Fit for Youth &amp; Adults" src="https://m.media-amazon.com/images/I/41amDpfNUEL._SL500_.jpg"/></a>
 
 
 The **VEVOR Full Face Motorcycle Helmet** is ideal for both **youth and adult riders** seeking a reliable and comfortable helmet that meets safety standards. This helmet is perfect for motorcyclists who prioritize safety, convenience, and versatility, especially those who want added features like a dual visor and Bluetooth compatibility for enhanced riding experience.
@@ -254,10 +254,10 @@ The **VEVOR Full Face Motorcycle Helmet** features a robust construction using *
 
 Designed with both **youth and adults** in mind, the helmet’s ergonomic fit and lightweight 3.2-pound design reduce fatigue during long rides. The **interchangeable lens** feature further enhances its versatility, providing clear vision whether riding in bright sunlight or low-light environments. Overall, this helmet combines safety, comfort, and modern functionality to meet the needs of today’s motorcyclists.
 
-## <a href="https://www.amazon.com/dp/B086VH3VDL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Slmoto Motorcycle Helmet</a>
+## <a href="https://www.amazon.com/dp/B086VH3VDL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Slmoto Motorcycle Helmet</a>
 
 
-<a href="https://www.amazon.com/dp/B086VH3VDL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SLMOTO DOT Approved Motorcycle Helmet Hot Gloss Black Full Face Mirror Visor Sun Shield Street Helmet" src="https://m.media-amazon.com/images/I/41lXKXwEw7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B086VH3VDL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SLMOTO DOT Approved Motorcycle Helmet Hot Gloss Black Full Face Mirror Visor Sun Shield Street Helmet" src="https://m.media-amazon.com/images/I/41lXKXwEw7L._SL500_.jpg"/></a>
 
 
 The **SLMOTO DOT Approved Motorcycle Helmet** is perfect for motorcycle enthusiasts who prioritize **safety** and **style**. Ideal for riders who frequently travel on **busy streets** or partake in **long-distance rides**, this helmet combines **protection** with a sleek design. If you value **comfort** and **visibility** while riding, this helmet is a must-have addition to your gear.

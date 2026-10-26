@@ -23,10 +23,10 @@ They work well with foam cannons, foam guns, or hand washing. Avoid harsh soaps 
 
 
 
-## <a href="https://www.amazon.com/dp/B0DVB4P9KQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Cerakote High Foam Vehicle Shampoo</a>
+## <a href="https://www.amazon.com/dp/B0DVB4P9KQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Cerakote High Foam Vehicle Shampoo</a>
 
 
-<a href="https://www.amazon.com/dp/B0DVB4P9KQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CERAKOTE High Foam Vehicle Shampoo (16 oz) – pH Neutral Premium Car Wash Soap for FoamCannon, SnowFoam, Pressure Washer &amp; Hand Wash – Ceramic Coating Prep &amp; Maintenance – Citrus Scent – Maximum Suds" src="https://m.media-amazon.com/images/I/41zDq4ZbeIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DVB4P9KQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CERAKOTE High Foam Vehicle Shampoo (16 oz) – pH Neutral Premium Car Wash Soap for FoamCannon, SnowFoam, Pressure Washer &amp; Hand Wash – Ceramic Coating Prep &amp; Maintenance – Citrus Scent – Maximum Suds" src="https://m.media-amazon.com/images/I/41zDq4ZbeIL._SL500_.jpg"/></a>
 
 
 The **CERAKOTE High Foam Vehicle Shampoo (16 oz)** is ideal for car enthusiasts and professional detailers who seek a **pH neutral**, premium car wash soap that delivers maximum suds and gentle cleaning. Whether you use a **FoamCannon, SnowFoam, Pressure Washer,** or prefer hand washing, this shampoo is designed for those looking to maintain or prep their vehicle’s **ceramic coating** without compromising its protective layer.
@@ -49,10 +49,10 @@ The **CERAKOTE High Foam Vehicle Shampoo** stands out due to its rich foam produ
 
 Additionally, the shampoo’s ability to serve as both a prep and maintenance product for **ceramic coatings** means users can rely on it for regular upkeep as well as before applying new protective layers. The refreshing **citrus scent** enhances the overall car wash experience, making it not only effective but enjoyable. Its practical bottle size and design also make it easy to store and use in various environments.
 
-## <a href="https://www.amazon.com/dp/B09KHMFWMC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Turtle Wax 54320 Hybrid Solutions Slick-n-slide Pure Wash</a>
+## <a href="https://www.amazon.com/dp/B09KHMFWMC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Turtle Wax 54320 Hybrid Solutions Slick-n-slide Pure Wash</a>
 
 
-<a href="https://www.amazon.com/dp/B09KHMFWMC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Turtle Wax 54320 Hybrid Solutions Slick-N-Slide Pure Wash, pH Neutral, Extreme Foaming Car Wash Soap, Hand Wash or Foam Cannon Application, Clay Bar Lubricant, Spot Free Clean, 64 oz. (Pack of 1)" src="https://m.media-amazon.com/images/I/51ObTuQ1TmL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09KHMFWMC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Turtle Wax 54320 Hybrid Solutions Slick-N-Slide Pure Wash, pH Neutral, Extreme Foaming Car Wash Soap, Hand Wash or Foam Cannon Application, Clay Bar Lubricant, Spot Free Clean, 64 oz. (Pack of 1)" src="https://m.media-amazon.com/images/I/51ObTuQ1TmL._SL500_.jpg"/></a>
 
 
 The **Turtle Wax 54320 Hybrid Solutions Slick-N-Slide Pure Wash** is ideal for car enthusiasts and everyday vehicle owners who want a thorough yet gentle cleaning solution. If you seek a **pH neutral**, **extreme foaming car wash soap** that can be applied by hand or with a foam cannon, this product is designed for you. It’s perfect for those who want to maintain a spotless, shiny vehicle without risking damage to the paint or finish.
@@ -76,10 +76,10 @@ The **Turtle Wax 54320 Hybrid Solutions Slick-N-Slide Pure Wash** stands out due
 
 Another key feature is its role as a **clay bar lubricant**, which makes detailing easier and safer by reducing the risk of scratches during clay bar treatment. The product’s ability to deliver a **spot-free clean** finish means less time drying and buffing, helping car owners save effort while achieving a professional look. Overall, this car wash soap is an excellent choice for anyone seeking a high-quality, versatile cleaning product that protects and enhances their vehicle’s appearance.
 
-## <a href="https://www.amazon.com/dp/B07H1LTQX8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ceramic Car Shampoo</a>
+## <a href="https://www.amazon.com/dp/B07H1LTQX8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ceramic Car Shampoo</a>
 
 
-<a href="https://www.amazon.com/dp/B07H1LTQX8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Ceramic Car Shampoo - Car Wash For Ceramic Coatings - Car Wash Soap - Adds Hydrophobic Protection | Enhances Coatings, Waxes Or Sealants | Incredible Shine" src="https://m.media-amazon.com/images/I/41ayqFcZt3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07H1LTQX8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Ceramic Car Shampoo - Car Wash For Ceramic Coatings - Car Wash Soap - Adds Hydrophobic Protection | Enhances Coatings, Waxes Or Sealants | Incredible Shine" src="https://m.media-amazon.com/images/I/41ayqFcZt3L._SL500_.jpg"/></a>
 
 
 Ideal for car enthusiasts and detailers who want to maintain and enhance their vehicle's **ceramic coatings**, this **Ceramic Car Shampoo** from **Ethos Handcrafted Car Care** is perfect for those seeking a gentle yet effective cleaning solution that boosts protection. If you own a car with **waxes, sealants, or ceramic coatings** and want to preserve their longevity while achieving a stunning shine, this product is designed specifically for you.
@@ -102,10 +102,10 @@ The **Ceramic Car Shampoo** is formulated to gently lift dirt and grime without 
 
 Using this shampoo not only cleans your vehicle thoroughly but also enhances the depth and clarity of your car’s finish, leaving an **incredible shine** that is noticeable to the eye. The product’s easy-to-handle size and weight make it practical for both professional detailers and car care enthusiasts who want superior results without hassle.
 
-## <a href="https://www.amazon.com/dp/B0BNW86PNX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Armor All Ceramic Foaming Car Wash Soap</a>
+## <a href="https://www.amazon.com/dp/B0BNW86PNX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Armor All Ceramic Foaming Car Wash Soap</a>
 
 
-<a href="https://www.amazon.com/dp/B0BNW86PNX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Armor All Ceramic Foaming Car Wash Soap with Extreme Shield, 1 Gallon, 128 Fl Oz (Pack of 1)" src="https://m.media-amazon.com/images/I/41zsPFkV5VL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BNW86PNX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Armor All Ceramic Foaming Car Wash Soap with Extreme Shield, 1 Gallon, 128 Fl Oz (Pack of 1)" src="https://m.media-amazon.com/images/I/41zsPFkV5VL._SL500_.jpg"/></a>
 
 
 The **Armor All Ceramic Foaming Car Wash Soap** is ideal for car enthusiasts and those who take pride in maintaining a pristine vehicle appearance. If you love giving your car that professional-grade shine from the comfort of your driveway, this product is for you. It's also perfect for anyone looking to protect their vehicle's exterior with minimal effort.
@@ -126,10 +126,10 @@ The **Armor All Ceramic Foaming Car Wash Soap** boasts advanced **ceramic techno
 
 One of the standout features is its **foaming action**, which ensures that dirt and grime are effectively lifted from your car's surface, reducing the risk of scratches during the cleaning process. The large **1-gallon size** is a boon for regular users, providing an ample supply to keep your vehicle in top-notch condition. With easy application, this soap is a time-saver for anyone looking to maintain their car's appearance without the hassle of frequent waxing or polishing.
 
-## <a href="https://www.amazon.com/dp/B0CLY5G17N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Meguiar's Hybrid Ceramic Wash &amp; Wax</a>
+## <a href="https://www.amazon.com/dp/B0CLY5G17N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Meguiar's Hybrid Ceramic Wash &amp; Wax</a>
 
 
-<a href="https://www.amazon.com/dp/B0CLY5G17N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Meguiar's Hybrid Ceramic Wash &amp; Wax - Sophisticated Car Wash Gently Cleans and Adds Shine and Slickness While Boosting Paint with Hybrid Ceramic Wax and Extreme Water Beading - 48oz" src="https://m.media-amazon.com/images/I/41977eYFtSL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CLY5G17N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Meguiar's Hybrid Ceramic Wash &amp; Wax - Sophisticated Car Wash Gently Cleans and Adds Shine and Slickness While Boosting Paint with Hybrid Ceramic Wax and Extreme Water Beading - 48oz" src="https://m.media-amazon.com/images/I/41977eYFtSL._SL500_.jpg"/></a>
 
 
 The **Meguiar's Hybrid Ceramic Wash & Wax** is ideal for car enthusiasts and everyday drivers who want a convenient and effective solution to maintain their vehicle's appearance. If you're looking for a product that gently cleans your car while enhancing its shine and protecting the paint with advanced technology, this 48oz bottle is a perfect choice. It’s especially suited for those who prefer a high-quality wash that also offers the benefits of a hybrid ceramic wax for long-lasting protection.
@@ -152,10 +152,10 @@ The **Meguiar's Hybrid Ceramic Wash & Wax** stands out by integrating a sophisti
 
 Another key feature is the product’s ability to boost extreme water beading, which helps water roll off the surface quickly, minimizing water spots and making drying easier. This slick finish also acts as a barrier against contaminants, preserving the paint’s integrity longer. The ergonomic bottle size and design make it simple to measure and use, enhancing user convenience without compromising performance.
 
-## <a href="https://www.amazon.com/dp/B07SS4N27V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Adam’s Mega Foam Car Wash Soap</a>
+## <a href="https://www.amazon.com/dp/B07SS4N27V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Adam’s Mega Foam Car Wash Soap</a>
 
 
-<a href="https://www.amazon.com/dp/B07SS4N27V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Adam’s Mega Foam Car Wash Soap (Gallon) – pH Neutral, Ultra Concentrated for Foam Cannon, Foaming Spray Gun, or Bucket – Safe for Wax, Sealants &amp; Ceramic Coating – High Suds Car Cleaner" src="https://m.media-amazon.com/images/I/419DDevK8qL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07SS4N27V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Adam’s Mega Foam Car Wash Soap (Gallon) – pH Neutral, Ultra Concentrated for Foam Cannon, Foaming Spray Gun, or Bucket – Safe for Wax, Sealants &amp; Ceramic Coating – High Suds Car Cleaner" src="https://m.media-amazon.com/images/I/419DDevK8qL._SL500_.jpg"/></a>
 
 
 Adam’s Mega Foam Car Wash Soap (Gallon) is ideal for car enthusiasts and professional detailers who want a gentle yet powerful cleaning solution. This product is perfect for those who regularly maintain their vehicles and seek a **pH neutral**, ultra-concentrated soap that works well with foam cannons, foaming spray guns, or traditional buckets. If you want a car wash soap that is safe to use on **wax, sealants, and ceramic coatings**, this product is an excellent choice.
@@ -178,10 +178,10 @@ Adam’s Mega Foam Car Wash Soap boasts a **highly concentrated formula** that a
 
 The versatility of this car wash soap extends to its compatibility with various washing methods. Whether you prefer the efficiency of a **foam cannon or foaming spray gun** or the traditional bucket wash, this soap performs consistently well. The vibrant red color of the soap provides clear visual feedback during application, helping ensure even coverage. Overall, Adam’s Mega Foam Car Wash Soap is a trusted choice for those seeking a safe, effective, and versatile cleaning solution that maintains and enhances their vehicle’s finish.
 
-## <a href="https://www.amazon.com/dp/B08X4YZSFN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Adam's Polishes Graphene Shampoo</a>
+## <a href="https://www.amazon.com/dp/B08X4YZSFN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Adam's Polishes Graphene Shampoo</a>
 
 
-<a href="https://www.amazon.com/dp/B08X4YZSFN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Adam's Polishes Graphene Shampoo 16oz - Ceramic Coating Infused Car Wash Soap - Powerful Cleaner &amp; Protection In One Step - pH Neutral, High Suds For Foam Cannon, Foam Gun, Or Detailing Bucket" src="https://m.media-amazon.com/images/I/31K3gVQj2fL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08X4YZSFN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Adam's Polishes Graphene Shampoo 16oz - Ceramic Coating Infused Car Wash Soap - Powerful Cleaner &amp; Protection In One Step - pH Neutral, High Suds For Foam Cannon, Foam Gun, Or Detailing Bucket" src="https://m.media-amazon.com/images/I/31K3gVQj2fL._SL500_.jpg"/></a>
 
 
 Ideal for car enthusiasts and professional detailers, **Adam's Polishes Graphene Shampoo 16oz** is perfect for those seeking a high-performance car wash solution that not only cleans but also protects their vehicle. If you want a convenient, all-in-one product that delivers powerful cleaning while preserving your car's finish, this shampoo is an excellent choice.
@@ -203,10 +203,10 @@ Ideal for car enthusiasts and professional detailers, **Adam's Polishes Graphene
 
 With its ability to create thick, rich foam, this shampoo works perfectly with foam cannons, foam guns, or traditional detailing buckets. The dense suds help to encapsulate dirt particles, reducing the risk of scratching during the wash process. Overall, this product combines convenience, protection, and cleaning power, making it a favorite among those who want to maintain a showroom shine with every wash.
 
-## <a href="https://www.amazon.com/dp/B0CLM69VN5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ultra Suds Ceramic Car Wash Soap</a>
+## <a href="https://www.amazon.com/dp/B0CLM69VN5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ultra Suds Ceramic Car Wash Soap</a>
 
 
-<a href="https://www.amazon.com/dp/B0CLM69VN5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="303 Products Ultra Suds Ceramic Car Wash Soap – Ceramic Coating for Cars with Foaming Formula, Enhanced Gloss &amp; Shine Protectant, 48 fl. oz. (30277)" src="https://m.media-amazon.com/images/I/41ggL5H6MoL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CLM69VN5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="303 Products Ultra Suds Ceramic Car Wash Soap – Ceramic Coating for Cars with Foaming Formula, Enhanced Gloss &amp; Shine Protectant, 48 fl. oz. (30277)" src="https://m.media-amazon.com/images/I/41ggL5H6MoL._SL500_.jpg"/></a>
 
 
 The **303 Products Ultra Suds Ceramic Car Wash Soap** is ideal for car enthusiasts and everyday drivers who want to maintain a pristine, glossy finish on their vehicles. If you own a car with a **ceramic coating** or plan to apply one, this product is designed to gently clean while preserving and enhancing the protective layer. It is perfect for those seeking an easy-to-use, effective car wash solution that offers both cleaning power and shine enhancement.
@@ -229,10 +229,10 @@ The **303 Products Ultra Suds Ceramic Car Wash Soap** is formulated by **Gold Ea
 
 Using this car wash soap means you are not only cleaning your vehicle but also reinforcing the protective barrier against environmental elements like UV rays and road grime. The product’s ability to act as a protectant extends the life of the ceramic coating, reducing the need for frequent reapplications. Ideal for those who want to maintain a high level of care for their car’s exterior, this wash soap delivers both performance and aesthetic benefits in one easy step.
 
-## <a href="https://www.amazon.com/dp/B0C6XBW6YF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">3d Sio2 Ceramic Wash &amp; Wax Soap Glw Series</a>
+## <a href="https://www.amazon.com/dp/B0C6XBW6YF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">3d Sio2 Ceramic Wash &amp; Wax Soap Glw Series</a>
 
 
-<a href="https://www.amazon.com/dp/B0C6XBW6YF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="3D SiO2 Ceramic Wash &amp; Wax Soap GLW Series – pH Neutral Car Shampoo with Hydrophobic Protection &amp; Deep Gloss | SiO2 Coating | Scratch-Free Detailing |1 Gallon/64 oz" src="https://m.media-amazon.com/images/I/41wolh4-niL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C6XBW6YF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="3D SiO2 Ceramic Wash &amp; Wax Soap GLW Series – pH Neutral Car Shampoo with Hydrophobic Protection &amp; Deep Gloss | SiO2 Coating | Scratch-Free Detailing |1 Gallon/64 oz" src="https://m.media-amazon.com/images/I/41wolh4-niL._SL500_.jpg"/></a>
 
 
 The **3D SiO2 Ceramic Wash & Wax Soap GLW Series** is ideal for car enthusiasts and professional detailers who want a thorough yet gentle cleaning solution that also provides protective benefits. If you are looking for a reliable **pH neutral car shampoo** that maintains your vehicle's finish without causing scratches, this product is perfect for you. It is especially suitable for those seeking a combination of deep gloss and hydrophobic protection in one wash.
@@ -254,10 +254,10 @@ The **3D SiO2 Ceramic Wash & Wax Soap** combines advanced ceramic technology wit
 
 Additionally, the shampoo’s **pH neutral** composition means it is safe for all paint types and finishes, including ceramic-coated surfaces. This ensures a **scratch-free detailing** experience, preserving the integrity of your vehicle’s exterior. The deep gloss it imparts enhances the overall appearance, leaving your car looking showroom-ready after every wash. The convenient 1-gallon size provides great value, perfect for regular maintenance or professional use.
 
-## <a href="https://www.amazon.com/dp/B0FC6BMVZ2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Car Wash Soap For Ceramic Coating</a>
+## <a href="https://www.amazon.com/dp/B0FC6BMVZ2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Car Wash Soap For Ceramic Coating</a>
 
 
-<a href="https://www.amazon.com/dp/B0FC6BMVZ2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Car Wash Soap for Ceramic Coating 16oz, High Foaming Graphene Shampoo Powerful Cleaner &amp; Protection In One Step, Works with Car Wash Bucket, Foam Cannon &amp; Foam Gun, Safe for Satin &amp; Matte Finish Paint" src="https://m.media-amazon.com/images/I/518RyxJu9PL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FC6BMVZ2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Car Wash Soap for Ceramic Coating 16oz, High Foaming Graphene Shampoo Powerful Cleaner &amp; Protection In One Step, Works with Car Wash Bucket, Foam Cannon &amp; Foam Gun, Safe for Satin &amp; Matte Finish Paint" src="https://m.media-amazon.com/images/I/518RyxJu9PL._SL500_.jpg"/></a>
 
 
 Ideal for car enthusiasts and professional detailers, the **Car Wash Soap for Ceramic Coating 16oz** by EKSPOLAN is perfect for those who want to maintain and protect their vehicle's finish effortlessly. If you own a car with **ceramic coating** or have a **satin or matte finish paint**, this product is designed to clean effectively while preserving the integrity of your car’s surface.

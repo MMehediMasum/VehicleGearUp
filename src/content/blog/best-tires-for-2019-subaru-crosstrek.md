@@ -23,10 +23,10 @@ Whether driving in the city or on rough roads, these tires provide steady contro
 
 
 
-## <a href="https://www.amazon.com/dp/B0BLYWCJDM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bridgestone Sturdo Tl185/65% R15 Tubeless Car Tyre</a>
+## <a href="https://www.amazon.com/dp/B0BLYWCJDM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bridgestone Sturdo Tl185/65% R15 Tubeless Car Tyre</a>
 
 
-<a href="https://www.amazon.com/dp/B0BLYWCJDM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bridgestone Sturdo Tl185/65% R15 Tubeless Car Tyre" src="https://m.media-amazon.com/images/I/51DU2F7gaLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BLYWCJDM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bridgestone Sturdo Tl185/65% R15 Tubeless Car Tyre" src="https://m.media-amazon.com/images/I/51DU2F7gaLL._SL500_.jpg"/></a>
 
 
 The **Bridgestone Sturdo Tl185/65% R15 Tubeless Car Tyre** is ideal for car owners seeking a reliable and durable tyre that offers excellent performance on both city roads and highways. This tyre is perfect for drivers who prioritize safety, fuel efficiency, and a smooth driving experience. If you want a tubeless tyre that combines quality with value, this Bridgestone model is a great choice.
@@ -48,10 +48,10 @@ The **Bridgestone Sturdo Tl185/65% R15 Tubeless Car Tyre** features a robust bui
 
 In addition to safety and durability, the tyre’s relatively light weight contributes to better fuel economy and less strain on your vehicle’s suspension system. Being a product of **Bridgestone Tyre**, it benefits from advanced manufacturing technologies and quality control, ensuring that users get a reliable tyre that meets high standards. This combination of features makes it a smart investment for drivers looking for performance and peace of mind.
 
-## <a href="https://www.amazon.com/dp/B082D1VBCG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jk Tyre Ux Royale Tubeless Car Tyre</a>
+## <a href="https://www.amazon.com/dp/B082D1VBCG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jk Tyre Ux Royale Tubeless Car Tyre</a>
 
 
-<a href="https://www.amazon.com/dp/B082D1VBCG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JK Tyre 195/55 R16 UX Royale Tubeless Car Tyre" src="https://m.media-amazon.com/images/I/51POnM-E5sL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B082D1VBCG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JK Tyre 195/55 R16 UX Royale Tubeless Car Tyre" src="https://m.media-amazon.com/images/I/51POnM-E5sL._SL500_.jpg"/></a>
 
 
 The **JK Tyre 195/55 R16 UX Royale Tubeless Car Tyre** is ideal for car owners seeking a reliable and durable tyre that offers excellent performance for daily commuting and city driving. This tyre is perfect for those who prioritize safety, comfort, and fuel efficiency in their vehicles. If you own a sedan or hatchback and want a cost-effective yet high-quality tyre, this model is a suitable choice.
@@ -73,10 +73,10 @@ The **JK Tyre 195/55 R16 UX Royale** features a well-balanced size with a height
 
 Additionally, the tyre’s lightweight construction contributes to better mileage and improved fuel economy for your car. Manufactured by **JK Tyre and Industries Ltd.**, a trusted name in the tyre industry, the UX Royale model combines quality with affordability. Its robust build and reliable grip ensure enhanced driving stability, making it a practical choice for everyday use in urban and suburban environments.
 
-## <a href="https://www.amazon.com/dp/B07YFDBMFF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Goodyear Kelly Vfm3</a>
+## <a href="https://www.amazon.com/dp/B07YFDBMFF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Goodyear Kelly Vfm3</a>
 
 
-<a href="https://www.amazon.com/dp/B07YFDBMFF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Goodyear 155/80 R13 Kelly VFM3 79T Tubeless Car Tyre" src="https://m.media-amazon.com/images/I/31cYMhNfSfL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07YFDBMFF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Goodyear 155/80 R13 Kelly VFM3 79T Tubeless Car Tyre" src="https://m.media-amazon.com/images/I/31cYMhNfSfL._SL500_.jpg"/></a>
 
 
 The **Goodyear 155/80 R13 Kelly VFM3 79T Tubeless Car Tyre** is ideal for drivers seeking a reliable and durable tyre for everyday commuting and city driving. This tyre is perfect for those who prioritize safety, fuel efficiency, and a comfortable ride on compact and mid-sized vehicles. If you want a trusted brand tyre that balances performance and longevity, this product is an excellent choice.
@@ -98,10 +98,10 @@ The **Goodyear 155/80 R13 Kelly VFM3 79T Tubeless Car Tyre** combines a well-eng
 
 Additionally, the tyre's construction from a reputable manufacturer, **GOODYEAR TYRE**, guarantees consistent quality and durability. This tyre provides a balanced performance between longevity and traction, helping drivers maintain control in various weather conditions. Overall, this tyre is a smart investment for those looking for a dependable, efficient, and safe driving experience.
 
-## <a href="https://www.amazon.com/dp/B074SC4TPZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Goodyear Dp-m1 Tubeless Car Tyre</a>
+## <a href="https://www.amazon.com/dp/B074SC4TPZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Goodyear Dp-m1 Tubeless Car Tyre</a>
 
 
-<a href="https://www.amazon.com/dp/B074SC4TPZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Goodyear DP-M1 165/70% R14 81S Tubeless Car Tyre" src="https://m.media-amazon.com/images/I/51fXYcwTDiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B074SC4TPZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Goodyear DP-M1 165/70% R14 81S Tubeless Car Tyre" src="https://m.media-amazon.com/images/I/51fXYcwTDiL._SL500_.jpg"/></a>
 
 
 The **Goodyear DP-M1 165/70% R14 81S Tubeless Car Tyre** is an excellent choice for drivers seeking reliability and performance in their everyday commute. This tyre is ideal for urban and suburban drivers who prioritize safety and efficiency without compromising on quality. Whether you're a daily commuter, a family driver, or someone who often embarks on long road trips, this tyre offers the durability and comfort you need.
@@ -122,10 +122,10 @@ The **Goodyear DP-M1 165/70% R14 81S Tubeless Car Tyre** features a durable cons
 
 Another standout feature is its **optimal tread pattern**, which enhances grip and control on both wet and dry surfaces. This is particularly beneficial for urban drivers who encounter varying road conditions. The tyre's compatibility with a range of vehicle types adds to its versatility, making it a practical choice for many. While the **higher price point** might be a consideration, the **brand reputation** and **performance benefits** often justify the investment for those prioritizing safety and reliability.
 
-## <a href="https://www.amazon.com/dp/B078JDV66C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mrf Lt 165 D13 Savari N8 8pr Tube Tyre</a>
+## <a href="https://www.amazon.com/dp/B078JDV66C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mrf Lt 165 D13 Savari N8 8pr Tube Tyre</a>
 
 
-<a href="https://www.amazon.com/dp/B078JDV66C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MRF LT 165 D13 SAVARI N8 8PR Tube Tyre" src="https://m.media-amazon.com/images/I/51EIWs1BHcL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B078JDV66C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MRF LT 165 D13 SAVARI N8 8PR Tube Tyre" src="https://m.media-amazon.com/images/I/51EIWs1BHcL._SL500_.jpg"/></a>
 
 
 The **MRF LT 165 D13 SAVARI N8 8PR Tube Tyre** is ideal for vehicle owners who seek a durable and reliable tyre for their light trucks or commercial vehicles. If you prioritize strong performance, enhanced safety, and long-lasting tread life, this tyre is designed to meet those needs effectively. It is perfect for those who require dependable traction and stability on various road conditions.
@@ -147,10 +147,10 @@ The **MRF LT 165 D13 SAVARI N8 8PR Tube Tyre** stands out due to its robust buil
 
 Additionally, the tyre's design promotes reliable traction, increasing safety during adverse weather or challenging road surfaces. The brand reputation of **MRF** adds an extra layer of confidence for users seeking a quality product. While it is a tube tyre, which might require more upkeep than tubeless variants, its performance and durability make it a worthwhile investment for commercial vehicle operators.
 
-## <a href="https://www.amazon.com/dp/B0BLYVFPDL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bridgestone Sturdo Tl165 R14 Tubeless Car Tyre</a>
+## <a href="https://www.amazon.com/dp/B0BLYVFPDL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bridgestone Sturdo Tl165 R14 Tubeless Car Tyre</a>
 
 
-<a href="https://www.amazon.com/dp/B0BLYVFPDL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bridgestone Sturdo TL165 /80% R14 Tubeless Car Tyre" src="https://m.media-amazon.com/images/I/51DU2F7gaLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BLYVFPDL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bridgestone Sturdo TL165 /80% R14 Tubeless Car Tyre" src="https://m.media-amazon.com/images/I/51DU2F7gaLL._SL500_.jpg"/></a>
 
 
 The **Bridgestone Sturdo TL165 /80% R14 Tubeless Car Tyre** is ideal for drivers seeking a reliable and durable tyre for everyday commuting and city driving. Perfect for compact cars and small sedans, this tyre suits those who prioritize safety, fuel efficiency, and smooth handling on urban roads. If you want a trusted brand that offers consistent performance and longevity, this tyre is a great choice.
@@ -173,10 +173,10 @@ The **Bridgestone Sturdo TL165 /80% R14** tyre features a tubeless construction 
 
 Additionally, being manufactured by **Bridgestone**, a globally recognized tyre brand, guarantees that this product meets high standards of quality and performance. Its optimized dimensions fit perfectly on small sedans and hatchbacks, allowing drivers to experience improved control and stability. Overall, this tyre offers a great combination of safety, efficiency, and durability for those who prioritize everyday driving comfort.
 
-## <a href="https://www.amazon.com/dp/B07JCQ49YX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yokohama Earth 1</a>
+## <a href="https://www.amazon.com/dp/B07JCQ49YX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yokohama Earth 1</a>
 
 
-<a href="https://www.amazon.com/dp/B07JCQ49YX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yokohama Earth 1-185/70R14-88H Tubeless Passenger Car Tyre" src="https://m.media-amazon.com/images/I/41ZSYFG8PEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07JCQ49YX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yokohama Earth 1-185/70R14-88H Tubeless Passenger Car Tyre" src="https://m.media-amazon.com/images/I/41ZSYFG8PEL._SL500_.jpg"/></a>
 
 
 The **Yokohama Earth 1-185/70R14-88H Tubeless Passenger Car Tyre** is ideal for drivers seeking a reliable and durable tyre for everyday use on passenger cars. It is especially suited for those who prioritize safety, fuel efficiency, and smooth handling in urban and suburban driving conditions. If you want a quality tyre from a trusted brand that enhances your vehicle’s performance, this product is a great choice.
@@ -198,10 +198,10 @@ The **Yokohama Earth 1-185/70R14-88H** tyre features a tubeless construction tha
 
 Furthermore, the tyre is engineered with durability in mind, offering a balance between performance and longevity. The tread pattern and rubber compound are optimized to provide reliable grip in both wet and dry conditions, enhancing driver confidence. Choosing this tyre means investing in a product that supports smoother rides, better control, and reduced maintenance needs, all of which benefit the average passenger car owner.
 
-## <a href="https://www.amazon.com/dp/B07JB8NF8W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yokohama Earth 1</a>
+## <a href="https://www.amazon.com/dp/B07JB8NF8W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yokohama Earth 1</a>
 
 
-<a href="https://www.amazon.com/dp/B07JB8NF8W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yokohama Earth 1-185/65% R15-88H Tubeless Passenger Car Tyre" src="https://m.media-amazon.com/images/I/41ZSYFG8PEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07JB8NF8W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yokohama Earth 1-185/65% R15-88H Tubeless Passenger Car Tyre" src="https://m.media-amazon.com/images/I/41ZSYFG8PEL._SL500_.jpg"/></a>
 
 
 The **Yokohama Earth 1-185/65% R15-88H Tubeless Passenger Car Tyre** is ideal for drivers seeking a reliable, durable, and high-performance tyre for everyday use. This tyre is perfect for those who prioritize safety, fuel efficiency, and smooth handling in urban and suburban environments. If you own a passenger car and want a tyre that delivers consistent performance with advanced technology, this model is an excellent choice.
@@ -224,10 +224,10 @@ The **Yokohama Earth 1-185/65% R15-88H Tubeless Passenger Car Tyre** features a 
 
 Weighing just under 9 pounds, this tyre helps reduce the overall unsprung weight of the vehicle, which contributes to better fuel economy and smoother rides. As a product from the reputable **Yokohama** brand, it combines quality manufacturing standards with innovative design to deliver a tyre that meets the demands of everyday driving while maintaining comfort and reliability.
 
-## <a href="https://www.amazon.com/dp/B0BLYVRTKV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Bridgestone Sturdo Tubeless Car Tyre </a>
+## <a href="https://www.amazon.com/dp/B0BLYVRTKV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Bridgestone Sturdo Tubeless Car Tyre </a>
 
 
-<a href="https://www.amazon.com/dp/B0BLYVRTKV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bridgestone Sturdo TL185/70R14 Tubeless Car Tyre" src="https://m.media-amazon.com/images/I/51DU2F7gaLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BLYVRTKV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bridgestone Sturdo TL185/70R14 Tubeless Car Tyre" src="https://m.media-amazon.com/images/I/51DU2F7gaLL._SL500_.jpg"/></a>
 
 
 The **Bridgestone Sturdo TL185/70R14 Tubeless Car Tyre** is ideal for drivers seeking a reliable and durable tyre for everyday use. Perfect for compact and mid-sized vehicles, this tyre suits those who prioritize safety, fuel efficiency, and smooth handling on both city roads and highways. If you want a quality tyre from a trusted brand like **Bridgestone** with tubeless technology, this product is designed for you.
@@ -249,10 +249,10 @@ The **Bridgestone Sturdo TL185/70R14** features a robust design that enhances tr
 
 Additionally, being manufactured by **Honda** ensures that the tyre meets stringent quality and performance standards. Drivers will appreciate the enhanced grip on wet and dry surfaces, which boosts safety during adverse weather conditions. Overall, the Bridgestone Sturdo TL185/70R14 combines durability, efficiency, and safety, making it a smart investment for everyday drivers who want consistent, high-quality performance from their tyres.
 
-## <a href="https://www.amazon.com/dp/B0995QNPFM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Apollo Tyres Alnac 4g</a>
+## <a href="https://www.amazon.com/dp/B0995QNPFM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Apollo Tyres Alnac 4g</a>
 
 
-<a href="https://www.amazon.com/dp/B0995QNPFM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Apollo tyres Alnac 4G 195/55% R16 87V Tubeless Car Tyre" src="https://m.media-amazon.com/images/I/51Ieda2-V2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0995QNPFM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Apollo tyres Alnac 4G 195/55% R16 87V Tubeless Car Tyre" src="https://m.media-amazon.com/images/I/51Ieda2-V2L._SL500_.jpg"/></a>
 
 
 The **Apollo tyres Alnac 4G 195/55% R16 87V Tubeless Car Tyre** is ideal for car owners seeking a reliable and durable tyre that offers excellent performance in both wet and dry conditions. This tyre suits daily commuters and long-distance drivers who prioritize safety, comfort, and fuel efficiency. If you want a tyre that balances quality with affordability, this product is a great choice.

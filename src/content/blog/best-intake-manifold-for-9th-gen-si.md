@@ -23,10 +23,10 @@ Some manifolds suit other Honda and Acura models too, offering versatility. Alum
 
 
 
-## <a href="https://www.amazon.com/dp/B0F637HB5J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wikibb Fuel Injector Adapter For Honda Civic Si 9th Gen</a>
+## <a href="https://www.amazon.com/dp/B0F637HB5J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wikibb Fuel Injector Adapter For Honda Civic Si 9th Gen</a>
 
 
-<a href="https://www.amazon.com/dp/B0F637HB5J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="WIKIBB For 12+ Honda Civic Si 9th Gen R40 K24 Fuel Injector Adapter RBC Intake Manifold" src="https://m.media-amazon.com/images/I/41OElBpJKjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F637HB5J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="WIKIBB For 12+ Honda Civic Si 9th Gen R40 K24 Fuel Injector Adapter RBC Intake Manifold" src="https://m.media-amazon.com/images/I/41OElBpJKjL._SL500_.jpg"/></a>
 
 
 The **WIKIBB For 12+ Honda Civic Si 9th Gen R40 K24 Fuel Injector Adapter RBC Intake Manifold** is ideal for automotive enthusiasts and Honda Civic Si owners looking to upgrade or replace their fuel injection system. This product is perfect for those who want to enhance their engine's performance with a reliable and precisely engineered adapter, ensuring compatibility and optimal fuel delivery.
@@ -49,10 +49,10 @@ The **WIKIBB Fuel Injector Adapter** is crafted to precisely fit the **RBC Intak
 
 By facilitating the proper installation of fuel injectors, this adapter improves fuel atomization and delivery, which translates to more efficient combustion and enhanced throttle response. Users will appreciate the improved engine reliability and potential gains in horsepower when paired with the right fuel injectors and tuning. This makes it a valuable upgrade for those seeking to optimize their Civic Si’s performance without extensive modifications.
 
-## <a href="https://www.amazon.com/dp/B00RV5YVWK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Skunk2 Racing Cold Air Intake Coupler</a>
+## <a href="https://www.amazon.com/dp/B00RV5YVWK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Skunk2 Racing Cold Air Intake Coupler</a>
 
 
-<a href="https://www.amazon.com/dp/B00RV5YVWK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Skunk2 Racing 943-05-0120 9th Gen Cold Air Intake Coupler" src="https://m.media-amazon.com/images/I/41sLZMwNjuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00RV5YVWK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Skunk2 Racing 943-05-0120 9th Gen Cold Air Intake Coupler" src="https://m.media-amazon.com/images/I/41sLZMwNjuL._SL500_.jpg"/></a>
 
 
 The **Skunk2 Racing 943-05-0120 9th Gen Cold Air Intake Coupler** is ideal for automotive enthusiasts and performance car owners looking to enhance their vehicle’s air intake system. Specifically designed for the 9th generation models, this product is perfect for those who want to improve engine efficiency, increase horsepower, and achieve better throttle response through a high-quality, reliable coupler.
@@ -74,10 +74,10 @@ The **Skunk2 Racing 9th Gen Cold Air Intake Coupler** is engineered to connect a
 
 Additionally, the coupler’s precise fitment for 9th generation models eliminates common issues like improper sealing or misalignment, which can reduce engine performance. By enhancing the air intake pathway, users can experience better throttle response, smoother acceleration, and potentially increased fuel efficiency. This makes it a worthwhile upgrade for anyone serious about optimizing their vehicle’s performance.
 
-## <a href="https://www.amazon.com/dp/B095JGCPP2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Goodfind68 New Intake Manifold Coolant Adapter Plate</a>
+## <a href="https://www.amazon.com/dp/B095JGCPP2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Goodfind68 New Intake Manifold Coolant Adapter Plate</a>
 
 
-<a href="https://www.amazon.com/dp/B095JGCPP2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Goodfind68 New Intake Manifold Coolant Adapter Plate compatible with Honda Acura K20 K24" src="https://m.media-amazon.com/images/I/41dqYfzeOgS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B095JGCPP2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Goodfind68 New Intake Manifold Coolant Adapter Plate compatible with Honda Acura K20 K24" src="https://m.media-amazon.com/images/I/41dqYfzeOgS._SL500_.jpg"/></a>
 
 
 The **Goodfind68 New Intake Manifold Coolant Adapter Plate** is an excellent choice for automotive enthusiasts and mechanics who own or work on **Honda** and **Acura K20 K24** engines. This product is ideal for those seeking a reliable and efficient replacement part that enhances the cooling system's performance. If you want to maintain or improve your vehicle’s engine cooling without compromising quality, this adapter plate is designed to meet your needs.
@@ -99,10 +99,10 @@ The **Goodfind68 Intake Manifold Coolant Adapter Plate** features precision engi
 
 By integrating this adapter plate into your vehicle’s cooling system, you benefit from reduced engine overheating risks and enhanced overall engine efficiency. The design simplifies installation, making it accessible for both professional mechanics and knowledgeable car enthusiasts. Ultimately, this product helps prolong the lifespan of your engine while boosting its performance under various driving conditions.
 
-## <a href="https://www.amazon.com/dp/B008M5JR1S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Skunk2 Racing Pro Series Silver Intake Manifold</a>
+## <a href="https://www.amazon.com/dp/B008M5JR1S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Skunk2 Racing Pro Series Silver Intake Manifold</a>
 
 
-<a href="https://www.amazon.com/dp/B008M5JR1S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Skunk2 Racing 307-05-0260 Pro Series Silver Intake Manifold for Honda D-Series Engines" src="https://m.media-amazon.com/images/I/41WRQ+2jDWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B008M5JR1S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Skunk2 Racing 307-05-0260 Pro Series Silver Intake Manifold for Honda D-Series Engines" src="https://m.media-amazon.com/images/I/41WRQ+2jDWL._SL500_.jpg"/></a>
 
 
 The **Skunk2 Racing 307-05-0260 Pro Series Silver Intake Manifold** is ideal for automotive enthusiasts and professional tuners who own Honda D-Series engines. If you are looking to enhance your engine's performance, improve throttle response, and increase horsepower, this intake manifold is designed specifically for you. It suits those who want a reliable upgrade that combines quality engineering with a sleek silver finish.
@@ -125,10 +125,10 @@ The **Skunk2 Racing Pro Series Intake Manifold** is engineered to maximize airfl
 
 Installation is straightforward, making it accessible even for those with moderate mechanical skills. By improving air intake dynamics, this manifold supports higher RPMs and better torque distribution, which is essential for tuning enthusiasts looking to push their engines to the next level. Overall, the **Skunk2 Racing 307-05-0260** is a smart investment for anyone seeking a balance between performance, reliability, and style in their Honda D-Series engine upgrade.
 
-## <a href="https://www.amazon.com/dp/B0CCVCRWPC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wenjtp Intake Manifold Aluminum</a>
+## <a href="https://www.amazon.com/dp/B0CCVCRWPC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wenjtp Intake Manifold Aluminum</a>
 
 
-<a href="https://www.amazon.com/dp/B0CCVCRWPC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="WENJTP Intake Manifold Aluminum Compatible with Honda Civic Acura Del Sol Integra B Series VTEC Engines 1992-2001 Black" src="https://m.media-amazon.com/images/I/41Qt4wTpujL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CCVCRWPC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="WENJTP Intake Manifold Aluminum Compatible with Honda Civic Acura Del Sol Integra B Series VTEC Engines 1992-2001 Black" src="https://m.media-amazon.com/images/I/41Qt4wTpujL._SL500_.jpg"/></a>
 
 
 The **WENJTP Intake Manifold Aluminum** is ideal for automotive enthusiasts and mechanics who own or work on **Honda Civic**, **Acura Del Sol**, or **Integra B Series VTEC engines** from the years **1992-2001**. If you are looking to enhance your engine’s performance with a reliable and durable intake manifold, this product is tailored for you. Its compatibility and build quality make it a smart upgrade for those focused on improving airflow and engine efficiency.
@@ -151,10 +151,10 @@ The **WENJTP Intake Manifold Aluminum** features a robust design crafted to opti
 
 Compatibility is a significant advantage of this intake manifold. Specifically designed for **Honda Civic**, **Acura Del Sol**, and **Integra B Series VTEC engines** from 1992 to 2001, it guarantees a perfect fit and seamless integration. By improving airflow with precise engineering, users can experience enhanced throttle response and increased power output. This makes the **WENJTP Intake Manifold** a valuable upgrade for those seeking both performance and reliability in their engine components.
 
-## <a href="https://www.amazon.com/dp/B0CKM9P1NH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">92mm Intake Manifold With Fuel Rails &amp; Throttle Body</a>
+## <a href="https://www.amazon.com/dp/B0CKM9P1NH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">92mm Intake Manifold With Fuel Rails &amp; Throttle Body</a>
 
 
-<a href="https://www.amazon.com/dp/B0CKM9P1NH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="92MM Intake Manifold with Fuel Rails &amp; Throttle Body for 1997-2009 Chevrolet Pontiac Cadillac Saab for GMC LS LS1 LS2 LS6 LSX L99 L92 6.0L 5.7L 5.6L 5.3L 4.8L V8 with AN6 Fuel Crossover Line" src="https://m.media-amazon.com/images/I/519tzTcFDLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CKM9P1NH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="92MM Intake Manifold with Fuel Rails &amp; Throttle Body for 1997-2009 Chevrolet Pontiac Cadillac Saab for GMC LS LS1 LS2 LS6 LSX L99 L92 6.0L 5.7L 5.6L 5.3L 4.8L V8 with AN6 Fuel Crossover Line" src="https://m.media-amazon.com/images/I/519tzTcFDLL._SL500_.jpg"/></a>
 
 
 The **92MM Intake Manifold with Fuel Rails & Throttle Body** is ideal for automotive enthusiasts and mechanics looking to upgrade or replace parts on their **1997-2009 Chevrolet, Pontiac, Cadillac, Saab, or GMC vehicles** equipped with **LS series engines** such as LS, LS1, LS2, LS6, LSX, L99, and L92. This product is perfect for those who want to enhance engine performance, improve fuel delivery, and ensure compatibility with multiple V8 engines ranging from 4.8L to 6.0L.
@@ -177,10 +177,10 @@ This **92MM Intake Manifold** is engineered to optimize the air and fuel mixture
 
 Additionally, the **AN6 fuel crossover line** integrated into this system supports smooth fuel flow between rails, minimizing pressure drops and ensuring stable fuel supply during high-performance driving. This helps maintain engine reliability while maximizing power output. Whether you're upgrading for street performance or preparing for track use, this intake manifold setup offers a solid balance of quality, functionality, and compatibility for your V8 engine needs.
 
-## <a href="https://www.amazon.com/dp/B0DN1G7897?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jghyperx Dual Plane Mid-rise Intake Manifold Aluminum</a>
+## <a href="https://www.amazon.com/dp/B0DN1G7897?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jghyperx Dual Plane Mid-rise Intake Manifold Aluminum</a>
 
 
-<a href="https://www.amazon.com/dp/B0DN1G7897?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JGhyperX 300-129 Dual Plane Mid-Rise Intake Manifold Aluminum Compatible with GM Chevy small block Gen III and IV LS3 LS92 364 376 V8 Engine" src="https://m.media-amazon.com/images/I/41t-AvtolmL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DN1G7897?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JGhyperX 300-129 Dual Plane Mid-Rise Intake Manifold Aluminum Compatible with GM Chevy small block Gen III and IV LS3 LS92 364 376 V8 Engine" src="https://m.media-amazon.com/images/I/41t-AvtolmL._SL500_.jpg"/></a>
 
 
 The **JGhyperX 300-129 Dual Plane Mid-Rise Intake Manifold** is an ideal choice for automotive enthusiasts and performance-driven individuals who own a **GM Chevy small block Gen III and IV LS3 LS92 364 376 V8 Engine**. This product is perfect for those looking to enhance their engine's performance and achieve better throttle response and power output. If you're someone who regularly participates in car shows, races, or simply loves to upgrade your vehicle, this manifold is tailored for you.
@@ -201,10 +201,10 @@ The **JGhyperX 300-129 Dual Plane Mid-Rise Intake Manifold** features an advance
 
 With its **mid-rise design**, this manifold provides a balanced increase in power across a wide RPM range, making it suitable for both street and track use. The compatibility with various **GM Chevy small block Gen III and IV LS3 LS92 364 376 V8 Engines** means that it caters to a broad spectrum of vehicles, offering flexibility to car enthusiasts who own different models. While installation might require a bit of expertise, the performance benefits it brings make it a worthwhile investment for those serious about upgrading their engine's capabilities.
 
-## <a href="https://www.amazon.com/dp/B00XC8DFWC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Skunk2 Ultra Silver Race Intake Manifold</a>
+## <a href="https://www.amazon.com/dp/B00XC8DFWC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Skunk2 Ultra Silver Race Intake Manifold</a>
 
 
-<a href="https://www.amazon.com/dp/B00XC8DFWC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Skunk2 307-05-9200 Ultra Silver Race Intake Manifold (3.5 Liters) Honda D Series VTEC" src="https://m.media-amazon.com/images/I/41jzGnPcSUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00XC8DFWC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Skunk2 307-05-9200 Ultra Silver Race Intake Manifold (3.5 Liters) Honda D Series VTEC" src="https://m.media-amazon.com/images/I/41jzGnPcSUL._SL500_.jpg"/></a>
 
 
 The **Skunk2 307-05-9200 Ultra Silver Race Intake Manifold** is ideal for automotive enthusiasts and performance-focused Honda owners, particularly those with a **3.5 Liter Honda D Series VTEC** engine. If you are looking to enhance your engine's airflow and overall power output, this intake manifold is designed to meet the demands of high-performance street or track applications.
@@ -226,10 +226,10 @@ The **Skunk2 Ultra Silver Race Intake Manifold** enhances engine breathing by op
 
 Additionally, the lightweight construction reduces overall engine weight, which can contribute to improved vehicle handling and fuel efficiency. Whether you are upgrading for racing or spirited street driving, this intake manifold offers a balance of performance and reliability that aligns with the needs of serious Honda performance enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B0DXGXRQVD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dart Bbc Intake Manifold</a>
+## <a href="https://www.amazon.com/dp/B0DXGXRQVD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dart Bbc Intake Manifold</a>
 
 
-<a href="https://www.amazon.com/dp/B0DXGXRQVD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="DART DRT41616010 BBC Intake Manifold - Gen-7 8.1L" src="https://m.media-amazon.com/images/I/41SSe3IgCyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DXGXRQVD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="DART DRT41616010 BBC Intake Manifold - Gen-7 8.1L" src="https://m.media-amazon.com/images/I/41SSe3IgCyL._SL500_.jpg"/></a>
 
 
 The **DART DRT41616010 BBC Intake Manifold - Gen-7 8.1L** is ideal for automotive enthusiasts and professional mechanics looking to enhance the performance of their big block Chevrolet engines. If you are seeking improved airflow, increased horsepower, and a reliable upgrade for your 8.1L Gen-7 engine, this intake manifold is designed specifically to meet those needs.
@@ -252,10 +252,10 @@ The **DART DRT41616010 BBC Intake Manifold** features a precision-machined const
 
 Additionally, the intake manifold's durable materials and expert craftsmanship from **DART** ensure long-lasting performance even under demanding conditions. This means users can expect reliable operation and reduced maintenance over time. By improving throttle response and fuel delivery, this component helps drivers experience a more responsive and exhilarating driving experience, making it a valuable upgrade for both street and track applications.
 
-## <a href="https://www.amazon.com/dp/B0B2WVJT28?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">A-premium Engine Aluminum Single Plane Carb Mid-rise Intake Manifold</a>
+## <a href="https://www.amazon.com/dp/B0B2WVJT28?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">A-premium Engine Aluminum Single Plane Carb Mid-rise Intake Manifold</a>
 
 
-<a href="https://www.amazon.com/dp/B0B2WVJT28?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="A-Premium Engine Aluminum Single Plane Carb Mid-Rise Intake Manifold Compatible with Chevy GM LS Gen III, IV LS3 L92 - Rectangular Port Cylinder Heads - 2500-7000 RPM, 5.42 inch HT, w/Seals &amp; Bolts" src="https://m.media-amazon.com/images/I/418x7X+h5zL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B2WVJT28?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="A-Premium Engine Aluminum Single Plane Carb Mid-Rise Intake Manifold Compatible with Chevy GM LS Gen III, IV LS3 L92 - Rectangular Port Cylinder Heads - 2500-7000 RPM, 5.42 inch HT, w/Seals &amp; Bolts" src="https://m.media-amazon.com/images/I/418x7X+h5zL._SL500_.jpg"/></a>
 
 
 The **A-Premium Engine Aluminum Single Plane Carb Mid-Rise Intake Manifold** is ideal for automotive enthusiasts and professional mechanics looking to enhance the performance of their **Chevy GM LS Gen III and IV engines**. Specifically designed for those using **LS3 L92 rectangular port cylinder heads**, this intake manifold is perfect for users who want to achieve improved airflow and power in the **2500-7000 RPM** range. If you're aiming to boost your engine's efficiency and overall horsepower with a reliable and durable component, this product is a great choice.

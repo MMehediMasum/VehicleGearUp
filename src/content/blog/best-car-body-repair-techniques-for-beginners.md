@@ -23,10 +23,10 @@ Clear instructions make learning simple, even if you have little experience. By 
 
 
 
-## <a href="https://www.amazon.com/dp/0760343888?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">How To Paint Your Car</a>
+## <a href="https://www.amazon.com/dp/0760343888?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">How To Paint Your Car</a>
 
 
-<a href="https://www.amazon.com/dp/0760343888?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="How to Paint Your Car: Revised &amp; Updated (Motorbooks Workshop)" src="https://m.media-amazon.com/images/I/51KuO2rx1OL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/0760343888?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="How to Paint Your Car: Revised &amp; Updated (Motorbooks Workshop)" src="https://m.media-amazon.com/images/I/51KuO2rx1OL._SL500_.jpg"/></a>
 
 
 The book **How to Paint Your Car: Revised & Updated** by **Motorbooks** is ideal for car enthusiasts, DIY hobbyists, and professional painters looking to enhance their skills. If you want a comprehensive guide that covers the latest techniques in automotive painting, this **updated edition** offers detailed instructions suitable for both beginners and experienced users.
@@ -49,10 +49,10 @@ This book’s **192 pages** provide a thorough overview of the entire car painti
 
 The practical advice and tips included in this guide not only simplify complex steps but also improve the overall efficiency and outcome of the painting project. Whether you are repainting a single panel or undertaking a full vehicle respray, the book’s structured approach supports users in avoiding common mistakes, saving time and money. With its clear layout and expert content, **How to Paint Your Car** is a valuable resource for anyone eager to master the art of automotive painting.
 
-## <a href="https://www.amazon.com/dp/0760343446?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Total Control</a>
+## <a href="https://www.amazon.com/dp/0760343446?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Total Control</a>
 
 
-<a href="https://www.amazon.com/dp/0760343446?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Total Control: High Performance Street Riding Techniques, 2nd Edition" src="https://m.media-amazon.com/images/I/51l94sk0hVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/0760343446?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Total Control: High Performance Street Riding Techniques, 2nd Edition" src="https://m.media-amazon.com/images/I/51l94sk0hVL._SL500_.jpg"/></a>
 
 
 The **Total Control: High Performance Street Riding Techniques, 2nd Edition** is ideal for motorcycle enthusiasts who want to enhance their riding skills, particularly those focused on street riding. Whether you are a beginner seeking to build a solid foundation or an experienced rider aiming to refine advanced techniques, this book offers valuable insights to improve your control, safety, and confidence on the road.
@@ -74,10 +74,10 @@ The book’s **10.625-inch height** and **8.375-inch width** provide a well-size
 
 Published by **Motorbooks**, a trusted name in automotive literature, the second edition reflects refinements and updates based on rider feedback and evolving riding practices. This makes it a reliable resource for improving overall riding performance and safety. The book’s emphasis on control and technique translates into increased rider confidence and enjoyment, making it an excellent investment for anyone serious about mastering street riding.
 
-## <a href="https://www.amazon.com/dp/1932494227?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">How To Paint Your Car On A Budget</a>
+## <a href="https://www.amazon.com/dp/1932494227?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">How To Paint Your Car On A Budget</a>
 
 
-<a href="https://www.amazon.com/dp/1932494227?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="How to Paint Your Car on a Budget (Cartech)" src="https://m.media-amazon.com/images/I/510a1HmhJgL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/1932494227?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="How to Paint Your Car on a Budget (Cartech)" src="https://m.media-amazon.com/images/I/510a1HmhJgL._SL500_.jpg"/></a>
 
 
 **How to Paint Your Car on a Budget (Cartech)** is ideal for car enthusiasts, DIY hobbyists, and anyone looking to save money while giving their vehicle a fresh, professional-looking paint job. If you want to avoid costly auto body shops and prefer a hands-on approach, this guide from **Cartech Inc** is tailored for you. It is perfect for beginners and intermediate users who want clear, step-by-step instructions without compromising on quality.
@@ -100,10 +100,10 @@ This book’s compact size with dimensions of **11.0 inches in height, 8.5 inche
 
 Beyond just instructions, the book highlights the benefits of choosing the right materials and tools, which can significantly impact the durability and appearance of the paint. Readers will appreciate how it balances cost-saving strategies without sacrificing the final look. The **First Edition** status also adds value for collectors or those interested in original automotive guides. Overall, this publication is a valuable asset for anyone looking to give their car a fresh coat of paint while keeping expenses manageable.
 
-## <a href="https://www.amazon.com/dp/0760365741?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sheet Metal Shaping: Tools, Skills, And Projects</a>
+## <a href="https://www.amazon.com/dp/0760365741?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sheet Metal Shaping: Tools, Skills, And Projects</a>
 
 
-<a href="https://www.amazon.com/dp/0760365741?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Sheet Metal Shaping: Tools, Skills, and Projects (Motorbooks Workshop)" src="https://m.media-amazon.com/images/I/515Qhe6kDiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/0760365741?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Sheet Metal Shaping: Tools, Skills, and Projects (Motorbooks Workshop)" src="https://m.media-amazon.com/images/I/515Qhe6kDiL._SL500_.jpg"/></a>
 
 
 The **ideal customer** for "Sheet Metal Shaping: Tools, Skills, and Projects" is anyone looking to develop or enhance their **metalworking skills**. Whether you're a **beginner** seeking to understand the **basics** or an experienced artisan wanting to refine your **technique**, this book offers a comprehensive guide to mastering **sheet metal shaping**. Hobbyists, **craftsmen**, and **automotive enthusiasts** will find this resource particularly valuable for its practical insights and detailed projects.
@@ -124,10 +124,10 @@ The book's **features** include a well-organized structure that guides readers t
 
 Another significant benefit is the book's **focus** on real-world applications. By including various **projects**, readers can immediately apply what they've learned, which reinforces their skills and boosts their **confidence** in metalworking. The projects vary in difficulty, catering to different experience levels and allowing users to progress at their own pace. This makes "Sheet Metal Shaping: Tools, Skills, and Projects" not just a manual but a **companion** for anyone passionate about mastering the art of metal shaping.
 
-## <a href="https://www.amazon.com/dp/0760327491?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">How To Pinstripe</a>
+## <a href="https://www.amazon.com/dp/0760327491?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">How To Pinstripe</a>
 
 
-<a href="https://www.amazon.com/dp/0760327491?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="How To Pinstripe (Motorbooks Workshop)" src="https://m.media-amazon.com/images/I/51ASUZOl4pL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/0760327491?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="How To Pinstripe (Motorbooks Workshop)" src="https://m.media-amazon.com/images/I/51ASUZOl4pL._SL500_.jpg"/></a>
 
 
 Ideal for **automotive enthusiasts**, **custom car painters**, and anyone interested in mastering the art of **pinstriping**, **How To Pinstripe (Motorbooks Workshop)** offers an in-depth guide to this intricate craft. Whether you're a beginner looking to learn the basics or a seasoned artist aiming to refine your techniques, this book provides valuable insights and practical tips for creating professional-quality pinstripes.
@@ -150,10 +150,10 @@ Ideal for **automotive enthusiasts**, **custom car painters**, and anyone intere
 
 Additionally, the book's format and size make it easy to use as a reference guide during actual pinstriping projects. Its 160 pages are packed with useful information, making it a valuable resource for anyone wanting to elevate their custom automotive painting or artistic projects. Overall, this edition by **Motorbooks** is a solid investment for those passionate about this unique craft.
 
-## <a href="https://www.amazon.com/dp/B001GUZP4O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Martin Bfb The Key To Metal Bumping Manual Instruction Book</a>
+## <a href="https://www.amazon.com/dp/B001GUZP4O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Martin Bfb The Key To Metal Bumping Manual Instruction Book</a>
 
 
-<a href="https://www.amazon.com/dp/B001GUZP4O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Martin BFB The Key to Metal Bumping Manual Instruction Book, 126 Pages" src="https://m.media-amazon.com/images/I/41y80ov1k6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B001GUZP4O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Martin BFB The Key to Metal Bumping Manual Instruction Book, 126 Pages" src="https://m.media-amazon.com/images/I/41y80ov1k6L._SL500_.jpg"/></a>
 
 
 The **Martin BFB The Key to Metal Bumping Manual Instruction Book** is ideal for professionals and enthusiasts in the metalworking industry who want to enhance their skills in metal bumping techniques. Whether you are a machinist, engineer, or hobbyist looking to deepen your understanding of precision metal shaping, this manual offers comprehensive guidance to help you achieve excellent results.
@@ -174,10 +174,10 @@ This instruction book focuses on providing in-depth knowledge about metal bumpin
 
 Users benefit from the manual’s practical insights, which can increase efficiency and precision in metal bumping operations. Its compact design makes it portable, allowing users to carry it easily to workshops or job sites. Overall, this manual is a valuable resource for anyone looking to master the art of metal bumping with clear, reliable instruction.
 
-## <a href="https://www.amazon.com/dp/1932494847?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Build Max-perf Chevy Sb On A Budget</a>
+## <a href="https://www.amazon.com/dp/1932494847?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Build Max-perf Chevy Sb On A Budget</a>
 
 
-<a href="https://www.amazon.com/dp/1932494847?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Build Max-Perf Chevy SB on a Budget (Performance How-To)" src="https://m.media-amazon.com/images/I/51fvdsO-UWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/1932494847?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Build Max-Perf Chevy SB on a Budget (Performance How-To)" src="https://m.media-amazon.com/images/I/51fvdsO-UWL._SL500_.jpg"/></a>
 
 
 Ideal for automotive enthusiasts and mechanics looking to enhance their **Chevy Small Block (SB) engine** performance without breaking the bank, **Build Max-Perf Chevy SB on a Budget (Performance How-To)** is perfect for those who want detailed guidance on building a powerful engine affordably and effectively.

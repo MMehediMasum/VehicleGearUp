@@ -23,10 +23,10 @@ From lightweight to armored designs, these boots suit different trail conditions
 
 
 
-## <a href="https://www.amazon.com/dp/B0924W3TMY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tourmaster Men's Trailblazer Motorcycle Boots</a>
+## <a href="https://www.amazon.com/dp/B0924W3TMY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tourmaster Men's Trailblazer Motorcycle Boots</a>
 
 
-<a href="https://www.amazon.com/dp/B0924W3TMY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tourmaster Men's Trailblazer Motorcycle Boots" src="https://m.media-amazon.com/images/I/411QaOX1-HL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0924W3TMY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tourmaster Men's Trailblazer Motorcycle Boots" src="https://m.media-amazon.com/images/I/411QaOX1-HL._SL500_.jpg"/></a>
 
 
 The **Tourmaster Men's Trailblazer Motorcycle Boots** are ideal for motorcycle enthusiasts who seek a combination of style, durability, and comfort. Perfect for riders who spend long hours on the road and need reliable protection, these boots suit both casual riders and those who enjoy more adventurous trail rides. If you prioritize sturdy footwear that supports your feet while enhancing your riding experience, these boots are a great choice.
@@ -49,10 +49,10 @@ The **Tourmaster Men's Trailblazer Motorcycle Boots** feature a robust design th
 
 Beyond protection, these boots offer a stylish look with their rich **brown color**, easily complementing various motorcycle apparel. The thoughtfully engineered dimensions ensure a secure fit that supports natural movement, helping reduce fatigue during long rides. Overall, the combination of quality craftsmanship and rider-focused features makes these boots a valuable addition to any motorcyclist’s gear collection.
 
-## <a href="https://www.amazon.com/dp/B07SG8HCYB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">O'neal Element Dirt Bike Boot</a>
+## <a href="https://www.amazon.com/dp/B07SG8HCYB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">O'neal Element Dirt Bike Boot</a>
 
 
-<a href="https://www.amazon.com/dp/B07SG8HCYB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="O'NEAL Element Dirt Bike Boot Black 10" src="https://m.media-amazon.com/images/I/41mb9lRzXKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07SG8HCYB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="O'NEAL Element Dirt Bike Boot Black 10" src="https://m.media-amazon.com/images/I/41mb9lRzXKL._SL500_.jpg"/></a>
 
 
 The **O'NEAL Element Dirt Bike Boot Black 10** is ideal for motocross enthusiasts and off-road riders seeking durable and reliable footwear. If you prioritize protection, comfort, and style while navigating rough terrains, this boot is designed to meet your needs effectively. Riders who demand long-lasting gear to withstand harsh conditions will find this boot particularly suitable.
@@ -74,10 +74,10 @@ The **O'NEAL Element Dirt Bike Boot** features a sturdy build designed to protec
 
 With a sleek **black color** and ergonomic design, this boot not only enhances safety but also delivers comfort for long rides. The width of 7.0 inches and length of 18.0 inches accommodate most foot sizes while maintaining a secure fit. Riders will appreciate the blend of functionality and style, making the O'NEAL Element Dirt Bike Boot a dependable choice for both casual and professional dirt bike riders.
 
-## <a href="https://www.amazon.com/dp/B0DJM74VS6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Zeozoom Motorcycle Riding Boots</a>
+## <a href="https://www.amazon.com/dp/B0DJM74VS6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Zeozoom Motorcycle Riding Boots</a>
 
 
-<a href="https://www.amazon.com/dp/B0DJM74VS6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Zeozoom Motorcycle Riding Boots Motorcycle Leather Boots for Women and Men Protection Anti Slip Racing Sports (White, Adult, Men, 5, Numeric, US Footwear Size System, Medium)" src="https://m.media-amazon.com/images/I/41dSgNcY21L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DJM74VS6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Zeozoom Motorcycle Riding Boots Motorcycle Leather Boots for Women and Men Protection Anti Slip Racing Sports (White, Adult, Men, 5, Numeric, US Footwear Size System, Medium)" src="https://m.media-amazon.com/images/I/41dSgNcY21L._SL500_.jpg"/></a>
 
 
 The **Zeozoom Motorcycle Riding Boots** are ideal for both **men and women** who seek reliable and stylish **motorcycle leather boots** for protection during riding. These boots are perfect for riders looking for a balance between safety, comfort, and performance, especially those involved in **racing** or **sports** activities requiring **anti-slip** footwear. If you want durable boots that support your feet while providing excellent grip on various surfaces, this product is a great choice.
@@ -99,10 +99,10 @@ The **Zeozoom Motorcycle Leather Boots** boast a high-quality construction, comb
 
 Comfort is another standout feature, as the boots come in a **medium fit** with precise numeric sizing according to the US footwear system, ensuring a snug yet comfortable wear. The boots' lightweight design reduces fatigue on long rides, while the breathable leather material helps regulate temperature and moisture. Overall, these boots blend functionality and style, making them a reliable choice for any motorcycle enthusiast seeking safety and performance.
 
-## <a href="https://www.amazon.com/dp/B073XXCBDB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">O'neal Boys New Logo Rider Boot</a>
+## <a href="https://www.amazon.com/dp/B073XXCBDB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">O'neal Boys New Logo Rider Boot</a>
 
 
-<a href="https://www.amazon.com/dp/B073XXCBDB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="O'Neal - 0325-101 Boys New Logo Rider Boot (Black, Size 1)" src="https://m.media-amazon.com/images/I/41gBJPs6NzL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B073XXCBDB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="O'Neal - 0325-101 Boys New Logo Rider Boot (Black, Size 1)" src="https://m.media-amazon.com/images/I/41gBJPs6NzL._SL500_.jpg"/></a>
 
 
 The **O'Neal - 0325-101 Boys New Logo Rider Boot** in **Black** (Size 1) is ideal for young riders who need durable and reliable footwear for motocross or dirt biking. This boot is perfect for boys who are beginning their riding journey and require protection, comfort, and style tailored to their size and needs.
@@ -124,10 +124,10 @@ The **O'Neal Boys New Logo Rider Boot** offers an excellent balance between prot
 
 Additionally, the boot's lightweight design at just 4.25 pounds reduces the strain on young riders' legs during long rides or practice sessions. The sleek black color with the updated logo adds a modern and appealing aesthetic, giving kids the confidence to ride in style. Overall, this boot combines functionality and design tailored specifically for young motocross enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B07JVL8MT5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Free Soldier Men's Tactical Boots</a>
+## <a href="https://www.amazon.com/dp/B07JVL8MT5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Free Soldier Men's Tactical Boots</a>
 
 
-<a href="https://www.amazon.com/dp/B07JVL8MT5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="FREE SOLDIER Men's Tactical Boots 8 Inches Lightweight Combat Boot Durable Suede Leather Military Work Boots Desert Boot (Tan, 10.5)" src="https://m.media-amazon.com/images/I/41fUAGZHRAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07JVL8MT5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="FREE SOLDIER Men's Tactical Boots 8 Inches Lightweight Combat Boot Durable Suede Leather Military Work Boots Desert Boot (Tan, 10.5)" src="https://m.media-amazon.com/images/I/41fUAGZHRAL._SL500_.jpg"/></a>
 
 
 The **FREE SOLDIER Men's Tactical Boots** are designed for individuals who require reliable and durable footwear for challenging environments. Ideal customers include **military personnel**, **outdoor enthusiasts**, and those in need of **heavy-duty work boots**. These boots cater to people who value **comfort**, **stability**, and **long-lasting performance** in rugged terrains.
@@ -148,10 +148,10 @@ The **FREE SOLDIER Men's Tactical Boots** boast an **impressive lightweight cons
 
 Another standout feature is the **bright tan color**, which adds a touch of versatility to the boots, allowing them to be paired seamlessly with a variety of uniforms and outfits. While the color options may be limited, the **classic design** ensures that they remain a popular choice among users seeking a blend of **functionality and style**. Despite the specific sizing, the **FREE SOLDIER Men's Tactical Boots** are a worthwhile investment for anyone prioritizing **comfort and durability** in demanding environments.
 
-## <a href="https://www.amazon.com/dp/B0CQYRSLS3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Profirst Motorcycle Kids Boots</a>
+## <a href="https://www.amazon.com/dp/B0CQYRSLS3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Profirst Motorcycle Kids Boots</a>
 
 
-<a href="https://www.amazon.com/dp/B0CQYRSLS3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PROFIRST Motorcycle kids boots Motorbike Waterproof shoes Motorcross Dirt Blike Riding Biker Boots for kids (Green, US Footwear Size System, Big Kid, Men, Numeric, Medium, 2)" src="https://m.media-amazon.com/images/I/41QL7tMlWqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CQYRSLS3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PROFIRST Motorcycle kids boots Motorbike Waterproof shoes Motorcross Dirt Blike Riding Biker Boots for kids (Green, US Footwear Size System, Big Kid, Men, Numeric, Medium, 2)" src="https://m.media-amazon.com/images/I/41QL7tMlWqL._SL500_.jpg"/></a>
 
 
 These **PROFIRST Motorcycle kids boots** are ideal for young riders who are passionate about motorbiking and require reliable, durable footwear. Perfect for kids who enjoy motocross, dirt biking, or casual motorcycle riding, these boots offer protection and comfort tailored to growing feet. Parents looking for sturdy, waterproof boots that ensure safety and style for their children will find these an excellent choice.
@@ -174,10 +174,10 @@ The **PROFIRST Motorcycle kids boots** are constructed with waterproof materials
 
 In addition to functional aspects, the bright **green color** enhances visibility, which adds an extra layer of safety during rides. The boots' design specifically targets big kids, utilizing the US footwear size system to provide a tailored fit that supports both performance and comfort. Overall, these boots combine safety, durability, and style, making them an excellent investment for parents seeking dependable motorbike footwear for their children.
 
-## <a href="https://www.amazon.com/dp/B08GYC24WW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kronox Motorcycle Boots For Men</a>
+## <a href="https://www.amazon.com/dp/B08GYC24WW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kronox Motorcycle Boots For Men</a>
 
 
-<a href="https://www.amazon.com/dp/B08GYC24WW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KRONOX Motorcycle Boots for Men - Armored Black PU Leather Touring Boots, Waterproof, Size 11" src="https://m.media-amazon.com/images/I/41+7qTPIDZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08GYC24WW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KRONOX Motorcycle Boots for Men - Armored Black PU Leather Touring Boots, Waterproof, Size 11" src="https://m.media-amazon.com/images/I/41+7qTPIDZL._SL500_.jpg"/></a>
 
 
 Ideal for avid motorcyclists seeking durable and stylish footwear, the **KRONOX Motorcycle Boots for Men** are perfect for those who prioritize protection and comfort during long rides. These boots are designed for riders who need reliable, waterproof, and armored boots to enhance their touring experience.
@@ -199,10 +199,10 @@ The **KRONOX Motorcycle Boots** feature a tough **PU leather** exterior that pro
 
 Beyond protection, these boots offer practical benefits such as a slip-resistant sole that enhances stability on various surfaces. The ergonomic design allows for prolonged wear without discomfort, making them a great choice for touring riders who spend hours on the road. Overall, the **KRONOX Motorcycle Boots** combine safety, durability, and comfort in one reliable package.
 
-## <a href="https://www.amazon.com/dp/B0CNYLXG6H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bofucn Motorcycle Leather Boots</a>
+## <a href="https://www.amazon.com/dp/B0CNYLXG6H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bofucn Motorcycle Leather Boots</a>
 
 
-<a href="https://www.amazon.com/dp/B0CNYLXG6H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bofucn Motorcycle Leather Boots,Street Riding Shoes,Anti-Slip Side Zipper Shoes for Men and Women (Black/Green, Adult, 5 Men/6 Women)" src="https://m.media-amazon.com/images/I/512xObt9ZQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CNYLXG6H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bofucn Motorcycle Leather Boots,Street Riding Shoes,Anti-Slip Side Zipper Shoes for Men and Women (Black/Green, Adult, 5 Men/6 Women)" src="https://m.media-amazon.com/images/I/512xObt9ZQL._SL500_.jpg"/></a>
 
 
 The **Bofucn Motorcycle Leather Boots** are ideal for riders who prioritize both style and safety in their gear. Designed for both men and women, these boots are perfect for street riders looking for durable, comfortable, and stylish footwear that can handle daily rides and casual wear. If you want reliable **anti-slip** protection combined with the convenience of a **side zipper**, these boots are a great choice.
@@ -224,10 +224,10 @@ The **Bofucn Motorcycle Leather Boots** combine rugged functionality with urban 
 
 Beyond safety and convenience, these boots also excel in comfort and durability. The leather construction not only offers protection but also molds to the wearer's feet over time, ensuring a personalized fit. The color options in **black and green** allow riders to express their personal style while maintaining a professional and sleek look. Overall, the **Bofucn Motorcycle Leather Boots** provide an excellent balance of protection, comfort, and style for street riders of all levels.
 
-## <a href="https://www.amazon.com/dp/B0B6FNSK56?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ilm Youth Kids Motorcycle Boots</a>
+## <a href="https://www.amazon.com/dp/B0B6FNSK56?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ilm Youth Kids Motorcycle Boots</a>
 
 
-<a href="https://www.amazon.com/dp/B0B6FNSK56?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ILM Youth Kids Motorcycle Boots for Boys Girls Waterproof ATV Motorcross Dirt Blike Riding Biker Boots Model-MX3J (Black, 4.5)" src="https://m.media-amazon.com/images/I/41PmvyoNjbL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B6FNSK56?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ILM Youth Kids Motorcycle Boots for Boys Girls Waterproof ATV Motorcross Dirt Blike Riding Biker Boots Model-MX3J (Black, 4.5)" src="https://m.media-amazon.com/images/I/41PmvyoNjbL._SL500_.jpg"/></a>
 
 
 Ideal for young riders who love adventure, the **ILM Youth Kids Motorcycle Boots** are perfect for boys and girls engaged in ATV, motocross, and dirt bike riding. These boots are designed to provide safety, comfort, and durability, making them an excellent choice for parents seeking reliable protective footwear for their active children.
@@ -249,10 +249,10 @@ The **ILM Youth Kids Motorcycle Boots** feature a robust build tailored to withs
 
 Additionally, the boots are engineered with a focus on lightweight durability, making them less tiring to wear during long rides. The snug yet comfortable fit helps prevent injuries and provides the necessary support for ankles, which is crucial when navigating challenging trails. Overall, these boots offer a combination of safety, comfort, and style that young riders and their parents will appreciate.
 
-## <a href="https://www.amazon.com/dp/B0CX7369DD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kerrits Trail Blazer Lace Up Boot</a>
+## <a href="https://www.amazon.com/dp/B0CX7369DD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kerrits Trail Blazer Lace Up Boot</a>
 
 
-<a href="https://www.amazon.com/dp/B0CX7369DD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kerrits Trail Blazer Lace Up Boot Palomino/Brown Size: 7M" src="https://m.media-amazon.com/images/I/31eAu9xZ8nL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CX7369DD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kerrits Trail Blazer Lace Up Boot Palomino/Brown Size: 7M" src="https://m.media-amazon.com/images/I/31eAu9xZ8nL._SL500_.jpg"/></a>
 
 
 The **Kerrits Trail Blazer Lace Up Boot** in **Palomino/Brown**, **Size: 7M**, is perfect for equestrians and outdoor enthusiasts who value both style and functionality. Ideal customers are those who frequently engage in activities such as riding, hiking, or working in rugged terrains and need a reliable boot that offers comfort and durability.

@@ -23,10 +23,10 @@ UV protection shields eyes from harmful rays while riding long hours. Whether yo
 
 
 
-## <a href="https://www.amazon.com/dp/B0094GOF3O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bifocal Padded Sunglasses Motorcycle Riding Lens With Magnifier Inserts</a>
+## <a href="https://www.amazon.com/dp/B0094GOF3O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bifocal Padded Sunglasses Motorcycle Riding Lens With Magnifier Inserts</a>
 
 
-<a href="https://www.amazon.com/dp/B0094GOF3O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bifocal Padded Sunglasses Motorcycle Riding Lens with Magnifier Inserts Magnifier Sun Glasses (Strength +2.50)" src="https://m.media-amazon.com/images/I/31OUFHyP9bL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0094GOF3O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bifocal Padded Sunglasses Motorcycle Riding Lens with Magnifier Inserts Magnifier Sun Glasses (Strength +2.50)" src="https://m.media-amazon.com/images/I/31OUFHyP9bL._SL500_.jpg"/></a>
 
 
 Ideal for **motorcycle riders** and outdoor enthusiasts who require clear vision both at a distance and up close, the **Bifocal Padded Sunglasses Motorcycle Riding Lens with Magnifier Inserts** (Strength +2.50) by **FLORIDA GLASSES** is perfect for those seeking a combination of eye protection and enhanced reading capability while on the road.
@@ -48,10 +48,10 @@ The **bifocal padded sunglasses** feature a thoughtfully designed frame that cus
 
 Constructed by **FLORIDA GLASSES**, these sunglasses prioritize both function and comfort. The clear lenses ensure that visibility is not compromised, while the bifocal inserts enhance versatility. Riders can enjoy eye protection combined with the convenience of magnification, eliminating the hassle of carrying multiple eyewear options. Overall, these sunglasses offer a practical solution for those seeking an integrated vision aid during motorcycle riding or outdoor activities.
 
-## <a href="https://www.amazon.com/dp/B07CSG6PQ5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wynd Blocker Polarized Motorcycle Riding Sunglasses</a>
+## <a href="https://www.amazon.com/dp/B07CSG6PQ5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wynd Blocker Polarized Motorcycle Riding Sunglasses</a>
 
 
-<a href="https://www.amazon.com/dp/B07CSG6PQ5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WYND Blocker Polarized Motorcycle Riding Sunglasses Sports Wrap Glasses, Black, Polarized Smoke" src="https://m.media-amazon.com/images/I/51cHPvat01L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07CSG6PQ5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WYND Blocker Polarized Motorcycle Riding Sunglasses Sports Wrap Glasses, Black, Polarized Smoke" src="https://m.media-amazon.com/images/I/51cHPvat01L._SL500_.jpg"/></a>
 
 
 These **WYND Blocker Polarized Motorcycle Riding Sunglasses** are ideal for avid motorcyclists and outdoor sports enthusiasts who require durable, stylish, and effective eye protection. If you often ride in bright sunlight or varying weather conditions, these **sports wrap glasses** offer the perfect combination of comfort and functionality to enhance your riding experience.
@@ -72,10 +72,10 @@ The **WYND Blocker Polarized Motorcycle Riding Sunglasses** feature high-quality
 
 Constructed with a lightweight yet sturdy frame, these glasses ensure maximum comfort without compromising durability. The black color gives a sleek, versatile aesthetic that complements various riding gears. Overall, these sunglasses are designed to deliver both style and functional benefits, making them a smart investment for anyone seeking reliable eye protection during motorcycle adventures or other outdoor sports.
 
-## <a href="https://www.amazon.com/dp/B016GZPPES?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Owl Padded Riding Glasses</a>
+## <a href="https://www.amazon.com/dp/B016GZPPES?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Owl Padded Riding Glasses</a>
 
 
-<a href="https://www.amazon.com/dp/B016GZPPES?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OWL - Padded Riding Glasses - Clear Lens (3 Pack)" src="https://m.media-amazon.com/images/I/41IGwE+vx4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B016GZPPES?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OWL - Padded Riding Glasses - Clear Lens (3 Pack)" src="https://m.media-amazon.com/images/I/41IGwE+vx4L._SL500_.jpg"/></a>
 
 
 The **OWL - Padded Riding Glasses - Clear Lens (3 Pack)** is ideal for riders and outdoor enthusiasts seeking reliable eye protection with comfort and clarity. Perfect for individuals who spend extended periods riding motorcycles, bicycles, or engaging in outdoor activities, these glasses provide essential shielding from wind, dust, and debris without compromising on style or comfort. If you value clear vision and padded support during your rides, this product is designed for you.
@@ -96,10 +96,10 @@ The **OWL Padded Riding Glasses** feature a thoughtfully padded frame that cushi
 
 Beyond comfort, these glasses excel in protection. The snug fit prevents debris, dust, and insects from reaching your eyes, while the sturdy build ensures durability even in rugged conditions. The inclusion of three pairs in one pack offers excellent value, allowing users to have spares or share with riding companions. Overall, the **OWL Padded Riding Glasses** blend functionality, comfort, and affordability, making them a smart choice for serious riders.
 
-## <a href="https://www.amazon.com/dp/B0F25B4C3P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wynd Blocker Nova Motorcycle Riding Glasses</a>
+## <a href="https://www.amazon.com/dp/B0F25B4C3P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wynd Blocker Nova Motorcycle Riding Glasses</a>
 
 
-<a href="https://www.amazon.com/dp/B0F25B4C3P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WYND Blocker Nova Motorcycle Riding Glasses Extreme Sports Wrap Dry Eye Sunglasses (Model 337 - Black Matte, Clear)" src="https://m.media-amazon.com/images/I/41tkq1pkzwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F25B4C3P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WYND Blocker Nova Motorcycle Riding Glasses Extreme Sports Wrap Dry Eye Sunglasses (Model 337 - Black Matte, Clear)" src="https://m.media-amazon.com/images/I/41tkq1pkzwL._SL500_.jpg"/></a>
 
 
 The **WYND Blocker Nova Motorcycle Riding Glasses** are ideal for riders and extreme sports enthusiasts who require durable, comfortable, and protective eyewear. If you frequently face issues such as dry eyes or need reliable wrap-around sunglasses for clear vision during high-speed activities, these glasses are designed to meet those needs effectively.
@@ -122,10 +122,10 @@ The **WYND Blocker Nova Motorcycle Riding Glasses** feature a lightweight and er
 
 Additionally, the clear lenses provide excellent visibility in varying light conditions, allowing riders to maintain a sharp and unobstructed view of their surroundings. The glasses’ durable construction ensures they can withstand the rigors of intense outdoor activities, while the matte black finish adds a touch of sophistication to their sporty appearance. Overall, these glasses are a practical choice for anyone seeking reliable eye protection and comfort during extreme sports or motorcycle riding.
 
-## <a href="https://www.amazon.com/dp/B07DJQB8XD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fit Over Sunglasses</a>
+## <a href="https://www.amazon.com/dp/B07DJQB8XD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fit Over Sunglasses</a>
 
 
-<a href="https://www.amazon.com/dp/B07DJQB8XD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fit Over Sunglasses Polarized Lens Wear Over Prescription Eyeglasses 100% UV Protection for Men and Women" src="https://m.media-amazon.com/images/I/51nLzE3M8vL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07DJQB8XD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fit Over Sunglasses Polarized Lens Wear Over Prescription Eyeglasses 100% UV Protection for Men and Women" src="https://m.media-amazon.com/images/I/51nLzE3M8vL._SL500_.jpg"/></a>
 
 
 The **Fit Over Sunglasses** with **Polarized Lens** are perfect for individuals who already wear **prescription eyeglasses** and are looking for an easy and efficient way to protect their eyes from the sun. These sunglasses are ideal for those who spend a lot of time outdoors and want to ensure **100% UV Protection** without having to invest in expensive prescription sunglasses. Whether you're driving, hiking, or simply enjoying a day at the beach, these sunglasses offer both functionality and style for both **men and women**.
@@ -146,10 +146,10 @@ The **Fit Over Sunglasses** by **Success Eyewear** are designed with a focus on 
 
 Another key benefit is the **100% UV Protection** these sunglasses provide. Prolonged exposure to UV rays can lead to eye damage over time, and these sunglasses are designed to block these harmful rays effectively. The set includes both **silver and night lenses**, providing versatility for daytime and evening use, ensuring that you have the right protection no matter the time of day. This makes them a versatile and practical addition to anyone's eyewear collection, especially for those who value eye health and convenience.
 
-## <a href="https://www.amazon.com/dp/B0F25BVQ52?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wynd Blocker Calvert Motorcycle Riding Glasses</a>
+## <a href="https://www.amazon.com/dp/B0F25BVQ52?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wynd Blocker Calvert Motorcycle Riding Glasses</a>
 
 
-<a href="https://www.amazon.com/dp/B0F25BVQ52?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WYND Blocker Calvert Motorcycle Riding Glasses Extreme Sports Wrap Dry Eye Sunglasses (Model 338 - Flat Black, Smoke)" src="https://m.media-amazon.com/images/I/41woKkBUFWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F25BVQ52?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WYND Blocker Calvert Motorcycle Riding Glasses Extreme Sports Wrap Dry Eye Sunglasses (Model 338 - Flat Black, Smoke)" src="https://m.media-amazon.com/images/I/41woKkBUFWL._SL500_.jpg"/></a>
 
 
 These **WYND Blocker Calvert Motorcycle Riding Glasses Extreme Sports Wrap Dry Eye Sunglasses** are ideal for **motorcycle riders** and **extreme sports enthusiasts** who seek reliable eye protection combined with comfort. If you suffer from dry eyes or need sunglasses that offer full wraparound coverage to block wind and debris, these glasses are designed specifically for you.
@@ -172,10 +172,10 @@ The **WYND Blocker Calvert Motorcycle Glasses** feature a sturdy yet lightweight
 
 Additionally, these glasses are engineered to address the common problem of dry eyes experienced by many riders. By reducing airflow around the eyes, they help maintain moisture and comfort during prolonged outdoor activities. The sleek flat black frame not only adds a stylish edge but also contributes to the glasses’ robustness, ensuring they can withstand regular use in various conditions.
 
-## <a href="https://www.amazon.com/dp/B01N8U4BEC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Owl 3 Pack Motorcycle Glasses</a>
+## <a href="https://www.amazon.com/dp/B01N8U4BEC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Owl 3 Pack Motorcycle Glasses</a>
 
 
-<a href="https://www.amazon.com/dp/B01N8U4BEC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OWL 3 Pack Motorcycle Glasses Foam Padded Plastic Frame Riding Goggles UV400 Polycarbonate Lens Motorcycle Riding Sunglasses" src="https://m.media-amazon.com/images/I/41f+v4B8iGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01N8U4BEC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OWL 3 Pack Motorcycle Glasses Foam Padded Plastic Frame Riding Goggles UV400 Polycarbonate Lens Motorcycle Riding Sunglasses" src="https://m.media-amazon.com/images/I/41f+v4B8iGL._SL500_.jpg"/></a>
 
 
 The **OWL 3 Pack Motorcycle Glasses** are perfect for avid motorcyclists and outdoor enthusiasts who prioritize eye protection and comfort during their rides. Ideal for riders seeking durable and versatile eyewear, these goggles offer essential features to enhance safety and performance on the road. Whether you ride in bright sunlight, dusk, or foggy conditions, these glasses provide reliable protection and clear vision.
@@ -198,10 +198,10 @@ The **OWL 3 Pack Motorcycle Glasses** come with high-quality **UV400 polycarbona
 
 Designed with a **foam padded plastic frame**, these riding goggles provide a snug and comfortable fit that cushions the face and prevents irritation during extended use. The foam padding also helps block wind and dust, improving overall riding experience. Lightweight yet durable, the glasses are practical for everyday motorcycle use, offering excellent protection without compromising on comfort or style.
 
-## <a href="https://www.amazon.com/dp/B00I7M4LVM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Global Vision Eyewear Marilyn 11 Ladies Motorcycle Sunglasses</a>
+## <a href="https://www.amazon.com/dp/B00I7M4LVM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Global Vision Eyewear Marilyn 11 Ladies Motorcycle Sunglasses</a>
 
 
-<a href="https://www.amazon.com/dp/B00I7M4LVM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Global Vision Eyewear Marilyn 11 Ladies Motorcycle Sunglasses Riding Glasses with Flash Mirror Lenses Bling" src="https://m.media-amazon.com/images/I/41jBaYiMDeL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00I7M4LVM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Global Vision Eyewear Marilyn 11 Ladies Motorcycle Sunglasses Riding Glasses with Flash Mirror Lenses Bling" src="https://m.media-amazon.com/images/I/41jBaYiMDeL._SL500_.jpg"/></a>
 
 
 The **Global Vision Eyewear Marilyn 11 Ladies Motorcycle Sunglasses** are perfect for female riders who prioritize both style and protection on the road. Ideal for those seeking eye comfort during long rides, these sunglasses offer a fashionable yet functional accessory tailored for motorcycle enthusiasts who want to stand out with a bold, red design and reliable performance.
@@ -222,10 +222,10 @@ Featuring **flash mirror lenses**, these sunglasses deliver superior glare prote
 
 The sleek **red frame** crafted by **Global Vision Eyewear Corp** combines durability with eye-catching aesthetics, providing both protection and style. Riders benefit from a product that meets the practical needs of motorcycle riding while complementing their personal look. These sunglasses are an excellent choice for women who want dependable eye protection without compromising on flair.
 
-## <a href="https://www.amazon.com/dp/B004PBGWA2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Global Vision Eyewear Kickback 24</a>
+## <a href="https://www.amazon.com/dp/B004PBGWA2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Global Vision Eyewear Kickback 24</a>
 
 
-<a href="https://www.amazon.com/dp/B004PBGWA2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Global Vision Eyewear Kickback 24 Auto-Darkening Transitional Motorcycle Safety Sunglasses Photochromic Lenses" src="https://m.media-amazon.com/images/I/31BZqG2gG-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B004PBGWA2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Global Vision Eyewear Kickback 24 Auto-Darkening Transitional Motorcycle Safety Sunglasses Photochromic Lenses" src="https://m.media-amazon.com/images/I/31BZqG2gG-L._SL500_.jpg"/></a>
 
 
 The **Global Vision Eyewear Kickback 24 Auto-Darkening Transitional Motorcycle Safety Sunglasses** with **Photochromic Lenses** are ideal for motorcycle riders and outdoor enthusiasts who require reliable eye protection that adapts to changing light conditions. If you need eyewear that combines safety, comfort, and advanced lens technology, these sunglasses are designed to meet your needs.
@@ -248,10 +248,10 @@ The **Global Vision Eyewear Kickback 24** features advanced **auto-darkening pho
 
 Additionally, the sunglasses are engineered with safety in mind, offering a durable yet lightweight frame that does not compromise comfort. Their compact dimensions and minimal weight make them easy to wear for extended periods without discomfort. The combination of clear and smoke lens options allows users to select the best fit for their riding conditions, making these sunglasses versatile for daily use and specialized riding scenarios.
 
-## <a href="https://www.amazon.com/dp/B00I7M4JLY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Global Vision Eyewear Hawkeye Motorcycle Riding Sunglasses For Women</a>
+## <a href="https://www.amazon.com/dp/B00I7M4JLY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Global Vision Eyewear Hawkeye Motorcycle Riding Sunglasses For Women</a>
 
 
-<a href="https://www.amazon.com/dp/B00I7M4JLY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Global Vision Eyewear Hawkeye Motorcycle Riding Sunglasses for Women Black Pink Frame w/Smoke Lenses" src="https://m.media-amazon.com/images/I/31HKRCgD1iL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00I7M4JLY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Global Vision Eyewear Hawkeye Motorcycle Riding Sunglasses for Women Black Pink Frame w/Smoke Lenses" src="https://m.media-amazon.com/images/I/31HKRCgD1iL._SL500_.jpg"/></a>
 
 
 The **Global Vision Eyewear Hawkeye Motorcycle Riding Sunglasses** are specifically designed for **women** who are passionate about **motorcycle riding** and seek a blend of **style** and **protection**. These sunglasses are ideal for those who prioritize both **aesthetics** and **functionality** in their riding gear. Women who enjoy long rides and need reliable **eye protection** against **harsh sunlight** and **debris** will find these sunglasses to be an excellent choice.

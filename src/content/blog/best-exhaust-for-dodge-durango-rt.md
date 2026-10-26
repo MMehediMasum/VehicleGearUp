@@ -23,10 +23,10 @@ Some systems fit various Durango models, including the Hellcat and SRT versions.
 
 
 
-## <a href="https://www.amazon.com/dp/B00IFWMGDY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Borla 140449 Cat-back Performance Exhaust System</a>
+## <a href="https://www.amazon.com/dp/B00IFWMGDY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Borla 140449 Cat-back Performance Exhaust System</a>
 
 
-<a href="https://www.amazon.com/dp/B00IFWMGDY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BORLA 140449 Cat-Back Performance Exhaust System for Dodge Durango R/T V8 T-304 Stainless Steel S-Type Sound Dual Split Rear Exit Single 4.5" src="https://m.media-amazon.com/images/I/31vP2ra85rL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00IFWMGDY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BORLA 140449 Cat-Back Performance Exhaust System for Dodge Durango R/T V8 T-304 Stainless Steel S-Type Sound Dual Split Rear Exit Single 4.5" src="https://m.media-amazon.com/images/I/31vP2ra85rL._SL500_.jpg"/></a>
 
 
 The **BORLA 140449 Cat-Back Performance Exhaust System** is ideal for Dodge Durango R/T V8 owners who are looking to enhance their vehicle’s performance and sound quality. If you want to improve exhaust flow, gain horsepower, and add a sporty, aggressive exhaust note with durable construction, this system is designed specifically for you. Enthusiasts who prioritize both style and function will appreciate the high-quality materials and engineering behind this product.
@@ -49,10 +49,10 @@ The **BORLA 140449 Cat-Back Performance Exhaust System** features premium **T-30
 
 The dual split rear exit with polished 4.5" round tips not only boosts the aesthetic appeal of your Dodge Durango R/T but also ensures exhaust gases are expelled efficiently, contributing to improved engine health. This exhaust system is engineered for a direct fit, minimizing the need for modifications and making installation more straightforward. Overall, the BORLA 140449 offers a blend of performance, durability, and style for Dodge Durango enthusiasts seeking to upgrade their vehicle’s exhaust setup.
 
-## <a href="https://www.amazon.com/dp/B00861F91U?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Magnaflow Performance Exhaust System 15068</a>
+## <a href="https://www.amazon.com/dp/B00861F91U?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Magnaflow Performance Exhaust System 15068</a>
 
 
-<a href="https://www.amazon.com/dp/B00861F91U?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MagnaFlow Performance Exhaust System 15068: Cat-Back, Street Series, For 2011-2025 Dodge Durango, Dual Split Rear Exit" src="https://m.media-amazon.com/images/I/31DLliK7g5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00861F91U?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MagnaFlow Performance Exhaust System 15068: Cat-Back, Street Series, For 2011-2025 Dodge Durango, Dual Split Rear Exit" src="https://m.media-amazon.com/images/I/31DLliK7g5L._SL500_.jpg"/></a>
 
 
 The **MagnaFlow Performance Exhaust System 15068** is ideal for automotive enthusiasts and Dodge Durango owners from model years **2011 to 2025** who are seeking to enhance their vehicle’s exhaust performance and sound quality. If you want a durable, high-quality **cat-back exhaust system** that improves horsepower, torque, and offers a sporty dual split rear exit, this product is tailored for you. It is perfect for drivers who desire both performance upgrades and an aggressive exhaust note without compromising reliability.
@@ -75,10 +75,10 @@ The **MagnaFlow Performance Exhaust System 15068** features a precision-engineer
 
 Additionally, the system’s dimensions—approximately **59 inches in length, 20.75 inches in height, and 14.25 inches in width**—are tailored to fit seamlessly on the **Dodge Durango**. This ensures hassle-free installation and optimal compatibility. By upgrading to this **MagnaFlow cat-back exhaust**, users can enjoy enhanced performance without sacrificing durability or style, making it a valuable investment for those looking to elevate their driving experience.
 
-## <a href="https://www.amazon.com/dp/B0B8RZXP2V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Borla Cat-back Performance Exhaust System</a>
+## <a href="https://www.amazon.com/dp/B0B8RZXP2V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Borla Cat-back Performance Exhaust System</a>
 
 
-<a href="https://www.amazon.com/dp/B0B8RZXP2V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BORLA 140886BC Cat-Back Performance Exhaust System for 2021-2023 Dodge Durango SRT Hellcat 6.2L V8 Automatic Transmission All Wheel Drive 4 Door." src="https://m.media-amazon.com/images/I/21x-9F9TDtL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B8RZXP2V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BORLA 140886BC Cat-Back Performance Exhaust System for 2021-2023 Dodge Durango SRT Hellcat 6.2L V8 Automatic Transmission All Wheel Drive 4 Door." src="https://m.media-amazon.com/images/I/21x-9F9TDtL._SL500_.jpg"/></a>
 
 
 The **BORLA 140886BC Cat-Back Performance Exhaust System** is ideal for automotive enthusiasts and owners of the **2021-2023 Dodge Durango SRT Hellcat** with a **6.2L V8 Automatic Transmission** and **All Wheel Drive**. If you are looking to enhance your vehicle’s performance, sound, and overall driving experience, this exhaust system is designed specifically to meet those needs while maintaining high-quality standards.
@@ -101,10 +101,10 @@ The **BORLA Cat-Back Performance Exhaust System** features a carefully engineere
 
 With dimensions tailored to fit the **Dodge Durango SRT Hellcat** perfectly, the system integrates seamlessly with the vehicle’s existing components, preserving factory fitment and aesthetics. The combination of performance enhancement, durability, and sound quality makes this exhaust system a popular choice among performance enthusiasts who want to elevate their vehicle’s capabilities while maintaining a clean and aggressive style.
 
-## <a href="https://www.amazon.com/dp/B006A6I5KK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Gibson Performance Exhaust</a>
+## <a href="https://www.amazon.com/dp/B006A6I5KK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Gibson Performance Exhaust</a>
 
 
-<a href="https://www.amazon.com/dp/B006A6I5KK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Gibson Performance Exhaust 316006 Aluminized Axle Back Exhaust System" src="https://m.media-amazon.com/images/I/21JsHgD3oyS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B006A6I5KK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Gibson Performance Exhaust 316006 Aluminized Axle Back Exhaust System" src="https://m.media-amazon.com/images/I/21JsHgD3oyS._SL500_.jpg"/></a>
 
 
 The **Gibson Performance Exhaust 316006 Aluminized Axle Back Exhaust System** is ideal for automotive enthusiasts and vehicle owners seeking to enhance their car’s performance and sound without the complexity of a full exhaust overhaul. This product is perfect for those who want a straightforward upgrade that improves exhaust flow and delivers a more aggressive exhaust note, making it suitable for daily drivers, weekend cruisers, and performance-focused individuals.
@@ -127,10 +127,10 @@ The **Gibson Performance Exhaust 316006** features a robust construction using a
 
 Installation is straightforward, making it accessible for do-it-yourself enthusiasts and professionals alike. The dimensions of the system are optimized to fit a variety of vehicles, ensuring a hassle-free upgrade process. By choosing the **Gibson Performance Exhaust 316006**, users benefit from a combination of improved performance, durability, and an enhanced sound profile, all of which contribute to a more enjoyable and spirited driving experience. This system represents a balanced choice for those seeking quality and performance in an axle-back exhaust upgrade.
 
-## <a href="https://www.amazon.com/dp/B00D6ICPGK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Flowmaster 817651 Force Ii Cat-back Exhaust Kit</a>
+## <a href="https://www.amazon.com/dp/B00D6ICPGK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Flowmaster 817651 Force Ii Cat-back Exhaust Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B00D6ICPGK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Flowmaster 817651 Force II Cat-Back Exhaust Kit 2.5 Inch 409 Stainless Steel 4 Inch 304 Polished Stainless Steel Tips Compatible with 2011-2024 Dodge Durango R/T 5.7L 2 &amp; 4WD" src="https://m.media-amazon.com/images/I/31aZ8UbS3xL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00D6ICPGK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Flowmaster 817651 Force II Cat-Back Exhaust Kit 2.5 Inch 409 Stainless Steel 4 Inch 304 Polished Stainless Steel Tips Compatible with 2011-2024 Dodge Durango R/T 5.7L 2 &amp; 4WD" src="https://m.media-amazon.com/images/I/31aZ8UbS3xL._SL500_.jpg"/></a>
 
 
 The **Flowmaster 817651 Force II Cat-Back Exhaust Kit** is ideal for Dodge Durango R/T owners from 2011 to 2024 who seek enhanced performance and a more aggressive exhaust sound. Whether you drive a 2WD or 4WD model with the 5.7L engine, this exhaust system is designed for enthusiasts who want to boost horsepower and improve the overall driving experience without compromising durability. It's perfect for those looking to upgrade their vehicle's exhaust system with quality materials and a sleek appearance.
@@ -154,10 +154,10 @@ The **Flowmaster 817651 Force II Cat-Back Exhaust Kit** boasts a robust construc
 
 Besides performance enhancements, the exhaust system delivers a distinct and aggressive sound signature that elevates the driving experience without causing excessive cabin drone, making it suitable for daily driving and spirited outings. Installation is straightforward due to its bolt-on configuration, eliminating the need for complex modifications. This combination of durability, performance, and style makes the Flowmaster Force II an excellent upgrade for Dodge Durango R/T owners who want to maximize their vehicle's potential.
 
-## <a href="https://www.amazon.com/dp/B07QW3DDC6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mopar Dodge Durango Cat Back Exhaust</a>
+## <a href="https://www.amazon.com/dp/B07QW3DDC6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mopar Dodge Durango Cat Back Exhaust</a>
 
 
-<a href="https://www.amazon.com/dp/B07QW3DDC6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mopar 77072479 Dodge Durango Cat Back Exhaust" src="https://m.media-amazon.com/images/I/31IucaWuSIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07QW3DDC6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mopar 77072479 Dodge Durango Cat Back Exhaust" src="https://m.media-amazon.com/images/I/31IucaWuSIL._SL500_.jpg"/></a>
 
 
 The **Mopar 77072479 Dodge Durango Cat Back Exhaust** is ideal for Dodge Durango owners seeking to enhance their vehicle's performance and sound quality. If you want a reliable, factory-backed upgrade that improves exhaust flow and adds a sportier tone, this product is perfect for you.
@@ -180,10 +180,10 @@ The **Mopar 77072479 Dodge Durango Cat Back Exhaust** features a precision-engin
 
 Beyond performance gains, this cat back exhaust system provides a richer and more aggressive exhaust note that elevates the driving experience. Its direct fitment means it aligns perfectly with the existing vehicle components, reducing installation time and effort. Overall, the Mopar 77072479 enhances both the sound and performance of your Dodge Durango while maintaining the reliability expected from an OEM product.
 
-## <a href="https://www.amazon.com/dp/B0F4NN8PH5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dual Muffler Exhaust Pipe System Replacement Parts For Dodge Charger R/t</a>
+## <a href="https://www.amazon.com/dp/B0F4NN8PH5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dual Muffler Exhaust Pipe System Replacement Parts For Dodge Charger R/t</a>
 
 
-<a href="https://www.amazon.com/dp/B0F4NN8PH5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Dual Muffler Exhaust Pipe System Replacement Parts For Dodge Charger R/T 2011 2012 2013 2014 5.7L" src="https://m.media-amazon.com/images/I/31tg5rktrmL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F4NN8PH5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Dual Muffler Exhaust Pipe System Replacement Parts For Dodge Charger R/T 2011 2012 2013 2014 5.7L" src="https://m.media-amazon.com/images/I/31tg5rktrmL._SL500_.jpg"/></a>
 
 
 The **Dual Muffler Exhaust Pipe System Replacement Parts** for the **Dodge Charger R/T** 2011-2014 5.7L is perfect for car enthusiasts looking to enhance the performance and sound of their vehicle. Ideal for those who own a Dodge Charger R/T from these model years and are seeking a reliable and efficient replacement or upgrade for their exhaust system, this product ensures optimal vehicle performance and a noticeable improvement in exhaust sound. If you value a balance of power, sound, and efficiency in your vehicle, this exhaust system is a perfect fit for you.
@@ -203,10 +203,10 @@ The **Dual Muffler Exhaust Pipe System** by **MAC** is designed to deliver super
 
 Additionally, the exhaust system offers a significant upgrade to the vehicle's auditory experience. It produces a deep, resonant sound that enhances the driving experience for enthusiasts who appreciate a robust exhaust note. While installation might require professional assistance, the end result justifies the investment. The exhaust system not only enhances performance but also adds a distinctive character to the vehicle, making every drive a memorable experience.
 
-## <a href="https://www.amazon.com/dp/B0DWTDGCZL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dodge Durango Srt Hellcat Exhaust Tips</a>
+## <a href="https://www.amazon.com/dp/B0DWTDGCZL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dodge Durango Srt Hellcat Exhaust Tips</a>
 
 
-<a href="https://www.amazon.com/dp/B0DWTDGCZL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Dodge Durango SRT/ Hellcat Exhaust Tips, 5-Inch Black-Coated, MBRP" src="https://m.media-amazon.com/images/I/21hcGCNFjgL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DWTDGCZL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Dodge Durango SRT/ Hellcat Exhaust Tips, 5-Inch Black-Coated, MBRP" src="https://m.media-amazon.com/images/I/21hcGCNFjgL._SL500_.jpg"/></a>
 
 
 The **Dodge Durango SRT/ Hellcat Exhaust Tips, 5-Inch Black-Coated** by **MBRP** are perfect for automotive enthusiasts who own a **Dodge Durango SRT** or **Hellcat** model and want to upgrade their vehicle's exhaust appearance and performance. Ideal for those seeking a sleek, aggressive look combined with durable, high-quality materials, these exhaust tips cater to drivers who value both aesthetics and functionality.
@@ -228,10 +228,10 @@ The **MBRP 5-Inch Black-Coated Exhaust Tips** are engineered to enhance both the
 
 Beyond aesthetics, the exhaust tips contribute to improved exhaust flow, helping to optimize engine performance and produce a deeper, more resonant exhaust note. This upgrade is perfect for drivers who want to amplify their vehicle's sound without extensive modifications. Overall, the **MBRP Dodge Durango SRT/ Hellcat Exhaust Tips** offer a blend of style, durability, and performance benefits tailored to enthusiasts looking to customize their ride with reliable, high-quality components.
 
-## <a href="https://www.amazon.com/dp/B006A6K1MU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Gibson Performance Exhaust Axle Back Exhaust System</a>
+## <a href="https://www.amazon.com/dp/B006A6K1MU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Gibson Performance Exhaust Axle Back Exhaust System</a>
 
 
-<a href="https://www.amazon.com/dp/B006A6K1MU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Gibson Performance Exhaust 616006 Stainless Steel Axle Back Exhaust System" src="https://m.media-amazon.com/images/I/21JsHgD3oyS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B006A6K1MU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Gibson Performance Exhaust 616006 Stainless Steel Axle Back Exhaust System" src="https://m.media-amazon.com/images/I/21JsHgD3oyS._SL500_.jpg"/></a>
 
 
 The **Gibson Performance Exhaust 616006 Stainless Steel Axle Back Exhaust System** is ideal for car enthusiasts and vehicle owners looking to enhance their vehicle's performance and sound. If you want a durable, high-quality exhaust system that boosts horsepower and provides a deep, aggressive exhaust note, this product is a perfect fit. It is especially suitable for those who prioritize both performance and aesthetics in their vehicles.
@@ -254,10 +254,10 @@ The **Gibson Performance Exhaust 616006** is designed with precision to deliver 
 
 Beyond performance, this exhaust system offers an enhanced auditory experience with a rich and aggressive tone that amplifies the driving excitement. Its robust build and thoughtfully engineered dimensions make it a fitting choice for those who demand both style and substance from their vehicle’s exhaust system. Overall, the Gibson Performance Exhaust 616006 strikes a fine balance between durability, performance gains, and sound quality, making it a valuable investment for enthusiasts aiming to elevate their driving experience.
 
-## <a href="https://www.amazon.com/dp/B0CCZPRT6H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mbrp Exhaust Armor Lite Cat Back Exhaust System</a>
+## <a href="https://www.amazon.com/dp/B0CCZPRT6H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mbrp Exhaust Armor Lite Cat Back Exhaust System</a>
 
 
-<a href="https://www.amazon.com/dp/B0CCZPRT6H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MBRP Exhaust - S5105AL - MBRP Exhaust S5105AL Armor Lite Cat Back Exhaust System Fits 18-25 Durango" src="https://m.media-amazon.com/images/I/31ffUbZH8ZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CCZPRT6H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MBRP Exhaust - S5105AL - MBRP Exhaust S5105AL Armor Lite Cat Back Exhaust System Fits 18-25 Durango" src="https://m.media-amazon.com/images/I/31ffUbZH8ZL._SL500_.jpg"/></a>
 
 
 The **MBRP Exhaust S5105AL Armor Lite Cat Back Exhaust System** is ideal for vehicle owners who drive a **2018-2025 Dodge Durango** and are looking to enhance their vehicle’s performance and sound. This product is perfect for enthusiasts who want a durable, lightweight, and high-quality exhaust system that improves exhaust flow and adds a sporty tone without compromising daily drivability. If you value both performance upgrades and a sleek design, this exhaust system is a great choice.

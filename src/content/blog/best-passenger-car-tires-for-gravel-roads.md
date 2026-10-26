@@ -23,10 +23,10 @@ These tires fit 12-inch rims, making them ideal for golf carts like Club Car mod
 
 
 
-## <a href="https://www.amazon.com/dp/B07BX9JYXD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ocelot P825 215/50-12 Golf Cart Tires</a>
+## <a href="https://www.amazon.com/dp/B07BX9JYXD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ocelot P825 215/50-12 Golf Cart Tires</a>
 
 
-<a href="https://www.amazon.com/dp/B07BX9JYXD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ocelot P825 215/50-12 Golf Cart Tires 4-Ply Turf or Pavement Tire, Golf Cart Tires with All-Terrain Quality, Tubeless Non-Directional Tread Tires, Ideal for Club Car/Golf Carts with 12” Rims" src="https://m.media-amazon.com/images/I/515I3ldn+-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07BX9JYXD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ocelot P825 215/50-12 Golf Cart Tires 4-Ply Turf or Pavement Tire, Golf Cart Tires with All-Terrain Quality, Tubeless Non-Directional Tread Tires, Ideal for Club Car/Golf Carts with 12” Rims" src="https://m.media-amazon.com/images/I/515I3ldn+-L._SL500_.jpg"/></a>
 
 
 Ideal for **golf cart owners** who use their carts on varied terrains, the **Ocelot P825 215/50-12 Golf Cart Tires** are perfect for those seeking **durable, all-terrain performance**. If you own a **Club Car** or any golf cart with **12” rims**, and need tires that provide a balance between turf protection and pavement durability, these tires are an excellent choice.
@@ -48,10 +48,10 @@ The **Ocelot P825 215/50-12 tires** feature a robust **4-ply turf or pavement de
 
 Additionally, these tires' compatibility with **12-inch rims** makes them a straightforward upgrade for many popular golf carts, including **Club Car** models. The combination of **all-terrain quality** and easy maintenance means users benefit from long-lasting performance and reduced downtime, enhancing the overall golf cart experience.
 
-## <a href="https://www.amazon.com/dp/B07BX4YMDC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ocelot P825 215/35-12 Golf Cart Tires</a>
+## <a href="https://www.amazon.com/dp/B07BX4YMDC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ocelot P825 215/35-12 Golf Cart Tires</a>
 
 
-<a href="https://www.amazon.com/dp/B07BX4YMDC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ocelot P825 215/35-12 Golf Cart Tires 4-Ply Turf or Pavement Tire, Golf Cart Tires with All-Terrain Quality, Tubeless Non-Directional Tread Tires, Ideal for Club Car/Golf Carts with 12” Rims" src="https://m.media-amazon.com/images/I/51wE2CJlVQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07BX4YMDC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ocelot P825 215/35-12 Golf Cart Tires 4-Ply Turf or Pavement Tire, Golf Cart Tires with All-Terrain Quality, Tubeless Non-Directional Tread Tires, Ideal for Club Car/Golf Carts with 12” Rims" src="https://m.media-amazon.com/images/I/51wE2CJlVQL._SL500_.jpg"/></a>
 
 
 The **Ocelot P825 215/35-12 Golf Cart Tires** are perfect for golf cart owners who demand durability and versatility. Ideal for those using **Club Car** or similar golf carts with 12” rims, these tires cater to users needing reliable performance on both turf and pavement. If you want a tire that can handle various terrains while maintaining a smooth ride, these are an excellent choice.
@@ -73,10 +73,10 @@ The **Ocelot P825 215/35-12 Golf Cart Tires** are designed with a robust 4-ply r
 
 Additionally, the tires’ compatibility with **12-inch rims** makes them an easy upgrade or replacement for many popular golf cart models, including Club Car. The tread design not only enhances grip but also contributes to a quieter ride, reducing noise levels during operation. Overall, these tires balance strength, flexibility, and comfort, making them a top choice for golf cart enthusiasts seeking dependable, all-terrain performance.
 
-## <a href="https://www.amazon.com/dp/B0FFHJWF5T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Compatible For Great Wall Wey Poer Mud Flaps Splash Guard Mudguards Mudflaps Front Rear Auto Styling Car Accessories</a>
+## <a href="https://www.amazon.com/dp/B0FFHJWF5T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Compatible For Great Wall Wey Poer Mud Flaps Splash Guard Mudguards Mudflaps Front Rear Auto Styling Car Accessories</a>
 
 
-<a href="https://www.amazon.com/dp/B0FFHJWF5T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Compatible for Great Wall WEY POER 2020 2021 2022 Mud Flaps Splash Guard Mudguards MudFlaps Front Rear Auto Styling Car Accessories(Passenger Version)" src="https://m.media-amazon.com/images/I/41v-suJ6OgL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FFHJWF5T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Compatible for Great Wall WEY POER 2020 2021 2022 Mud Flaps Splash Guard Mudguards MudFlaps Front Rear Auto Styling Car Accessories(Passenger Version)" src="https://m.media-amazon.com/images/I/41v-suJ6OgL._SL500_.jpg"/></a>
 
 
 The **Compatible for Great Wall WEY POER 2020 2021 2022 Mud Flaps Splash Guard Mudguards MudFlaps Front Rear Auto Styling Car Accessories (Passenger Version)** is ideal for vehicle owners looking to protect their car's exterior from mud, dirt, and debris. This product is perfect for drivers of the **Great Wall WEY POER** models from 2020 to 2022 who want to maintain their vehicle's appearance and reduce cleaning frequency while adding a touch of style. If you frequently drive in wet or off-road conditions, these mud flaps are a smart investment.

@@ -23,10 +23,10 @@ Features like temperature compensation and automatic shutoff help protect your b
 
 
 
-## <a href="https://www.amazon.com/dp/B07W3QSMF9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Noco Genius2d</a>
+## <a href="https://www.amazon.com/dp/B07W3QSMF9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Noco Genius2d</a>
 
 
-<a href="https://www.amazon.com/dp/B07W3QSMF9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="NOCO GENIUS2D: 2A 12V Smart Onboard Battery Charger - Direct-Mount Automatic Maintainer, Trickle Charger &amp; Desulfator with Overcharge Protection &amp; Temperature Compensation – For Lead-Acid Batteries" src="https://m.media-amazon.com/images/I/41supMN2OtL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07W3QSMF9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="NOCO GENIUS2D: 2A 12V Smart Onboard Battery Charger - Direct-Mount Automatic Maintainer, Trickle Charger &amp; Desulfator with Overcharge Protection &amp; Temperature Compensation – For Lead-Acid Batteries" src="https://m.media-amazon.com/images/I/41supMN2OtL._SL500_.jpg"/></a>
 
 
 The **NOCO GENIUS2D** is ideal for vehicle owners, boat enthusiasts, and anyone who relies on **12V lead-acid batteries**. If you want a reliable, efficient, and user-friendly solution to maintain and extend the life of your batteries, this smart onboard charger is designed for you. It's perfect for those looking for a compact, automatic, and safe way to keep their batteries healthy without constant manual intervention.
@@ -49,10 +49,10 @@ The **NOCO GENIUS2D** features a smart onboard charging system that automaticall
 
 Additionally, the charger includes a **desulfator** that helps to restore battery capacity by removing sulfate buildup, which is a common cause of battery failure. The **overcharge protection** mechanism prevents damage by stopping the charging process once the battery is fully charged, extending battery lifespan. Its compact dimensions and lightweight design make it easy to mount directly on vehicles or boats, offering convenience and continuous battery maintenance without bulky equipment.
 
-## <a href="https://www.amazon.com/dp/B07W46BX31?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Noco Genius1</a>
+## <a href="https://www.amazon.com/dp/B07W46BX31?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Noco Genius1</a>
 
 
-<a href="https://www.amazon.com/dp/B07W46BX31?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="NOCO GENIUS1: 1A 6V/12V Smart Battery Charger – Automatic Maintainer, Trickle Charger &amp; Desulfator with Overcharge Protection &amp; Temperature Compensation – For Lead-Acid &amp; Lithium Batteries" src="https://m.media-amazon.com/images/I/418SHr9JzkL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07W46BX31?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="NOCO GENIUS1: 1A 6V/12V Smart Battery Charger – Automatic Maintainer, Trickle Charger &amp; Desulfator with Overcharge Protection &amp; Temperature Compensation – For Lead-Acid &amp; Lithium Batteries" src="https://m.media-amazon.com/images/I/418SHr9JzkL._SL500_.jpg"/></a>
 
 
 The **NOCO GENIUS1** is ideal for vehicle owners and DIY enthusiasts who want a reliable, compact, and efficient solution to maintain their batteries. Whether you have a car, motorcycle, or small boat with a **6V or 12V lead-acid or lithium battery**, this smart charger offers an easy way to keep your battery in optimal condition without worrying about overcharging or damage. It's perfect for users seeking a hassle-free, automatic charging system that doubles as a maintainer and desulfator.
@@ -75,10 +75,10 @@ The **NOCO GENIUS1** features smart charging technology that automatically detec
 
 Additionally, the charger’s desulfation function helps to break down sulfate crystals that can build up on lead-acid batteries, improving their longevity and performance. Its compact size and lightweight design make it highly portable and easy to store, which is especially convenient for users with limited space or those who travel frequently. Overall, the **NOCO GENIUS1** is a versatile and user-friendly battery charger that ensures your batteries remain healthy and fully charged for longer periods.
 
-## <a href="https://www.amazon.com/dp/B00EDFPN1O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Battery Tender 5 Amp 12v Battery Charger And Maintainer</a>
+## <a href="https://www.amazon.com/dp/B00EDFPN1O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Battery Tender 5 Amp 12v Battery Charger And Maintainer</a>
 
 
-<a href="https://www.amazon.com/dp/B00EDFPN1O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Battery Tender 5 AMP 12V Battery Charger and Maintainer - Automotive Smart Automatic Battery Charger for Cars SUVs and Trucks -Lead Acid, AGM, Gel, &amp; Lithium - 022-0186G-DL-WH" src="https://m.media-amazon.com/images/I/41K6kl88ABL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00EDFPN1O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Battery Tender 5 AMP 12V Battery Charger and Maintainer - Automotive Smart Automatic Battery Charger for Cars SUVs and Trucks -Lead Acid, AGM, Gel, &amp; Lithium - 022-0186G-DL-WH" src="https://m.media-amazon.com/images/I/41K6kl88ABL._SL500_.jpg"/></a>
 
 
 The **Battery Tender 5 AMP 12V Battery Charger and Maintainer** is ideal for car, SUV, and truck owners who want a reliable, smart solution to keep their **lead acid, AGM, gel, and lithium batteries** fully charged and maintained. This product is perfect for those who seek convenience, safety, and efficiency in battery maintenance, especially if their vehicles are not driven regularly or are stored for extended periods.
@@ -100,10 +100,10 @@ The **Battery Tender 5 AMP 12V** charger offers intelligent charging capabilitie
 
 Designed with convenience in mind, the charger's compact size and lightweight build allow users to easily carry and store it when not in use. The smart automatic operation frees users from constant monitoring, providing peace of mind that their vehicle’s battery will be ready when needed. Additionally, the robust construction and trusted **Battery Tender** brand guarantee reliability and long-term performance.
 
-## <a href="https://www.amazon.com/dp/B07W8KJH44?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Noco Genius5</a>
+## <a href="https://www.amazon.com/dp/B07W8KJH44?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Noco Genius5</a>
 
 
-<a href="https://www.amazon.com/dp/B07W8KJH44?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="NOCO GENIUS5: 5A 6V/12V Smart Battery Charger – Automatic Maintainer, Trickle Charger &amp; Desulfator with Overcharge Protection &amp; Temperature Compensation – For Lead-Acid &amp; Lithium Batteries" src="https://m.media-amazon.com/images/I/51VPVo5HL3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07W8KJH44?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="NOCO GENIUS5: 5A 6V/12V Smart Battery Charger – Automatic Maintainer, Trickle Charger &amp; Desulfator with Overcharge Protection &amp; Temperature Compensation – For Lead-Acid &amp; Lithium Batteries" src="https://m.media-amazon.com/images/I/51VPVo5HL3L._SL500_.jpg"/></a>
 
 
 The **NOCO GENIUS5** is an ideal choice for vehicle owners, hobbyists, and professionals who are looking for a **reliable and versatile battery charger**. It is perfect for those who need a **compact, yet powerful solution** for maintaining and charging various **lead-acid and lithium batteries**. Whether you own a car, boat, or a motorcycle, this smart battery charger is designed to keep your battery in optimal condition, making it an essential tool for anyone who wants to avoid the inconvenience of a dead battery.
@@ -124,10 +124,10 @@ The **NOCO GENIUS5** comes with a range of features that enhance its usability a
 
 Another key benefit of the **NOCO GENIUS5** is its **compact and lightweight design**. Weighing just 1.59 pounds and with dimensions that allow for easy storage, it is perfect for those with limited space. Despite its small size, it is incredibly powerful, capable of charging both **6V and 12V batteries**. This versatility makes it a great investment for anyone with multiple types of vehicles or equipment. The charger is also equipped with a **desulfator**, which can help extend the life of your battery by breaking down sulfate buildup, a common issue in lead-acid batteries.
 
-## <a href="https://www.amazon.com/dp/B016S7NHWQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Battery Tender 3 Amp Battery Charger And Maintainer</a>
+## <a href="https://www.amazon.com/dp/B016S7NHWQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Battery Tender 3 Amp Battery Charger And Maintainer</a>
 
 
-<a href="https://www.amazon.com/dp/B016S7NHWQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Battery Tender 3 AMP Battery Charger and Maintainer - Automotive Switchable 12V or 6V Smart Automatic for Cars SUVs and Trucks - Lead Acid, AGM, Gel, &amp; Lithium Battery Charger - 022-0202-COS" src="https://m.media-amazon.com/images/I/411x87QfajL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B016S7NHWQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Battery Tender 3 AMP Battery Charger and Maintainer - Automotive Switchable 12V or 6V Smart Automatic for Cars SUVs and Trucks - Lead Acid, AGM, Gel, &amp; Lithium Battery Charger - 022-0202-COS" src="https://m.media-amazon.com/images/I/411x87QfajL._SL500_.jpg"/></a>
 
 
 The **Battery Tender 3 AMP Battery Charger and Maintainer** is ideal for vehicle owners who want a reliable and efficient way to keep their batteries in optimal condition. Whether you own a car, SUV, or truck, and use lead acid, AGM, gel, or lithium batteries, this charger is designed for those who need a smart, automatic solution to maintain battery health without constant monitoring.
@@ -150,10 +150,10 @@ The **Battery Tender 3 AMP Charger** stands out for its smart automatic charging
 
 With compatibility across popular battery chemistries such as **Lead Acid**, **AGM**, **Gel**, and **Lithium**, this charger caters to a wide range of users, from casual drivers to enthusiasts who maintain multiple vehicles. The smart technology not only charges but also maintains batteries at an optimal level, reducing the frequency of replacements and ensuring vehicles start reliably every time.
 
-## <a href="https://www.amazon.com/dp/B07W3QT226?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Noco Genius10</a>
+## <a href="https://www.amazon.com/dp/B07W3QT226?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Noco Genius10</a>
 
 
-<a href="https://www.amazon.com/dp/B07W3QT226?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="NOCO GENIUS10: 10A 6V/12V Smart Battery Charger – Automatic Maintainer, Trickle Charger &amp; Desulfator with Overcharge Protection &amp; Temperature Compensation – For Lead-Acid &amp; Lithium Batteries" src="https://m.media-amazon.com/images/I/41DrjRJ5I5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07W3QT226?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="NOCO GENIUS10: 10A 6V/12V Smart Battery Charger – Automatic Maintainer, Trickle Charger &amp; Desulfator with Overcharge Protection &amp; Temperature Compensation – For Lead-Acid &amp; Lithium Batteries" src="https://m.media-amazon.com/images/I/41DrjRJ5I5L._SL500_.jpg"/></a>
 
 
 The **NOCO GENIUS10** is ideal for vehicle owners, mechanics, and anyone who needs a reliable and efficient solution to maintain and charge their **lead-acid** or **lithium batteries**. Whether you have a car, motorcycle, boat, or any other battery-powered equipment, this smart charger is designed to keep your batteries in optimal condition without the hassle of manual monitoring.
@@ -175,10 +175,10 @@ The **NOCO GENIUS10** features a smart charging technology that automatically de
 
 Additionally, the charger includes temperature compensation, which adjusts the charging rate based on the ambient temperature to protect the battery from damage caused by extreme heat or cold. The compact black design, weighing just under 4 pounds, makes it easy to carry and store. Overall, the **NOCO GENIUS10** offers a powerful, intelligent, and safe solution for anyone looking to maintain their batteries with ease and confidence.
 
-## <a href="https://www.amazon.com/dp/B08F37P7H3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Noco Genius2x2</a>
+## <a href="https://www.amazon.com/dp/B08F37P7H3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Noco Genius2x2</a>
 
 
-<a href="https://www.amazon.com/dp/B08F37P7H3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="NOCO GENIUS2X2: 4A 2-Bank Smart Battery Charger (2A/Bank) - 6V/12V Automatic Maintainer, Trickle Charger &amp; Desulfator with Overcharge Protection &amp; Temperature Compensation – For Lead-Acid &amp; Lithium" src="https://m.media-amazon.com/images/I/51FEYvU5+aL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08F37P7H3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="NOCO GENIUS2X2: 4A 2-Bank Smart Battery Charger (2A/Bank) - 6V/12V Automatic Maintainer, Trickle Charger &amp; Desulfator with Overcharge Protection &amp; Temperature Compensation – For Lead-Acid &amp; Lithium" src="https://m.media-amazon.com/images/I/51FEYvU5+aL._SL500_.jpg"/></a>
 
 
 The **NOCO GENIUS2X2** is ideal for vehicle owners and enthusiasts who need a reliable, efficient solution to maintain and charge multiple batteries simultaneously. Whether you own a car, motorcycle, boat, or any equipment powered by **6V or 12V lead-acid or lithium batteries**, this smart charger is designed for those seeking automatic maintenance, enhanced battery life, and safety features.
@@ -202,10 +202,10 @@ The **NOCO GENIUS2X2** charger stands out with its dual-bank capability, allowin
 
 Beyond charging, the device offers a **desulfation mode** that actively restores battery health by removing sulfate build-up, which is a common cause of battery failure. Its integrated **overcharge protection** and **temperature compensation** further safeguard batteries against common issues caused by environmental factors and prolonged use. Compact dimensions and a lightweight build make the NOCO GENIUS2X2 convenient for both storage and portable use, making it a versatile and valuable tool for anyone looking to extend the life and performance of their batteries.
 
-## <a href="https://www.amazon.com/dp/B07XMJDJX7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Battery Tender 4 Amp Battery Charger And Maintainer</a>
+## <a href="https://www.amazon.com/dp/B07XMJDJX7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Battery Tender 4 Amp Battery Charger And Maintainer</a>
 
 
-<a href="https://www.amazon.com/dp/B07XMJDJX7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Battery Tender 4 AMP Battery Charger and Maintainer - Automotive Switchable 12V or 6V Smart Automatic for Cars SUVs and Trucks - Lead Acid, AGM, Gel, &amp; Lithium Battery Charger - 022-0209-BT-WH" src="https://m.media-amazon.com/images/I/41SfewucDyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07XMJDJX7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Battery Tender 4 AMP Battery Charger and Maintainer - Automotive Switchable 12V or 6V Smart Automatic for Cars SUVs and Trucks - Lead Acid, AGM, Gel, &amp; Lithium Battery Charger - 022-0209-BT-WH" src="https://m.media-amazon.com/images/I/41SfewucDyL._SL500_.jpg"/></a>
 
 
 The **Battery Tender 4 AMP Battery Charger and Maintainer** is ideal for vehicle owners who want a reliable and efficient way to maintain their automotive batteries. Perfect for those with **cars, SUVs, trucks**, or any vehicle using **12V or 6V** batteries, this charger suits individuals seeking a smart, automatic charging solution compatible with a variety of battery types including **Lead Acid, AGM, Gel, and Lithium**. If you prioritize battery longevity and hassle-free maintenance, this device is designed with you in mind.
@@ -227,10 +227,10 @@ The **Battery Tender 4 AMP Battery Charger and Maintainer** offers a user-friend
 
 Additionally, the charger’s compatibility with different battery chemistries such as **Lead Acid, AGM, Gel, and Lithium** adds to its convenience. This flexibility enables users to maintain various batteries without needing multiple chargers. Its compact size and lightweight construction make it easy to store and transport, while the robust design ensures durability for long-term use. Overall, this charger is an excellent investment for anyone looking to maintain their vehicle’s battery health efficiently and effectively.
 
-## <a href="https://www.amazon.com/dp/B0797KK3N2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Schumacher Electric Car Battery Charger And Maintainer Sc1280</a>
+## <a href="https://www.amazon.com/dp/B0797KK3N2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Schumacher Electric Car Battery Charger And Maintainer Sc1280</a>
 
 
-<a href="https://www.amazon.com/dp/B0797KK3N2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Schumacher Electric Car Battery Charger and Maintainer SC1280 4-in-1, 15 Amp, Fully Automatic for 6v and12v Automobile Batteries - Ideal for Motorcycles, Cars, Trucks, SUVs, Marine Batteries, and More" src="https://m.media-amazon.com/images/I/41obOwEqhmL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0797KK3N2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Schumacher Electric Car Battery Charger and Maintainer SC1280 4-in-1, 15 Amp, Fully Automatic for 6v and12v Automobile Batteries - Ideal for Motorcycles, Cars, Trucks, SUVs, Marine Batteries, and More" src="https://m.media-amazon.com/images/I/41obOwEqhmL._SL500_.jpg"/></a>
 
 
 The **Schumacher Electric Car Battery Charger and Maintainer SC1280 4-in-1** is perfect for vehicle owners who need a reliable and versatile solution to keep their **6v and 12v automobile batteries** charged and maintained. Ideal for those with **motorcycles, cars, trucks, SUVs, and marine batteries**, this charger is designed for anyone looking to extend battery life and ensure their vehicles are always ready to go.
@@ -252,10 +252,10 @@ The **Schumacher Electric SC1280** stands out with its **4-in-1** capability, al
 
 Designed with versatility in mind, this charger supports both **6v and 12v batteries**, making it a valuable tool for owners of various vehicle types. The robust **15 Amp** charging capability provides quick and efficient charging, ideal for restoring power in larger batteries commonly found in trucks and SUVs. Additionally, its compact black design fits conveniently in garages or workshops, making it a practical and dependable choice for everyday battery care.
 
-## <a href="https://www.amazon.com/dp/B07W6B987F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Noco Genius2</a>
+## <a href="https://www.amazon.com/dp/B07W6B987F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Noco Genius2</a>
 
 
-<a href="https://www.amazon.com/dp/B07W6B987F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="NOCO GENIUS2: 2A 6V/12V Smart Battery Charger – Automatic Maintainer, Trickle Charger &amp; Desulfator with Overcharge Protection &amp; Temperature Compensation – For Lead-Acid &amp; Lithium Batteries" src="https://m.media-amazon.com/images/I/41ZnnO9ICuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07W6B987F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="NOCO GENIUS2: 2A 6V/12V Smart Battery Charger – Automatic Maintainer, Trickle Charger &amp; Desulfator with Overcharge Protection &amp; Temperature Compensation – For Lead-Acid &amp; Lithium Batteries" src="https://m.media-amazon.com/images/I/41ZnnO9ICuL._SL500_.jpg"/></a>
 
 
 The **NOCO GENIUS2** is ideal for vehicle owners, motorcycle enthusiasts, and anyone who needs a reliable, smart solution for maintaining their **6V** or **12V batteries**. Whether you have **lead-acid** or **lithium batteries**, this charger is perfect for those looking to extend battery life, avoid overcharging, and ensure optimal performance in various weather conditions.

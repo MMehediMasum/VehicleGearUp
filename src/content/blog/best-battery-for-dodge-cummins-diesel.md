@@ -23,10 +23,10 @@ Maintenance-free AGM batteries offer durability and high cold cranking amps (CCA
 
 
 
-## <a href="https://www.amazon.com/dp/B096G5LJRY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Custom Battery Cables Compatible/replacement Kit Dodge Ram Truck Gen 3 2003-2007 5.9l 24 Valve Cummins Diesel Straight Starter Lug</a>
+## <a href="https://www.amazon.com/dp/B096G5LJRY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Custom Battery Cables Compatible/replacement Kit Dodge Ram Truck Gen 3 2003-2007 5.9l 24 Valve Cummins Diesel Straight Starter Lug</a>
 
 
-<a href="https://www.amazon.com/dp/B096G5LJRY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Custom Battery Cables Compatible/Replacement kit Dodge RAM Truck Gen 3 2003-2007 5.9L 24 valve Cummins Diesel STRAIGHT starter lug, Tho Original. Made in USA 790" src="https://m.media-amazon.com/images/I/51JcjIKPLxS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B096G5LJRY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Custom Battery Cables Compatible/Replacement kit Dodge RAM Truck Gen 3 2003-2007 5.9L 24 valve Cummins Diesel STRAIGHT starter lug, Tho Original. Made in USA 790" src="https://m.media-amazon.com/images/I/51JcjIKPLxS._SL500_.jpg"/></a>
 
 
 The **Custom Battery Cables Compatible/Replacement Kit** is ideal for owners of **Dodge RAM Truck Gen 3 2003-2007 5.9L 24 valve Cummins Diesel** engines who need a reliable and durable replacement for their battery cables. If you are looking to maintain or restore the electrical system of your truck with high-quality, made-in-USA components, this kit is designed specifically for you, especially if you require a **STRAIGHT starter lug** that matches the original specifications.
@@ -49,10 +49,10 @@ The **Custom Battery Cables Replacement Kit** offers a tailored solution for mai
 
 Constructed from high-quality materials and proudly made in the USA, this kit guarantees durability and reliability under demanding conditions. The weight of 13.0 pounds strikes a balance between robust cable thickness for optimal electrical conductivity and manageable handling for installers. Overall, this replacement kit helps sustain your truck's performance by ensuring stable power delivery to the starter, enhancing your vehicle’s starting reliability and longevity.
 
-## <a href="https://www.amazon.com/dp/B0979JWRQS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Custom Battery Cables Kit Compatible For Dodge Ram 2500/3500 2007-2009 Gen 3.5 6.7l Cummins Diesel</a>
+## <a href="https://www.amazon.com/dp/B0979JWRQS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Custom Battery Cables Kit Compatible For Dodge Ram 2500/3500 2007-2009 Gen 3.5 6.7l Cummins Diesel</a>
 
 
-<a href="https://www.amazon.com/dp/B0979JWRQS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Made in USA. Custom Battery Cables kit Compatible/Replacement for Dodge Ram 2500/3500 2007-2009 Gen 3.5 6.7L Cummins diesel The Original. pn 792" src="https://m.media-amazon.com/images/I/41os0lGhKXS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0979JWRQS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Made in USA. Custom Battery Cables kit Compatible/Replacement for Dodge Ram 2500/3500 2007-2009 Gen 3.5 6.7L Cummins diesel The Original. pn 792" src="https://m.media-amazon.com/images/I/41os0lGhKXS._SL500_.jpg"/></a>
 
 
 The **Made in USA Custom Battery Cables kit** is ideal for owners of the **Dodge Ram 2500/3500 (2007-2009)** equipped with the **Gen 3.5 6.7L Cummins diesel engine**. If you're looking for a reliable, high-quality replacement or upgrade for your vehicle's battery cables, this product is designed specifically to meet the rigorous demands of your truck's electrical system. Perfect for DIY enthusiasts and professional mechanics alike, it ensures compatibility and durability tailored for your Dodge Ram.
@@ -75,10 +75,10 @@ The **Custom Battery Cables kit** offers an exceptional solution for maintaining
 
 Additionally, the use of premium materials in the manufacturing process enhances resistance to wear and environmental factors, which is crucial for trucks that operate in demanding conditions. The custom design tailored specifically for the Gen 3.5 6.7L Cummins diesel engine means users can expect a hassle-free installation process, saving both time and effort. This kit not only restores but also potentially improves the vehicle's battery system longevity and efficiency, making it a smart investment for Dodge Ram owners seeking quality and dependability.
 
-## <a href="https://www.amazon.com/dp/B006N91C2M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Acdelco Gold 94ragm Battery</a>
+## <a href="https://www.amazon.com/dp/B006N91C2M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Acdelco Gold 94ragm Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B006N91C2M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ACDelco Gold 94RAGM (88864542) 36 Month Warranty AGM BCI Group 94R Battery" src="https://m.media-amazon.com/images/I/41SxFovMY+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B006N91C2M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ACDelco Gold 94RAGM (88864542) 36 Month Warranty AGM BCI Group 94R Battery" src="https://m.media-amazon.com/images/I/41SxFovMY+L._SL500_.jpg"/></a>
 
 
 The **ACDelco Gold 94RAGM (88864542) 36 Month Warranty AGM BCI Group 94R Battery** is ideal for vehicle owners seeking a reliable, long-lasting power source for their cars or trucks. This battery is perfect for those who prioritize durability and performance, especially in demanding weather conditions or for vehicles with advanced electrical systems. If you need a maintenance-free, high-capacity battery with a solid warranty, this is an excellent choice.
@@ -100,10 +100,10 @@ The **ACDelco Gold 94RAGM battery** features advanced AGM technology that enhanc
 
 Additionally, the battery’s **maintenance-free design** allows users to avoid the hassle of checking water levels, making it convenient for busy vehicle owners. The generous 36-month warranty underscores ACDelco’s confidence in the product’s longevity and reliability, offering users assurance that they are investing in a high-quality battery. Overall, this battery is a practical and durable choice for anyone looking to upgrade or replace their vehicle's power source.
 
-## <a href="https://www.amazon.com/dp/B09477CFP2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Battery Cable Kit For Dodge Ram 2500/3500 1998–2002</a>
+## <a href="https://www.amazon.com/dp/B09477CFP2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Battery Cable Kit For Dodge Ram 2500/3500 1998–2002</a>
 
 
-<a href="https://www.amazon.com/dp/B09477CFP2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Battery cable kit for use with Dodge Ram 2500/3500 for 1998 – 2002 (Gen 2.5) with 24 valve 5.9L Cummins Diesel" src="https://m.media-amazon.com/images/I/41jlO+8VnsS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09477CFP2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Battery cable kit for use with Dodge Ram 2500/3500 for 1998 – 2002 (Gen 2.5) with 24 valve 5.9L Cummins Diesel" src="https://m.media-amazon.com/images/I/41jlO+8VnsS._SL500_.jpg"/></a>
 
 
 The **Battery Cable Kit** for the **Dodge Ram 2500/3500** from **1998 – 2002** is ideal for owners looking to enhance the performance and reliability of their vehicle's electrical system. If you're someone who frequently uses your truck for heavy-duty tasks or off-road adventures, this kit can ensure that your **24 valve 5.9L Cummins Diesel** engine runs smoothly by providing a stable and efficient power connection. Whether you are a DIY enthusiast or a professional mechanic, this kit is designed to meet your needs with ease and precision.
@@ -123,10 +123,10 @@ The **Battery Cable Kit** from **Custom Battery Cables** is meticulously designe
 
 With this **battery cable kit**, users can expect **improved electrical efficiency**, which translates to better engine performance and reliability. This is critical for maintaining the powerful operations of the **24 valve 5.9L Cummins Diesel** engine. However, potential buyers should be aware that the installation may require a certain level of mechanical expertise. For those without this knowledge, seeking professional assistance might be necessary to ensure the kit is installed correctly and functions optimally.
 
-## <a href="https://www.amazon.com/dp/B0D53Z4HNF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Camotokiit Battery Cables 6 Gauge With Fuselink Battery To Grid Heater Relay Wire</a>
+## <a href="https://www.amazon.com/dp/B0D53Z4HNF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Camotokiit Battery Cables 6 Gauge With Fuselink Battery To Grid Heater Relay Wire</a>
 
 
-<a href="https://www.amazon.com/dp/B0D53Z4HNF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Camotokiit Battery Cables 6 Gauge with fuselink Battery to Grid Heater Relay Wire Compatible with Dodge Cummins Diesel 2003-2018" src="https://m.media-amazon.com/images/I/31KwCcP5uGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D53Z4HNF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Camotokiit Battery Cables 6 Gauge with fuselink Battery to Grid Heater Relay Wire Compatible with Dodge Cummins Diesel 2003-2018" src="https://m.media-amazon.com/images/I/31KwCcP5uGL._SL500_.jpg"/></a>
 
 
 The **Camotokiit Battery Cables 6 Gauge** with fuselink are ideal for vehicle owners and mechanics who need reliable and efficient wiring solutions for their **Dodge Cummins Diesel 2003-2018** models. This product is perfect for those looking to upgrade or replace their battery to grid heater relay wiring with a durable and compatible option designed specifically for these diesel engines.
@@ -147,10 +147,10 @@ The **Camotokiit Battery Cables** feature robust 6 gauge wiring that supports ef
 
 Designed exclusively for **Dodge Cummins Diesel engines from 2003 to 2018**, these cables ensure precise compatibility, which translates to easier installation and reduced risk of connection issues. The product’s build quality from **Camotokiit** offers durability against wear and tear, ensuring long-term performance even under harsh driving conditions. Overall, this wiring solution provides a seamless blend of safety, efficiency, and compatibility tailored for diesel truck enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B0C81FT86S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Uplus Bci Group 48 Car Battery</a>
+## <a href="https://www.amazon.com/dp/B0C81FT86S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Uplus Bci Group 48 Car Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B0C81FT86S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="UPLUS BCI Group 48 Car Battery, AGM-L70-M Maintenance Free 12V 70Ah Premium AGM Batteries H6 L3 Automotive Battery, 760CCA, 80RC" src="https://m.media-amazon.com/images/I/41zlQcs-SSL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C81FT86S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="UPLUS BCI Group 48 Car Battery, AGM-L70-M Maintenance Free 12V 70Ah Premium AGM Batteries H6 L3 Automotive Battery, 760CCA, 80RC" src="https://m.media-amazon.com/images/I/41zlQcs-SSL._SL500_.jpg"/></a>
 
 
 The **UPLUS BCI Group 48 Car Battery** is ideal for vehicle owners seeking a reliable, maintenance-free power source that delivers strong starting power and durability. This battery is perfect for drivers who want a hassle-free experience with a long-lasting battery that can handle demanding automotive needs.
@@ -172,10 +172,10 @@ The **UPLUS BCI Group 48 Battery** features advanced **Absorbent Glass Mat (AGM)
 
 Additionally, the battery's **maintenance-free design** eliminates the need for regular water refills, reducing upkeep and allowing users to focus on driving. The **12V 70Ah capacity** supports a wide range of automotive electrical systems, making it versatile for many vehicles. Its compact size and moderate weight simplify installation, while the premium build quality from **Leoch Battery** guarantees long-term performance and durability.
 
-## <a href="https://www.amazon.com/dp/B0D9QK32WQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Autodepot Bci Group 49 Car Battery</a>
+## <a href="https://www.amazon.com/dp/B0D9QK32WQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Autodepot Bci Group 49 Car Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B0D9QK32WQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="1AUTODEPOT BCI Group 49 Car Battery, 12V 95Ah Size H8 Automotive Battery Premium Maintenance Free AGM Batteries, 900CCA, 160RC" src="https://m.media-amazon.com/images/I/41yZGfg4s4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D9QK32WQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="1AUTODEPOT BCI Group 49 Car Battery, 12V 95Ah Size H8 Automotive Battery Premium Maintenance Free AGM Batteries, 900CCA, 160RC" src="https://m.media-amazon.com/images/I/41yZGfg4s4L._SL500_.jpg"/></a>
 
 
 The **1AUTODEPOT BCI Group 49 Car Battery** is ideal for vehicle owners looking for a reliable, high-performance, and maintenance-free power solution. It is perfect for those who need a durable **12V 95Ah** battery with robust cold cranking amps to ensure optimal engine starting in various weather conditions. If you drive a car or light truck requiring a **Size H8** battery with premium features, this battery is an excellent choice.
@@ -197,10 +197,10 @@ The **1AUTODEPOT BCI Group 49 Car Battery** features advanced **Absorbent Glass 
 
 Additionally, the battery’s **160 Reserve Capacity** provides ample power to support modern vehicles’ electrical systems and accessories, such as infotainment systems, navigation, and advanced safety features. Its **maintenance-free design** means you won’t have to worry about topping up electrolyte levels, saving time and effort while maintaining consistent performance. Overall, this battery is engineered to deliver reliable, long-lasting power tailored to the needs of demanding drivers.
 
-## <a href="https://www.amazon.com/dp/B0F2HJKP37?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sowyre 790 Battery Cable Wire Kit</a>
+## <a href="https://www.amazon.com/dp/B0F2HJKP37?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sowyre 790 Battery Cable Wire Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0F2HJKP37?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Sowyre 790 Battery Cable Wire Kit Compatible with Dodge Ram Truck Gen 3 2003-2007 5.9L 24 valve Cummins Diesel Engine 2/0 Wire with 90 Degree Bend Atstarter" src="https://m.media-amazon.com/images/I/51DJKxdSX5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F2HJKP37?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Sowyre 790 Battery Cable Wire Kit Compatible with Dodge Ram Truck Gen 3 2003-2007 5.9L 24 valve Cummins Diesel Engine 2/0 Wire with 90 Degree Bend Atstarter" src="https://m.media-amazon.com/images/I/51DJKxdSX5L._SL500_.jpg"/></a>
 
 
 The **Sowyre 790 Battery Cable Wire Kit** is ideal for owners of the **Dodge Ram Truck Gen 3 (2003-2007) 5.9L 24 valve Cummins Diesel Engine** who need a reliable and durable replacement or upgrade for their battery wiring. This product is perfect for mechanics, DIY enthusiasts, and truck owners seeking a high-quality cable kit designed to handle the rigorous demands of diesel engines and ensure optimal electrical performance.
@@ -222,10 +222,10 @@ The **Sowyre 790 Battery Cable Wire Kit** features a robust 2/0 gauge wire that 
 
 Beyond its physical design, the kit offers significant benefits such as improved electrical conductivity and enhanced durability, which are essential for diesel engines that demand reliable and consistent power delivery. By using this kit, truck owners can expect fewer electrical problems, better starting performance, and increased overall reliability. The product's compatibility with a specific engine model means it provides a tailored fit, minimizing installation hassles and ensuring that the cable performs at its best under the tough conditions typical of diesel truck operation.
 
-## <a href="https://www.amazon.com/dp/B09HDHWDW9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Custom Battery Cables Kit Compatible For Dodge Ram 2500 3500 Gen 2 12-valve 5.9l Cummins Diesel 1994-1998</a>
+## <a href="https://www.amazon.com/dp/B09HDHWDW9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Custom Battery Cables Kit Compatible For Dodge Ram 2500 3500 Gen 2 12-valve 5.9l Cummins Diesel 1994-1998</a>
 
 
-<a href="https://www.amazon.com/dp/B09HDHWDW9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Made in USA. Custom Battery Cables Kit Compatible/Replacement for Dodge RAM 2500 3500 truck Gen 2 12-valve 5.9L Cummins Diesel 1994-1998 3/0 hard-start kit for EXTREME conditions The Original 807" src="https://m.media-amazon.com/images/I/41Hkljlb-+S._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09HDHWDW9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Made in USA. Custom Battery Cables Kit Compatible/Replacement for Dodge RAM 2500 3500 truck Gen 2 12-valve 5.9L Cummins Diesel 1994-1998 3/0 hard-start kit for EXTREME conditions The Original 807" src="https://m.media-amazon.com/images/I/41Hkljlb-+S._SL500_.jpg"/></a>
 
 
 Ideal for owners of the **Dodge RAM 2500** and **3500 trucks** equipped with the **Gen 2 12-valve 5.9L Cummins Diesel engine** from 1994 to 1998, this **Custom Battery Cables Kit** is specifically designed for those who demand reliable performance in **extreme conditions**. If you are looking to replace or upgrade your battery cables to ensure optimal starting power and durability, this kit is an excellent choice.
@@ -249,10 +249,10 @@ This **Custom Battery Cables Kit** stands out for its tailored design and robust
 
 By choosing this **Made in USA** battery cable kit, users benefit not only from enhanced durability but also from increased reliability in demanding scenarios often faced by diesel trucks. Whether you drive in cold climates, off-road, or require dependable starting power daily, this kit offers a solid upgrade to maintain your Dodge RAM's performance. Its compatibility with the Gen 2 12-valve 5.9L Cummins Diesel engine ensures that the cables match factory specifications for optimal operation.
 
-## <a href="https://www.amazon.com/dp/B0DXDPTWNK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">790 Battery Cable Wire Kit Compatible With Dodge Ram Truck Gen 3 2003-2007 2500 And 3500 Models 5.9l 24 Valve Cummins Diesel Engine</a>
+## <a href="https://www.amazon.com/dp/B0DXDPTWNK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">790 Battery Cable Wire Kit Compatible With Dodge Ram Truck Gen 3 2003-2007 2500 And 3500 Models 5.9l 24 Valve Cummins Diesel Engine</a>
 
 
-<a href="https://www.amazon.com/dp/B0DXDPTWNK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="790 Battery Cable Wire Kit Compatible With Dodge RAM Truck Gen 3 2003-2007 2500 and 3500 Models 5.9L 24 Valve Cummins Diesel Engine 2/0 Wire with 90 Degree Bend Atstarte Straight Starter Lug" src="https://m.media-amazon.com/images/I/51fIoFh4f1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DXDPTWNK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="790 Battery Cable Wire Kit Compatible With Dodge RAM Truck Gen 3 2003-2007 2500 and 3500 Models 5.9L 24 Valve Cummins Diesel Engine 2/0 Wire with 90 Degree Bend Atstarte Straight Starter Lug" src="https://m.media-amazon.com/images/I/51fIoFh4f1L._SL500_.jpg"/></a>
 
 
 The **790 Battery Cable Wire Kit** is ideal for owners of **Dodge RAM Truck Gen 3** models from **2003 to 2007**, specifically the **2500 and 3500** series equipped with the **5.9L 24 Valve Cummins Diesel Engine**. If you are looking to replace or upgrade your battery cables with a reliable, durable, and compatible solution, this kit is designed to meet your needs.

@@ -23,10 +23,10 @@ Accessories like cooling liners and skull caps also help keep riders cool and sw
 
 
 
-## <a href="https://www.amazon.com/dp/B0CQT6V98M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Favoto Full Face Motorcycle Helmet</a>
+## <a href="https://www.amazon.com/dp/B0CQT6V98M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Favoto Full Face Motorcycle Helmet</a>
 
 
-<a href="https://www.amazon.com/dp/B0CQT6V98M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Favoto Full Face Motorcycle Helmet DOT Approved, Cascos para Motos Snowmobile Dirt Bike Helmet for Adults Men Women, Anti-Fog Film Included, Carbon Fiber, XXL" src="https://m.media-amazon.com/images/I/51OYW4rJL+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CQT6V98M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Favoto Full Face Motorcycle Helmet DOT Approved, Cascos para Motos Snowmobile Dirt Bike Helmet for Adults Men Women, Anti-Fog Film Included, Carbon Fiber, XXL" src="https://m.media-amazon.com/images/I/51OYW4rJL+L._SL500_.jpg"/></a>
 
 
 The **Favoto Full Face Motorcycle Helmet** is an excellent choice for motorcycle enthusiasts who prioritize safety, comfort, and style. Ideal for both men and women who ride motorcycles, snowmobiles, or dirt bikes, this helmet is designed to meet the needs of riders seeking reliable head protection with advanced features such as an **anti-fog film** and **DOT approval**. If you want a helmet that combines durability with modern design, this is a perfect fit.
@@ -48,10 +48,10 @@ The **Favoto Full Face Motorcycle Helmet** features a robust **carbon fiber shel
 
 Additionally, the helmet's certification with the **DOT** (Department of Transportation) standard guarantees it meets strict safety criteria, offering peace of mind to riders. Its design caters to both men and women, with a comfortable fit and padding that adapts well to different head shapes, making it versatile and user-friendly. Whether you're commuting, off-roading, or enjoying winter sports, this helmet provides reliable protection coupled with comfort and style.
 
-## <a href="https://www.amazon.com/dp/B00657A0DO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Daytona Helmets German Style Novelty Motorcycle Helmet</a>
+## <a href="https://www.amazon.com/dp/B00657A0DO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Daytona Helmets German Style Novelty Motorcycle Helmet</a>
 
 
-<a href="https://www.amazon.com/dp/B00657A0DO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Daytona Helmets German Style Novelty Motorcycle Helmet - Timeless Classic Design, Comfortable Padded Liner, Adjustable Leather Chin Strap- Perfect Biker Accessory for Men &amp; Women" src="https://m.media-amazon.com/images/I/31Ge97DUvuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00657A0DO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Daytona Helmets German Style Novelty Motorcycle Helmet - Timeless Classic Design, Comfortable Padded Liner, Adjustable Leather Chin Strap- Perfect Biker Accessory for Men &amp; Women" src="https://m.media-amazon.com/images/I/31Ge97DUvuL._SL500_.jpg"/></a>
 
 
 The **Daytona Helmets German Style Novelty Motorcycle Helmet** is ideal for motorcycle enthusiasts who appreciate a blend of classic design and modern comfort. Whether you're a seasoned rider or a casual biker, this helmet suits both **men and women** looking for a stylish yet functional headgear option that enhances their riding experience. Its timeless aesthetic and reliable features make it perfect for those who value safety without compromising on vintage appeal.
@@ -75,10 +75,10 @@ The **Daytona Helmets German Style Novelty Motorcycle Helmet** offers a unique c
 
 Crafted by **Daytona Helmets**, a trusted name in quality headgear, this helmet delivers reliable protection with a nod to classic design. Its **dull black color** and compact dimensions make it versatile and easy to wear, while the overall construction ensures durability. Whether for daily commuting or leisure rides, this helmet is a perfect accessory for those seeking a blend of timeless aesthetics and comfortable performance.
 
-## <a href="https://www.amazon.com/dp/B0BS7BGHK9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hax Obsidian Full Face Dual Visor Adult Motorcycle Helmet</a>
+## <a href="https://www.amazon.com/dp/B0BS7BGHK9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hax Obsidian Full Face Dual Visor Adult Motorcycle Helmet</a>
 
 
-<a href="https://www.amazon.com/dp/B0BS7BGHK9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HAX Obsidian Full Face Dual Visor Adult Motorcycle Helmet for Motorbike Street Bike with Pinlock Ready DOT Approved Samurai Gold M" src="https://m.media-amazon.com/images/I/51uM7GZDmmL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BS7BGHK9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HAX Obsidian Full Face Dual Visor Adult Motorcycle Helmet for Motorbike Street Bike with Pinlock Ready DOT Approved Samurai Gold M" src="https://m.media-amazon.com/images/I/51uM7GZDmmL._SL500_.jpg"/></a>
 
 
 The **HAX Obsidian Full Face Dual Visor Adult Motorcycle Helmet** in **Samurai Gold** is ideal for serious motorbike enthusiasts and street bike riders who prioritize safety, style, and functionality. If you are looking for a helmet that offers full-face protection with advanced features like a dual visor system and Pinlock-ready design, this helmet is a great choice. It is especially suited for riders who want a DOT-approved helmet that balances durability and comfort for everyday riding or longer trips.
@@ -101,10 +101,10 @@ The **HAX Obsidian Full Face Dual Visor Helmet** features a well-engineered desi
 
 Additionally, this helmet is DOT approved, meaning it meets rigorous safety standards, giving riders peace of mind on the road. The **Samurai Gold finish** adds a bold and stylish flair, making it a standout choice for riders who want their helmet to reflect their personality. Despite its protective features, the helmet remains relatively lightweight, improving comfort during extended wear without compromising on safety or durability.
 
-## <a href="https://www.amazon.com/dp/B00UR4HLBK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mission Cooling Helmet Liner</a>
+## <a href="https://www.amazon.com/dp/B00UR4HLBK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mission Cooling Helmet Liner</a>
 
 
-<a href="https://www.amazon.com/dp/B00UR4HLBK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mission Cooling Helmet Liner, Black - Lightweight &amp; Breathable - Cools Up to 2 Hours - UPF 50 Sun Protection - Machine Washable" src="https://m.media-amazon.com/images/I/31hbol0UQyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00UR4HLBK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mission Cooling Helmet Liner, Black - Lightweight &amp; Breathable - Cools Up to 2 Hours - UPF 50 Sun Protection - Machine Washable" src="https://m.media-amazon.com/images/I/31hbol0UQyL._SL500_.jpg"/></a>
 
 
 The **Mission Cooling Helmet Liner** in black is ideal for athletes, outdoor enthusiasts, and workers who need to stay cool and protected under their helmets during intense physical activities or hot weather conditions. If you frequently engage in cycling, running, hiking, or construction work, this lightweight and breathable cooling liner is designed to enhance your comfort and performance.
@@ -127,10 +127,10 @@ The **Mission Cooling Helmet Liner** is crafted with advanced cooling fabric tec
 
 Additionally, the liner offers **UPF 50 sun protection**, making it an excellent accessory for outdoor sports and work environments where sun exposure is a concern. Its lightweight construction ensures that it does not add unnecessary weight or discomfort under helmets. Being **machine washable**, it maintains hygiene and durability over time, making it a practical and reliable choice for anyone seeking enhanced cooling and sun protection during their active lifestyle.
 
-## <a href="https://www.amazon.com/dp/B00656X1RM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Daytona Helmets Hawk Headgear For Men</a>
+## <a href="https://www.amazon.com/dp/B00656X1RM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Daytona Helmets Hawk Headgear For Men</a>
 
 
-<a href="https://www.amazon.com/dp/B00656X1RM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Daytona Helmets Hawk Headgear for Men - Novelty Half Helmet with Breathable Liner - Retro Skull Cap Helmet with Head Wrap" src="https://m.media-amazon.com/images/I/31OtV-WaWUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00656X1RM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Daytona Helmets Hawk Headgear for Men - Novelty Half Helmet with Breathable Liner - Retro Skull Cap Helmet with Head Wrap" src="https://m.media-amazon.com/images/I/31OtV-WaWUL._SL500_.jpg"/></a>
 
 
 The **Daytona Helmets Hawk Headgear for Men** is ideal for motorcyclists who appreciate a blend of **style** and **functionality**. This **novelty half helmet** is perfect for those who prioritize a **retro aesthetic** combined with **comfort** and **breathability**. If you're a rider looking to make a statement while ensuring your headgear offers a comfortable experience, this helmet is tailored for you.
@@ -150,10 +150,10 @@ The **Daytona Helmets Hawk Headgear** features a **Hi-Gloss Black finish**, offe
 
 Despite its **novelty helmet** status, the **Daytona Helmets Hawk Headgear** does not compromise on style. The **retro skull cap design** is not only fashionable but also provides a snug fit, ensuring it stays in place even at higher speeds. While it might not have DOT approval, its design appeals to those who prioritize aesthetic value and comfort over certification, making it a popular choice for casual rides.
 
-## <a href="https://www.amazon.com/dp/B06WV7LQZG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Daytona Helmets Eagle Headgear For Men</a>
+## <a href="https://www.amazon.com/dp/B06WV7LQZG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Daytona Helmets Eagle Headgear For Men</a>
 
 
-<a href="https://www.amazon.com/dp/B06WV7LQZG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Daytona Helmets Eagle Headgear for Men - Novelty Half Helmet with Breathable Liner - Retro Skull Cap Helmet with Head Wrap" src="https://m.media-amazon.com/images/I/317zKTpudzL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B06WV7LQZG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Daytona Helmets Eagle Headgear for Men - Novelty Half Helmet with Breathable Liner - Retro Skull Cap Helmet with Head Wrap" src="https://m.media-amazon.com/images/I/317zKTpudzL._SL500_.jpg"/></a>
 
 
 The **Daytona Helmets Eagle Headgear for Men** is perfect for motorcycle enthusiasts who value both style and comfort. Ideal for riders seeking a lightweight, **novelty half helmet** with a **retro skull cap design**, this helmet combines unique aesthetics with practical features. If you want a helmet that stands out on the road while providing reliable protection and breathability, this is an excellent choice.
@@ -176,10 +176,10 @@ The **Daytona Helmets Eagle Headgear** features a high-quality build by **Dayton
 
 Designed with both aesthetics and functionality in mind, this helmet provides essential protection without compromising style. The **hi-gloss black color** adds a premium finish that complements any riding gear. While it offers less coverage than full-face helmets, it is ideal for riders who prioritize freedom of movement and ventilation. Overall, the **Daytona Helmets Eagle Headgear** blends unique design with practical benefits, making it a standout choice in the motorcycle helmet market.
 
-## <a href="https://www.amazon.com/dp/B0D49CSRJ4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Melasa Cooling Skull Caps Helmet Liner</a>
+## <a href="https://www.amazon.com/dp/B0D49CSRJ4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Melasa Cooling Skull Caps Helmet Liner</a>
 
 
-<a href="https://www.amazon.com/dp/B0D49CSRJ4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MELASA Cooling Skull Caps Helmet Liner, Lightweight Mesh Under Helmet Cycling Motorcycle Hard Hat Sweat Liner for Men Women (Black)" src="https://m.media-amazon.com/images/I/419ahCwEOrL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D49CSRJ4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MELASA Cooling Skull Caps Helmet Liner, Lightweight Mesh Under Helmet Cycling Motorcycle Hard Hat Sweat Liner for Men Women (Black)" src="https://m.media-amazon.com/images/I/419ahCwEOrL._SL500_.jpg"/></a>
 
 
 The **MELASA Cooling Skull Caps Helmet Liner** is ideal for cyclists, motorcyclists, and anyone who frequently wears a hard hat or helmet in warm conditions. This product is designed for both **men and women** seeking a comfortable, breathable, and sweat-absorbing liner that enhances helmet comfort during extended use.
@@ -201,10 +201,10 @@ The **MELASA Cooling Skull Caps Helmet Liner** features a lightweight mesh const
 
 Additionally, the liner's slim and flexible design allows it to fit comfortably under a wide range of helmets without interfering with the helmet's safety features. Its durable fabric resists wear and tear, providing reliable performance over time. Whether you're cycling, riding a motorcycle, or wearing a hard hat on the job, this helmet liner enhances comfort and hygiene, making it a practical accessory for active individuals.
 
-## <a href="https://www.amazon.com/dp/B071JH68QM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tough Headwear Skull Cap</a>
+## <a href="https://www.amazon.com/dp/B071JH68QM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tough Headwear Skull Cap</a>
 
 
-<a href="https://www.amazon.com/dp/B071JH68QM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tough Headwear Skull Cap - Skull Caps for Men - Motorcycle and Bike Helmet Liner - Hard Hat Cooling Hats - Mens and Womens No Sweat Head Caps - Cool Running Beanie Black" src="https://m.media-amazon.com/images/I/41U-G1bxSVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B071JH68QM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tough Headwear Skull Cap - Skull Caps for Men - Motorcycle and Bike Helmet Liner - Hard Hat Cooling Hats - Mens and Womens No Sweat Head Caps - Cool Running Beanie Black" src="https://m.media-amazon.com/images/I/41U-G1bxSVL._SL500_.jpg"/></a>
 
 
 The **Tough Headwear Skull Cap** is ideal for **men and women** who engage in high-intensity activities such as **motorcycling, biking, running**, or working under hard hats. This **no sweat head cap** is designed to fit comfortably under helmets or hats, providing a **cooling effect** and moisture-wicking capabilities, making it perfect for those seeking comfort and performance in demanding environments.
@@ -226,10 +226,10 @@ The **Tough Headwear Skull Cap** is crafted from high-quality materials that pro
 
 Additionally, the **cool running beanie** design helps regulate temperature by allowing heat to escape while protecting the head from sweat accumulation. This makes it an excellent choice for athletes and workers alike who need reliable headwear that performs well in various conditions. The cap's universal fit and stylish black color make it a versatile accessory suitable for many outdoor and indoor activities.
 
-## <a href="https://www.amazon.com/dp/B07X3Y2JHM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Daytona Helmets Eagle Headgear For Men</a>
+## <a href="https://www.amazon.com/dp/B07X3Y2JHM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Daytona Helmets Eagle Headgear For Men</a>
 
 
-<a href="https://www.amazon.com/dp/B07X3Y2JHM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Daytona Helmets Eagle Headgear for Men - Novelty Half Helmet with Breathable Liner - Retro Skull Cap Helmet with Head Wrap" src="https://m.media-amazon.com/images/I/31dKkElUoKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07X3Y2JHM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Daytona Helmets Eagle Headgear for Men - Novelty Half Helmet with Breathable Liner - Retro Skull Cap Helmet with Head Wrap" src="https://m.media-amazon.com/images/I/31dKkElUoKL._SL500_.jpg"/></a>
 
 
 The **Daytona Helmets Eagle Headgear for Men** is ideal for motorcycle enthusiasts who prioritize both style and comfort. Perfect for riders looking for a lightweight, novelty half helmet with a retro vibe, this helmet suits those who want to make a bold statement on the road while ensuring safety. If you appreciate a breathable liner and a design that incorporates a head wrap, this helmet is tailored to meet your needs.
@@ -252,10 +252,10 @@ The **Daytona Helmets Eagle Headgear** combines functionality with a distinctive
 
 Featuring a classic black color and compact dimensions (Height: 5.5 inches, Width: 8.0 inches, Length: 10.25 inches), this helmet delivers a snug fit that is both practical and fashionable. The integrated head wrap not only adds to the helmet’s retro appeal but also enhances wearer comfort by providing additional cushioning and a secure fit. Overall, this novelty helmet is perfect for those seeking a blend of vintage style and everyday riding comfort.
 
-## <a href="https://www.amazon.com/dp/B0DGQGSCJ2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Zylioo Oversized Skull Cap</a>
+## <a href="https://www.amazon.com/dp/B0DGQGSCJ2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Zylioo Oversized Skull Cap</a>
 
 
-<a href="https://www.amazon.com/dp/B0DGQGSCJ2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Zylioo Oversized Skull Cap for Me XXL, Hard Hat Liner Large,Cycling Skull Cap,Head Caps for Men,Motorcycle Helmet" src="https://m.media-amazon.com/images/I/31nCUa+CyaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DGQGSCJ2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Zylioo Oversized Skull Cap for Me XXL, Hard Hat Liner Large,Cycling Skull Cap,Head Caps for Men,Motorcycle Helmet" src="https://m.media-amazon.com/images/I/31nCUa+CyaL._SL500_.jpg"/></a>
 
 
 The **Zylioo Oversized Skull Cap** is perfect for individuals seeking a comfortable and versatile headwear option, especially those with larger head sizes. Whether you're a cyclist, motorcyclist, or someone who requires a **hard hat liner**, this cap is designed to provide a snug fit and warmth during cold weather activities. If you often find standard skull caps too tight or uncomfortable, this XXL option is ideal for you.

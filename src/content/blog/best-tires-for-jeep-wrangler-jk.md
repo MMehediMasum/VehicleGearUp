@@ -23,10 +23,10 @@ Lift kits from Rough Country improve ground clearance for tougher terrains. Spar
 
 
 
-## <a href="https://www.amazon.com/dp/B004QL67JM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Goodyear Wrangler Sr-a Radial Tire</a>
+## <a href="https://www.amazon.com/dp/B004QL67JM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Goodyear Wrangler Sr-a Radial Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B004QL67JM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Goodyear Wrangler SR-A Radial Tire - 255/75R17 113S" src="https://m.media-amazon.com/images/I/41ujsOENe5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B004QL67JM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Goodyear Wrangler SR-A Radial Tire - 255/75R17 113S" src="https://m.media-amazon.com/images/I/41ujsOENe5L._SL500_.jpg"/></a>
 
 
 The **Goodyear Wrangler SR-A Radial Tire - 255/75R17 113S** is ideal for drivers who require a reliable, durable tire for their light trucks or SUVs. This tire is perfect for those who often drive on highways but also need solid performance in occasional off-road conditions. If you prioritize a smooth, quiet ride combined with enhanced traction and longevity, this tire is an excellent choice.
@@ -48,10 +48,10 @@ The **Goodyear Wrangler SR-A Radial Tire** features a robust tread pattern that 
 
 Additionally, the tire's dimensions—10.1 inches in height and 32.1 inches in both width and length—offer a substantial footprint for stability and handling. The 113S load and speed rating indicate that it can handle heavy loads and maintain good performance at highway speeds. Overall, this tire delivers a smooth, quiet ride while providing durability and traction, making it a well-rounded choice for everyday driving and light off-road use.
 
-## <a href="https://www.amazon.com/dp/B07HYXBBZ2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Goodyear Wrangler Adventure Kevlar Tire</a>
+## <a href="https://www.amazon.com/dp/B07HYXBBZ2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Goodyear Wrangler Adventure Kevlar Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B07HYXBBZ2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Goodyear Wrangler Adventure Kevlar 255/70R18 113 T Tire" src="https://m.media-amazon.com/images/I/416ZXlW1P8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07HYXBBZ2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Goodyear Wrangler Adventure Kevlar 255/70R18 113 T Tire" src="https://m.media-amazon.com/images/I/416ZXlW1P8L._SL500_.jpg"/></a>
 
 
 The **Goodyear Wrangler Adventure Kevlar 255/70R18 113 T Tire** is ideal for off-road enthusiasts and drivers who demand durability and performance in challenging conditions. If you frequently navigate rough terrains or require a reliable tire for both on-road comfort and off-road toughness, this tire is designed to meet those needs effectively.
@@ -74,10 +74,10 @@ The **Goodyear Wrangler Adventure Kevlar tire** incorporates advanced Kevlar tec
 
 Additionally, the tire’s tread design provides superior traction in various weather conditions, ensuring safety and control on wet, muddy, or uneven surfaces. The blend of durability and all-terrain capability makes it a versatile choice for those who want a tire that performs well both on and off the road without compromising comfort or reliability.
 
-## <a href="https://www.amazon.com/dp/B074J2GQFP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Aries Jeep Wrangler Jk Heavy-duty Adjustable Rear Door Spare Tire Carrier</a>
+## <a href="https://www.amazon.com/dp/B074J2GQFP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Aries Jeep Wrangler Jk Heavy-duty Adjustable Rear Door Spare Tire Carrier</a>
 
 
-<a href="https://www.amazon.com/dp/B074J2GQFP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ARIES 2563000 Jeep Wrangler JK Heavy-Duty Adjustable Rear Door Spare Tire Carrier for Up to 37-Inch Wheels" src="https://m.media-amazon.com/images/I/41sboo3OUKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B074J2GQFP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ARIES 2563000 Jeep Wrangler JK Heavy-Duty Adjustable Rear Door Spare Tire Carrier for Up to 37-Inch Wheels" src="https://m.media-amazon.com/images/I/41sboo3OUKL._SL500_.jpg"/></a>
 
 
 The **ARIES 2563000 Jeep Wrangler JK Heavy-Duty Adjustable Rear Door Spare Tire Carrier** is ideal for Jeep owners who frequently venture off-road and require a reliable, sturdy solution to carry larger spare tires up to 37 inches. If you own a **Jeep Wrangler JK** and want to upgrade your rear door for enhanced durability and tire capacity, this product is designed to meet your needs. It is perfect for outdoor enthusiasts, off-road adventurers, and those looking to improve their vehicle's functionality and rugged look.
@@ -99,10 +99,10 @@ Constructed by **ARIES**, this spare tire carrier offers a robust solution for s
 
 This carrier's precise dimensions and solid weight capacity make it a dependable choice for those who demand performance and reliability. By upgrading to the **ARIES 2563000**, users benefit from improved tire support that reduces wear on the rear door hinges and frame, ultimately prolonging the lifespan of their Jeep. Whether you’re preparing for rugged trails or everyday driving, this product combines functionality with durability, making it a valuable addition to your off-road gear.
 
-## <a href="https://www.amazon.com/dp/B07ZZJLKM2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tyger Auto Tg-tr8j84078 Oversize Tire Carrier Kit</a>
+## <a href="https://www.amazon.com/dp/B07ZZJLKM2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tyger Auto Tg-tr8j84078 Oversize Tire Carrier Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B07ZZJLKM2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tyger Auto TG-TR8J84078 Oversize Tire Carrier Kit Compatible with 2007-2018 Jeep Wrangler JK (Not for JL) | Textured Black Fits up to 37inch Spare Tire" src="https://m.media-amazon.com/images/I/51sbI7uF7IL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07ZZJLKM2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tyger Auto TG-TR8J84078 Oversize Tire Carrier Kit Compatible with 2007-2018 Jeep Wrangler JK (Not for JL) | Textured Black Fits up to 37inch Spare Tire" src="https://m.media-amazon.com/images/I/51sbI7uF7IL._SL500_.jpg"/></a>
 
 
 The **Tyger Auto TG-TR8J84078 Oversize Tire Carrier Kit** is perfect for **Jeep Wrangler JK owners** looking to enhance their vehicle's capability to carry larger spare tires, specifically those up to **37 inches**. This product is ideal for off-road enthusiasts who frequently venture into rugged terrains and require a durable and reliable tire carrier to support their adventures. If you're a Jeep owner aiming to upgrade your vehicle for better performance and aesthetics, this tire carrier kit is an excellent investment.
@@ -123,10 +123,10 @@ The **Tyger Auto TG-TR8J84078 Oversize Tire Carrier Kit** stands out with its hi
 
 Furthermore, this tire carrier kit supports spare tires up to **37 inches**, which is a significant advantage for those who have opted for larger tires to improve their off-road capabilities. By accommodating larger tires, this product allows for a more customized and performance-oriented setup, ensuring that Jeep owners can tackle challenging terrains with confidence. Overall, the **Tyger Auto Tire Carrier Kit** is a robust and practical solution for Jeep enthusiasts looking to enhance both the functionality and appearance of their vehicle.
 
-## <a href="https://www.amazon.com/dp/B07L5Z6ZHX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rough Country 2.5" Lift Kit For 2007-2018 Jeep Wrangler Jk Unlimited</a>
+## <a href="https://www.amazon.com/dp/B07L5Z6ZHX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rough Country 2.5" Lift Kit For 2007-2018 Jeep Wrangler Jk Unlimited</a>
 
 
-<a href="https://www.amazon.com/dp/B07L5Z6ZHX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rough Country 2.5" src="https://m.media-amazon.com/images/I/41xSZATiNNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07L5Z6ZHX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rough Country 2.5" src="https://m.media-amazon.com/images/I/41xSZATiNNL._SL500_.jpg"/></a>
 
 
 The **Rough Country 2.5" Lift Kit** for **2007-2018 Jeep Wrangler JK Unlimited** is ideal for Jeep owners looking to enhance their vehicle's off-road capability and overall appearance. This lift kit is perfect for enthusiasts who want to increase ground clearance, accommodate larger tires, and improve suspension performance without compromising daily drivability. If you are someone who enjoys off-roading or simply wants a more aggressive stance for your Jeep, this product is a great investment.
@@ -149,10 +149,10 @@ The **Rough Country 2.5" Lift Kit** is engineered to provide a significant boost
 
 By lifting the Jeep by 2.5 inches, users gain the advantage of increased ground clearance, allowing for better navigation over rough terrain, rocks, and obstacles. This improvement translates to enhanced off-road capability and a more commanding road presence. Additionally, the kit’s design supports the installation of larger tires, which further improves traction and stability. Overall, this lift kit balances performance and style, making it a valuable addition for Jeep owners seeking both functionality and an aggressive look.
 
-## <a href="https://www.amazon.com/dp/B0F37QYHFS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Motrum Spare Tire Assembly For Je-ep Wrangler Jk &amp; Jl</a>
+## <a href="https://www.amazon.com/dp/B0F37QYHFS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Motrum Spare Tire Assembly For Je-ep Wrangler Jk &amp; Jl</a>
 
 
-<a href="https://www.amazon.com/dp/B0F37QYHFS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MOTRUM Spare Tire Assembly Designed for 2007-2017 Je-ep Wrangler JK &amp; 2018-2024 Je-ep Wrangler JL, [3 in 1 Design] with Tail Light, Brake Light, Turn Signal Light, [Optimized Departure Angle]" src="https://m.media-amazon.com/images/I/41q9Om1CpFL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F37QYHFS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MOTRUM Spare Tire Assembly Designed for 2007-2017 Je-ep Wrangler JK &amp; 2018-2024 Je-ep Wrangler JL, [3 in 1 Design] with Tail Light, Brake Light, Turn Signal Light, [Optimized Departure Angle]" src="https://m.media-amazon.com/images/I/41q9Om1CpFL._SL500_.jpg"/></a>
 
 
 The **MOTRUM Spare Tire Assembly** is ideal for Jeep enthusiasts who own a **2007-2017 Jeep Wrangler JK** or a **2018-2024 Jeep Wrangler JL** and are looking to upgrade their vehicle’s rear setup with a functional and stylish component. This product is perfect for those who want a reliable spare tire solution combined with enhanced lighting features and improved vehicle performance, especially for off-road adventures where visibility and clearance are crucial.
@@ -174,10 +174,10 @@ The **MOTRUM Spare Tire Assembly** stands out with its innovative **3 in 1 light
 
 Additionally, the product’s **optimized departure angle** is a significant feature for off-road enthusiasts. By improving the vehicle’s clearance, it reduces the risk of scraping or damage when navigating steep or uneven terrain. This thoughtful design consideration means Jeep owners can enjoy both aesthetic upgrades and functional benefits, making this spare tire assembly a smart investment for those who prioritize both style and performance.
 
-## <a href="https://www.amazon.com/dp/B0BW49SRLQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Xookun Heavy Duty Spare Tire Carrier For Jeep Wrangler Jk Jku</a>
+## <a href="https://www.amazon.com/dp/B0BW49SRLQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Xookun Heavy Duty Spare Tire Carrier For Jeep Wrangler Jk Jku</a>
 
 
-<a href="https://www.amazon.com/dp/B0BW49SRLQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="XOOKUN Heavy Duty Spare Tire Carrier for Jeep Wrangler JK JKU 2007-2018" src="https://m.media-amazon.com/images/I/51YHe6q6XgL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BW49SRLQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="XOOKUN Heavy Duty Spare Tire Carrier for Jeep Wrangler JK JKU 2007-2018" src="https://m.media-amazon.com/images/I/51YHe6q6XgL._SL500_.jpg"/></a>
 
 
 The **XOOKUN Heavy Duty Spare Tire Carrier for Jeep Wrangler JK JKU 2007-2018** is ideal for Jeep owners who frequently go off-roading or require a sturdy and reliable spare tire carrier. If you need a durable accessory that can handle rough terrain and heavy loads while maintaining the rugged look of your Jeep, this product is designed specifically for you.
@@ -199,10 +199,10 @@ The **XOOKUN Heavy Duty Spare Tire Carrier** is built with robust materials to w
 
 In addition to its functional benefits, the carrier’s **black color** matches the Jeep’s rugged aesthetic, enhancing its overall appearance. The lightweight yet strong construction reduces added weight on the rear, improving vehicle balance and handling. Whether you are a weekend adventurer or a serious off-roader, this spare tire carrier offers peace of mind and durability for your journeys.
 
-## <a href="https://www.amazon.com/dp/B09WL622K4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Eyouhz Wrangler Jk Oversize Spare Tire Mount Carrier</a>
+## <a href="https://www.amazon.com/dp/B09WL622K4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Eyouhz Wrangler Jk Oversize Spare Tire Mount Carrier</a>
 
 
-<a href="https://www.amazon.com/dp/B09WL622K4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EYOUHZ for Wrangler JK Oversize Spare Tire Mount Carrier up to 40 inches Tire Compatible with 2007-2018 Jeep Wrangler JK JKU Unlimited Heavy Duty Rear Wheel Bracket Back Rack Tailgate Holder Lift" src="https://m.media-amazon.com/images/I/41duCMQgKJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09WL622K4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EYOUHZ for Wrangler JK Oversize Spare Tire Mount Carrier up to 40 inches Tire Compatible with 2007-2018 Jeep Wrangler JK JKU Unlimited Heavy Duty Rear Wheel Bracket Back Rack Tailgate Holder Lift" src="https://m.media-amazon.com/images/I/41duCMQgKJL._SL500_.jpg"/></a>
 
 
 The **EYOUHZ for Wrangler JK Oversize Spare Tire Mount Carrier** is ideal for Jeep enthusiasts who own a **2007-2018 Jeep Wrangler JK or JKU Unlimited** and need a reliable solution to carry larger spare tires up to **40 inches**. This product is perfect for off-road adventurers and daily drivers alike who want to upgrade their vehicle’s rear tire mount for added durability and convenience.
@@ -224,10 +224,10 @@ The **EYOUHZ Oversize Spare Tire Mount Carrier** boasts a robust design tailored
 
 Constructed from premium materials and finished in sleek black, this carrier offers both strength and style. The straightforward installation process means users can quickly upgrade their rear wheel bracket without professional assistance. Overall, it improves the utility and safety of the Jeep’s spare tire setup while maintaining the rugged look Jeep owners expect.
 
-## <a href="https://www.amazon.com/dp/B0CGLYMLLT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Weisen Spare Tire Carrier Spacer Kit</a>
+## <a href="https://www.amazon.com/dp/B0CGLYMLLT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Weisen Spare Tire Carrier Spacer Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0CGLYMLLT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WeiSen Spare Tire Carrier Spacer kit Compatible with Jeep Wrangler JK TJ YJ 1987-2018 Up to 33" src="https://m.media-amazon.com/images/I/41MBC+8o-+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CGLYMLLT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WeiSen Spare Tire Carrier Spacer kit Compatible with Jeep Wrangler JK TJ YJ 1987-2018 Up to 33" src="https://m.media-amazon.com/images/I/41MBC+8o-+L._SL500_.jpg"/></a>
 
 
 The **WeiSen Spare Tire Carrier Spacer Kit** is ideal for Jeep owners who want to upgrade or maintain the compatibility of their spare tire with larger tires, specifically up to **33 inches**. If you drive a **Jeep Wrangler JK, TJ, or YJ** model from **1987 to 2018** and need a reliable spacer to ensure proper fitment and clearance for your spare tire, this kit is designed for you. It is especially useful for off-road enthusiasts who frequently upgrade their tires and want to avoid any clearance issues or damage.
@@ -249,10 +249,10 @@ The **WeiSen Spare Tire Carrier Spacer Kit** enhances the functionality of your 
 
 Installation is straightforward, allowing Jeep owners to upgrade their tire setup without professional assistance. By choosing this spacer kit, users benefit from improved clearance that accommodates off-road tire upgrades, preserving the integrity of their vehicle and enhancing their overall driving experience. The WeiSen brand’s reputation for quality also guarantees reliability and long-lasting performance for your spare tire carrier needs.
 
-## <a href="https://www.amazon.com/dp/B07QHK326X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rocktrix Rt105 17 Inch Wheel</a>
+## <a href="https://www.amazon.com/dp/B07QHK326X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rocktrix Rt105 17 Inch Wheel</a>
 
 
-<a href="https://www.amazon.com/dp/B07QHK326X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RockTrix RT105 17 inch Wheel Compatible with Jeep Wrangler JK JL 17x9 5x5 Wheels (+12mm Offset, 5.5in Backspace) 5x5 PCD, 71.5mm Bore, Black Wheel Also fits Commander Grand Cherokee Gladiator JT Rims" src="https://m.media-amazon.com/images/I/51RV-ERLzxS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07QHK326X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RockTrix RT105 17 inch Wheel Compatible with Jeep Wrangler JK JL 17x9 5x5 Wheels (+12mm Offset, 5.5in Backspace) 5x5 PCD, 71.5mm Bore, Black Wheel Also fits Commander Grand Cherokee Gladiator JT Rims" src="https://m.media-amazon.com/images/I/51RV-ERLzxS._SL500_.jpg"/></a>
 
 
 The **RockTrix RT105 17 inch Wheel** is ideal for Jeep enthusiasts and off-road adventurers who want to enhance their vehicle’s appearance and performance. Specifically designed for **Jeep Wrangler JK JL** models, as well as compatible with **Commander, Grand Cherokee, and Gladiator JT** rims, this wheel is perfect for those seeking durability, style, and a precise fit for their 4x4 vehicles.

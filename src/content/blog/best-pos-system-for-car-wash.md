@@ -20,10 +20,10 @@ The right POS system helps staff focus on customers, not paperwork. It can also 
 
 
 
-## <a href="https://www.amazon.com/dp/B09P4C23JJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wash Chems Pro 100 Touchless Car Wash Detergent Soap Concentrate</a>
+## <a href="https://www.amazon.com/dp/B09P4C23JJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wash Chems Pro 100 Touchless Car Wash Detergent Soap Concentrate</a>
 
 
-<a href="https://www.amazon.com/dp/B09P4C23JJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Wash Chems Pro 100 Touchless Car Wash Detergent Soap Concentrate No Brushing 4L (Heavy-Duty) Commercial Grade Professional Auto Active Foam Cleaner" src="https://m.media-amazon.com/images/I/41lFUnIGxkL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09P4C23JJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Wash Chems Pro 100 Touchless Car Wash Detergent Soap Concentrate No Brushing 4L (Heavy-Duty) Commercial Grade Professional Auto Active Foam Cleaner" src="https://m.media-amazon.com/images/I/41lFUnIGxkL._SL500_.jpg"/></a>
 
 
 The **Wash Chems Pro 100 Touchless Car Wash Detergent Soap Concentrate** is ideal for professional detailers, car wash businesses, and car enthusiasts seeking a powerful yet gentle cleaning solution. This product is perfect for those who want a **commercial-grade**, **heavy-duty** detergent that requires no brushing, making it suitable for efficient and safe vehicle cleaning without risking paint damage.
@@ -46,10 +46,10 @@ The **Wash Chems Pro 100** is designed with a powerful active foam technology th
 
 With a concentrated 4-liter formula, this detergent offers excellent value for money. Users can dilute it according to the level of cleaning needed, making it versatile for both heavy-duty commercial use and lighter residential washing. The product’s commercial-grade strength ensures that even the toughest road grime, oils, and contaminants are effectively removed, leaving vehicles spotless and shiny with minimal effort.
 
-## <a href="https://www.amazon.com/dp/B07Z8GSY5Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wash Chems Pro 50 Touchless Car Wash Detergent Soap Concentrate</a>
+## <a href="https://www.amazon.com/dp/B07Z8GSY5Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wash Chems Pro 50 Touchless Car Wash Detergent Soap Concentrate</a>
 
 
-<a href="https://www.amazon.com/dp/B07Z8GSY5Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Wash Chems Pro 50 Touchless Car Wash Detergent Soap Concentrate (32 oz) No Brushing, Commercial Grade Professional Auto Foam Cleaner (Biodegradable) Also Great for Trucks &amp; Tractors" src="https://m.media-amazon.com/images/I/31Az+VXenpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07Z8GSY5Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Wash Chems Pro 50 Touchless Car Wash Detergent Soap Concentrate (32 oz) No Brushing, Commercial Grade Professional Auto Foam Cleaner (Biodegradable) Also Great for Trucks &amp; Tractors" src="https://m.media-amazon.com/images/I/31Az+VXenpL._SL500_.jpg"/></a>
 
 
 The **Wash Chems Pro 50 Touchless Car Wash Detergent Soap Concentrate (32 oz)** is ideal for vehicle owners who seek an efficient, no-brush cleaning solution. Perfect for car enthusiasts, commercial fleet managers, and agricultural operators, this product suits those who want a professional-grade, biodegradable cleaner that works well on cars, trucks, and tractors without the hassle of scrubbing.
@@ -71,10 +71,10 @@ The **Wash Chems Pro 50 Detergent** is designed to provide a powerful touchless 
 
 Thanks to its biodegradable composition, this detergent is an excellent choice for environmentally-conscious users who want to reduce their ecological footprint. Its compatibility with various vehicle types, including cars, trucks, and tractors, ensures versatility in different cleaning scenarios. Additionally, the compact dimensions and 2-pound weight make it convenient to store and handle during washing routines.
 
-## <a href="https://www.amazon.com/dp/B08DZCYXPX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wash Chems Pro-50 Touchless Car Wash Detergent Soap</a>
+## <a href="https://www.amazon.com/dp/B08DZCYXPX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wash Chems Pro-50 Touchless Car Wash Detergent Soap</a>
 
 
-<a href="https://www.amazon.com/dp/B08DZCYXPX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Wash Chems PRO-50 Touchless Car Wash Detergent Soap with Professional Foam Cannon (1 Gallon, 128 oz) No Brushing, Commercial Grade Auto Cleaner Great for Trucks &amp; Tractors" src="https://m.media-amazon.com/images/I/41W5EeIIWHL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08DZCYXPX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Wash Chems PRO-50 Touchless Car Wash Detergent Soap with Professional Foam Cannon (1 Gallon, 128 oz) No Brushing, Commercial Grade Auto Cleaner Great for Trucks &amp; Tractors" src="https://m.media-amazon.com/images/I/41W5EeIIWHL._SL500_.jpg"/></a>
 
 
 The **Wash Chems PRO-50 Touchless Car Wash Detergent Soap** is ideal for vehicle owners who want a fast, efficient, and professional-grade cleaning solution without the hassle of scrubbing. Perfect for those who own trucks, tractors, or large vehicles, this product is designed for users seeking a commercial-quality auto cleaner that works effectively with a foam cannon for a touchless wash experience.
@@ -96,10 +96,10 @@ This **touchless car wash detergent** from **Wash Chems** is specially formulate
 
 The product’s commercial grade formula is designed to cut through tough dirt, grease, and road grime while being safe on vehicle surfaces. The generous 1-gallon size provides excellent value for users who require frequent washing or need to clean large fleets. Overall, this detergent offers a convenient, efficient, and safe solution for anyone looking to maintain their vehicles with professional results at home or on the job.
 
-## <a href="https://www.amazon.com/dp/B0CMD5XBBM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tac System Car Shampoo</a>
+## <a href="https://www.amazon.com/dp/B0CMD5XBBM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tac System Car Shampoo</a>
 
 
-<a href="https://www.amazon.com/dp/B0CMD5XBBM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="TAC SYSTEM Car Shampoo - 16 oz Premium Car Wash Formula with Rich Concentrated Foam - Ultra High Dilution for Cost-Effective Cleaning -Safe for All Exterior Surfaces &amp; Wheels." src="https://m.media-amazon.com/images/I/314S417u8bL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CMD5XBBM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="TAC SYSTEM Car Shampoo - 16 oz Premium Car Wash Formula with Rich Concentrated Foam - Ultra High Dilution for Cost-Effective Cleaning -Safe for All Exterior Surfaces &amp; Wheels." src="https://m.media-amazon.com/images/I/314S417u8bL._SL500_.jpg"/></a>
 
 
 The **TAC SYSTEM Car Shampoo** is an ideal choice for car enthusiasts and professional detailers who prioritize maintaining the pristine condition of their vehicle's exterior. If you are someone who regularly washes your car and seeks a **cost-effective** yet **high-performance car wash solution**, this product is tailored for you. Its ability to work on all exterior surfaces, including wheels, makes it a versatile addition to your car care routine.
@@ -119,10 +119,10 @@ The **TAC SYSTEM Car Shampoo** is renowned for its **rich concentrated foam**, e
 
 Another standout feature is its **ultra high dilution** ratio, which means you can use a small amount of product to achieve maximum results. This not only makes it a **cost-effective** option but also ensures that you get more washes per bottle compared to other brands. The shampoo’s formulation is gentle yet effective, making it safe for use on all exterior surfaces and wheels, providing a comprehensive solution for maintaining your vehicle's aesthetic appeal.
 
-## <a href="https://www.amazon.com/dp/B07ZQQGBYB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wash Chems Pro-100 Touchless Car Wash Detergent Soap With Foam Cannon Combo</a>
+## <a href="https://www.amazon.com/dp/B07ZQQGBYB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wash Chems Pro-100 Touchless Car Wash Detergent Soap With Foam Cannon Combo</a>
 
 
-<a href="https://www.amazon.com/dp/B07ZQQGBYB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Wash Chems PRO-100 Touchless Car Wash Detergent Soap with Foam Cannon Combo (1 Gallon, 128 oz.) No Brushing - Heavy-Duty Commercial Grade Professional Auto Cleaner - Great for Trucks &amp; Tractors" src="https://m.media-amazon.com/images/I/41gZx4eCbQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07ZQQGBYB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Wash Chems PRO-100 Touchless Car Wash Detergent Soap with Foam Cannon Combo (1 Gallon, 128 oz.) No Brushing - Heavy-Duty Commercial Grade Professional Auto Cleaner - Great for Trucks &amp; Tractors" src="https://m.media-amazon.com/images/I/41gZx4eCbQL._SL500_.jpg"/></a>
 
 
 The **Wash Chems PRO-100 Touchless Car Wash Detergent Soap** is ideal for vehicle owners who want a powerful, yet easy-to-use cleaning solution without the hassle of scrubbing. It is perfect for those who own large vehicles like **trucks** and **tractors**, as well as professional detailers and commercial operators looking for a heavy-duty, professional-grade cleaner that works efficiently with a **foam cannon**.
@@ -144,10 +144,10 @@ The **Wash Chems PRO-100** features a specialized formula that breaks down heavy
 
 Additionally, the professional-grade cleaner is designed for versatility and strength, making it suitable for commercial use on trucks, tractors, and other heavy machinery. The one-gallon container ensures users have enough detergent for multiple washes, reducing the need for frequent repurchasing. Overall, this product provides an effective, user-friendly solution for anyone seeking a thorough, scratch-free vehicle cleaning experience.
 
-## <a href="https://www.amazon.com/dp/B0006M56CE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mr. Clean Autodry Car Wash System</a>
+## <a href="https://www.amazon.com/dp/B0006M56CE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mr. Clean Autodry Car Wash System</a>
 
 
-<a href="https://www.amazon.com/dp/B0006M56CE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mr. Clean AutoDry Car Wash System Starter Kit" src="https://m.media-amazon.com/images/I/412T8QT205L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0006M56CE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mr. Clean AutoDry Car Wash System Starter Kit" src="https://m.media-amazon.com/images/I/412T8QT205L._SL500_.jpg"/></a>
 
 
 The **Mr. Clean AutoDry Car Wash System Starter Kit** is ideal for car owners who want a convenient and efficient way to keep their vehicles spotless without spending hours drying by hand. Perfect for individuals seeking a reliable, easy-to-use car wash solution that delivers professional-level results at home.

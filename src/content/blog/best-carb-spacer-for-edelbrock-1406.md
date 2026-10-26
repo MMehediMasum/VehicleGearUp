@@ -23,10 +23,10 @@ Some spacers have open centers for better airflow, while others act as heat insu
 
 
 
-## <a href="https://www.amazon.com/dp/B0CJY5D8DY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">1" Aluminum Carburetor Spacer With 3/8" Vacuum Tube</a>
+## <a href="https://www.amazon.com/dp/B0CJY5D8DY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">1" Aluminum Carburetor Spacer With 3/8" Vacuum Tube</a>
 
 
-<a href="https://www.amazon.com/dp/B0CJY5D8DY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="1" src="https://m.media-amazon.com/images/I/31k2GwBmX4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CJY5D8DY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="1" src="https://m.media-amazon.com/images/I/31k2GwBmX4L._SL500_.jpg"/></a>
 
 
 The **1" Aluminum Carburetor Spacer with 3/8" Vacuum Tube** is ideal for automotive enthusiasts and mechanics who are looking to improve engine performance in their **Chevy, Ford, or Mopar** vehicles. If you want to enhance throttle response, increase horsepower, and optimize fuel efficiency, this spacer is designed to meet those needs. It's especially suitable for those who appreciate high-quality parts and want a reliable upgrade for their carbureted engines.
@@ -49,10 +49,10 @@ This **1" aluminum carburetor spacer** is engineered to fit perfectly between th
 
 By increasing the plenum volume, this spacer allows for improved airflow dynamics that contribute to a stronger and more consistent combustion process. Users can expect improved **horsepower and torque** gains, as well as smoother throttle response. The spacer's compatibility with major automotive brands like **Chevy, Ford, and Mopar** makes it a versatile choice for a wide range of muscle cars and classic vehicles, ensuring that enthusiasts can enjoy enhanced performance without compromising their vehicle’s originality.
 
-## <a href="https://www.amazon.com/dp/B0CDXCWP1F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Applianpar 1" Carburetor Spacer Adapter Open Center</a>
+## <a href="https://www.amazon.com/dp/B0CDXCWP1F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Applianpar 1" Carburetor Spacer Adapter Open Center</a>
 
 
-<a href="https://www.amazon.com/dp/B0CDXCWP1F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ApplianPar 1" src="https://m.media-amazon.com/images/I/51j1XXbX+lL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CDXCWP1F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ApplianPar 1" src="https://m.media-amazon.com/images/I/51j1XXbX+lL._SL500_.jpg"/></a>
 
 
 The **ApplianPar 1" Carburetor Spacer Adapter Open Center** is ideal for automotive enthusiasts and mechanics looking to enhance the performance of their vehicle's carburetor system. Specifically designed for users with **Holley 4BBL, Carter AFB, and Edelbrock Carburetors**, this spacer adapter is perfect for those aiming to improve throttle response, increase horsepower, and optimize fuel atomization in classic or performance engines.
@@ -75,10 +75,10 @@ The **ApplianPar 1" Carburetor Spacer Adapter** features an open center design t
 
 Beyond performance gains, this spacer adapter also helps in reducing heat transfer from the engine to the carburetor, preserving fuel integrity and preventing vapor lock issues. The ease of installation means users can quickly upgrade their vehicles without needing extensive modifications, making it a practical and effective component for those serious about optimizing their engine’s performance.
 
-## <a href="https://www.amazon.com/dp/B0CH196KH8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Uxcell Carb Spacers 1" Tall Open Phenolic Carburetor Spacer</a>
+## <a href="https://www.amazon.com/dp/B0CH196KH8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Uxcell Carb Spacers 1" Tall Open Phenolic Carburetor Spacer</a>
 
 
-<a href="https://www.amazon.com/dp/B0CH196KH8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="uxcell Carb Spacers 1" src="https://m.media-amazon.com/images/I/41yLgdYf+0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CH196KH8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="uxcell Carb Spacers 1" src="https://m.media-amazon.com/images/I/41yLgdYf+0L._SL500_.jpg"/></a>
 
 
 The **uxcell Carb Spacers 1" Tall Open Phenolic Carburetor Spacer** is ideal for automotive enthusiasts and mechanics who are looking to enhance the performance of their **Chevy** or **Ford 350 SBC BBC BB 4BBL** engines. This product is perfect for those seeking improved engine efficiency, better fuel atomization, and enhanced throttle response in their classic or custom vehicle builds.
@@ -100,10 +100,10 @@ The **uxcell Carb Spacers** are designed to provide a practical upgrade for carb
 
 Additionally, the included gasket and screws kit simplifies the installation process, ensuring a secure and leak-free setup. By optimizing the air-fuel mixture and enhancing throttle response, this carburetor spacer can contribute to better engine performance, improved fuel economy, and a smoother driving experience. Its compatibility with popular **Chevy** and **Ford 350 SBC BBC BB 4BBL** models makes it a valuable addition for those aiming to maximize their engine's potential.
 
-## <a href="https://www.amazon.com/dp/B0DZ2MP1QS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Camotokiit Engine Carburetor Heat Insulator Gasket Spacer 9266</a>
+## <a href="https://www.amazon.com/dp/B0DZ2MP1QS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Camotokiit Engine Carburetor Heat Insulator Gasket Spacer 9266</a>
 
 
-<a href="https://www.amazon.com/dp/B0DZ2MP1QS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Camotokiit Engine Carburetor Heat Insulator Gasket Spacer 9266 for Edelbrock Performer Intake Mainfold Compatible with Holley Carbs 2 Hole Divided Center Warm Start Heat Soak Fix" src="https://m.media-amazon.com/images/I/4145o-tIjBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DZ2MP1QS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Camotokiit Engine Carburetor Heat Insulator Gasket Spacer 9266 for Edelbrock Performer Intake Mainfold Compatible with Holley Carbs 2 Hole Divided Center Warm Start Heat Soak Fix" src="https://m.media-amazon.com/images/I/4145o-tIjBL._SL500_.jpg"/></a>
 
 
 The **Camotokiit Engine Carburetor Heat Insulator Gasket Spacer 9266** is an essential component for automotive enthusiasts looking to enhance the performance of their vehicles. Ideal for those who own a vehicle with an **Edelbrock Performer Intake Manifold** and are experiencing issues with warm starts or heat soak, this product is designed to provide a reliable solution. Car enthusiasts who are keen on maintaining optimal engine performance should consider investing in this item.
@@ -123,10 +123,10 @@ The **Camotokiit Engine Carburetor Heat Insulator Gasket Spacer 9266** is crafte
 
 Additionally, the compatibility of this spacer with the **Edelbrock Performer Intake Manifold** and **Holley Carbs** means that it integrates seamlessly into existing setups, ensuring that car owners do not need to make extensive modifications. This ease of installation is a major advantage for DIY enthusiasts and professional mechanics alike, making it a practical choice for those looking to enhance their vehicle's performance efficiently.
 
-## <a href="https://www.amazon.com/dp/B0FD9ZQVYF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mhrxusd 2pcs 9265 Heat Insulator Gasket Spacer Replacement</a>
+## <a href="https://www.amazon.com/dp/B0FD9ZQVYF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mhrxusd 2pcs 9265 Heat Insulator Gasket Spacer Replacement</a>
 
 
-<a href="https://www.amazon.com/dp/B0FD9ZQVYF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mhrxusd 2Pcs 9265 Heat Insulator Gasket Spacer Replacement for Edelbrock for Performer for Holley for Chevrolet for Ford, Square-Bore" src="https://m.media-amazon.com/images/I/41iagMJHcjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FD9ZQVYF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mhrxusd 2Pcs 9265 Heat Insulator Gasket Spacer Replacement for Edelbrock for Performer for Holley for Chevrolet for Ford, Square-Bore" src="https://m.media-amazon.com/images/I/41iagMJHcjL._SL500_.jpg"/></a>
 
 
 The **Mhrxusd 2Pcs 9265 Heat Insulator Gasket Spacer Replacement** is ideal for automotive enthusiasts and mechanics who are looking to enhance the performance and durability of their engines. Specifically designed for use with **Edelbrock Performer** and **Holley** carburetors, it suits owners of **Chevrolet** and **Ford** vehicles with square-bore intake manifolds. If you're seeking a reliable solution to reduce heat transfer and improve engine efficiency, this product is a perfect fit.
@@ -148,10 +148,10 @@ The **Mhrxusd 2Pcs 9265 Heat Insulator Gasket Spacer** is engineered to provide 
 
 Constructed by **Mhrxusd** with precision, this gasket spacer is tailored for square-bore manifolds common in **Chevrolet** and **Ford** vehicles, and specifically fits popular carburetor models like **Edelbrock Performer** and **Holley**. Its durable materials ensure it withstands high engine temperatures and long-term wear, making it a dependable upgrade for those looking to optimize engine reliability and power output. Overall, this gasket spacer replacement is a cost-effective way to enhance engine performance and protect key components from heat damage.
 
-## <a href="https://www.amazon.com/dp/B0DQYDF4HH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">1406 Performer 600 Cfm Square Bore 4-barrel Carburetor</a>
+## <a href="https://www.amazon.com/dp/B0DQYDF4HH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">1406 Performer 600 Cfm Square Bore 4-barrel Carburetor</a>
 
 
-<a href="https://www.amazon.com/dp/B0DQYDF4HH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="1406-600CFM Electric Choke Carburetor 1406 Performer 600 CFM Square Bore 4-Barrel Air Valve Carb Compatible With Edelbrock 1406 Carburetor-update with Annular Booster (1406)" src="https://m.media-amazon.com/images/I/51V0MRYN4XL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DQYDF4HH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="1406-600CFM Electric Choke Carburetor 1406 Performer 600 CFM Square Bore 4-Barrel Air Valve Carb Compatible With Edelbrock 1406 Carburetor-update with Annular Booster (1406)" src="https://m.media-amazon.com/images/I/51V0MRYN4XL._SL500_.jpg"/></a>
 
 
 The **1406-600CFM Electric Choke Carburetor** is ideal for automotive enthusiasts and professional mechanics seeking to upgrade or replace their current carburetor with a reliable, high-performance option. Specifically designed for those using the **Edelbrock 1406 Carburetor**, this model is perfect for vehicles requiring a **600 CFM** square bore carburetor that offers improved fuel efficiency and throttle response. If you want a carburetor that combines modern electric choke convenience with the trusted performance of a 4-barrel air valve design, this product is an excellent choice.
@@ -173,10 +173,10 @@ The **1406-600CFM Electric Choke Carburetor** features an electric choke system 
 
 Additionally, the incorporation of a **4-barrel air valve** system and an upgraded **annular booster** enhances fuel atomization and distribution across all cylinders. This results in more efficient combustion, better throttle response, and improved fuel economy. The product’s compatibility with the **Edelbrock 1406** carburetor means it fits seamlessly into existing setups without major modifications, making it a practical upgrade for those looking to boost performance while maintaining reliability.
 
-## <a href="https://www.amazon.com/dp/B07S8FHCTQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Carburetor Rebuild Kit For Edelbrock 1405 1406 1407 1408 1409 1410 1411</a>
+## <a href="https://www.amazon.com/dp/B07S8FHCTQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Carburetor Rebuild Kit For Edelbrock 1405 1406 1407 1408 1409 1410 1411</a>
 
 
-<a href="https://www.amazon.com/dp/B07S8FHCTQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Carburetor Rebuild Kit for Edelbrock 1405 1406 1407 1408 1409 1410 1411 (With Bowl Cover Gasket)" src="https://m.media-amazon.com/images/I/51WB7WtranL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07S8FHCTQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Carburetor Rebuild Kit for Edelbrock 1405 1406 1407 1408 1409 1410 1411 (With Bowl Cover Gasket)" src="https://m.media-amazon.com/images/I/51WB7WtranL._SL500_.jpg"/></a>
 
 
 The **Carburetor Rebuild Kit for Edelbrock 1405 1406 1407 1408 1409 1410 1411** (With Bowl Cover Gasket) is ideal for automotive enthusiasts and mechanics who want to restore or maintain the performance of their Edelbrock carburetors. If you own any of these Edelbrock models and are looking for a reliable, comprehensive rebuild solution, this kit offers the necessary components to ensure smooth engine operation and fuel efficiency.
@@ -198,10 +198,10 @@ This **Carburetor Rebuild Kit** is designed with precision components that match
 
 Crafted by **unepart** and branded as **imUfer**, this kit provides durability and reliability, making it a trusted choice for both professional mechanics and DIY car owners. While installation requires some expertise, the detailed fitment and high-quality materials mean that once installed, the carburetor functions like new, extending the life of your engine and maintaining peak performance.
 
-## <a href="https://www.amazon.com/dp/B0CH18TYWV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Uxcell Carb Spacers 2" Tall Aluminum Alloy Open 4 Brl Square Flange Carb Carburetor Spacer With Gasket For Edelbrock</a>
+## <a href="https://www.amazon.com/dp/B0CH18TYWV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Uxcell Carb Spacers 2" Tall Aluminum Alloy Open 4 Brl Square Flange Carb Carburetor Spacer With Gasket For Edelbrock</a>
 
 
-<a href="https://www.amazon.com/dp/B0CH18TYWV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="uxcell Carb Spacers 2" src="https://m.media-amazon.com/images/I/41wMjszEyWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CH18TYWV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="uxcell Carb Spacers 2" src="https://m.media-amazon.com/images/I/41wMjszEyWL._SL500_.jpg"/></a>
 
 
 The **uxcell Carb Spacers 2" Tall Aluminum Alloy Open 4 Brl Square Flange Carb Carburetor Spacer with Gasket** is ideal for automotive enthusiasts and mechanics looking to enhance their engine performance. This product is perfect for those who have an **Edelbrock carburetor** and want to improve airflow and throttle response in their vehicle. If you're aiming to optimize your engine's efficiency and power output, this carburetor spacer is a smart investment.
@@ -224,10 +224,10 @@ The **uxcell Carb Spacers 2" Tall Aluminum Alloy** is designed to enhance the ov
 
 Additionally, the inclusion of a gasket ensures a tight and secure seal, preventing any air leaks that could affect engine tuning. The 2-inch height strikes a balance between performance gains and maintaining the proper fit within the engine bay. By using this carburetor spacer, users can experience smoother throttle response and improved drivability. Overall, the product offers a reliable and efficient way to boost engine output for those equipped with compatible Edelbrock carburetors.
 
-## <a href="https://www.amazon.com/dp/B08PFMBFTX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">1" Aluminum Air Cleaner Spacer</a>
+## <a href="https://www.amazon.com/dp/B08PFMBFTX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">1" Aluminum Air Cleaner Spacer</a>
 
 
-<a href="https://www.amazon.com/dp/B08PFMBFTX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="1" src="https://m.media-amazon.com/images/I/31ki0rDwYrL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08PFMBFTX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="1" src="https://m.media-amazon.com/images/I/31ki0rDwYrL._SL500_.jpg"/></a>
 
 
 The **1" Aluminum Air Cleaner Spacer** is ideal for automotive enthusiasts and mechanics looking to enhance the performance of their classic engines. Specifically designed for those who own vehicles with **Edelbrock**, **Holley Riser**, or **SBC BBC 350 Ford 302** setups, this spacer suits individuals aiming to improve airflow and optimize engine efficiency.
@@ -249,10 +249,10 @@ This **1-inch aluminum air cleaner spacer** is engineered to create additional s
 
 Designed with compatibility in mind, this spacer fits seamlessly with **Edelbrock** and **Holley Riser** carburetors, as well as popular engine models like SBC, BBC 350, and Ford 302. Its lightweight silver finish not only adds a sleek look under the hood but also contributes to its durability by preventing rust and wear over time. For anyone seeking an affordable and effective way to boost engine airflow and maintain high performance, this air cleaner spacer is a practical choice.
 
-## <a href="https://www.amazon.com/dp/B0CDC8Q6M8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Applianpar Carburetor Spacer Adapter</a>
+## <a href="https://www.amazon.com/dp/B0CDC8Q6M8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Applianpar Carburetor Spacer Adapter</a>
 
 
-<a href="https://www.amazon.com/dp/B0CDC8Q6M8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ApplianPar 1" src="https://m.media-amazon.com/images/I/51YIS9YoIcL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CDC8Q6M8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ApplianPar 1" src="https://m.media-amazon.com/images/I/51YIS9YoIcL._SL500_.jpg"/></a>
 
 
 The **ApplianPar 1" Carburetor Spacer Adapter** is ideal for automotive enthusiasts and mechanics looking to enhance the performance of their engine, specifically those using **Holley 4BBL AFB** or **Edelbrock carburetors**. If you want to improve throttle response, increase airflow, and ensure a better fit between the carburetor and intake manifold, this spacer adapter is a reliable choice. It is particularly suited for those seeking a straightforward upgrade without extensive modifications.

@@ -20,10 +20,10 @@ For families with multiple children, the RumbleSeat V3 offers a second seat opti
 
 
 
-## <a href="https://www.amazon.com/dp/B0B94TJ36K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Uppababy Mesa V2 Infant Car Seat</a>
+## <a href="https://www.amazon.com/dp/B0B94TJ36K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Uppababy Mesa V2 Infant Car Seat</a>
 
 
-<a href="https://www.amazon.com/dp/B0B94TJ36K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="UPPAbaby Mesa V2 Infant Car Seat/Easy Installation/Innovative SmartSecure Technology/Base + Robust Infant Insert Included/Direct Stroller Attachment/Jake (Charcoal)" src="https://m.media-amazon.com/images/I/41CEe-NT+pL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B94TJ36K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="UPPAbaby Mesa V2 Infant Car Seat/Easy Installation/Innovative SmartSecure Technology/Base + Robust Infant Insert Included/Direct Stroller Attachment/Jake (Charcoal)" src="https://m.media-amazon.com/images/I/41CEe-NT+pL._SL500_.jpg"/></a>
 
 
 The **UPPAbaby Mesa V2 Infant Car Seat** is ideal for parents and caregivers seeking a safe, easy-to-install, and versatile car seat for their newborns. Perfect for those who value innovative safety features and seamless compatibility with strollers, this car seat is designed to provide comfort and security from day one. If you want a reliable infant car seat that grows with your baby and simplifies travel, the UPPAbaby Mesa V2 is an excellent choice.
@@ -45,10 +45,10 @@ The **UPPAbaby Mesa V2 Infant Car Seat** stands out with its innovative **SmartS
 
 Additionally, the car seat's lightweight yet sturdy design, weighing just under 10 pounds, allows for easy carrying and transfers between vehicles and strollers. Its ability to attach directly to compatible UPPAbaby strollers creates a seamless travel system that reduces hassle when moving a sleeping baby from car to stroller. The elegant Jake charcoal color adds a modern and sleek look, making it not only functional but also stylish. Overall, the UPPAbaby Mesa V2 is a practical investment for parents who prioritize safety, convenience, and comfort in an infant car seat.
 
-## <a href="https://www.amazon.com/dp/B00TES30F6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Uppababy Extra Mesa Car Seat Base</a>
+## <a href="https://www.amazon.com/dp/B00TES30F6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Uppababy Extra Mesa Car Seat Base</a>
 
 
-<a href="https://www.amazon.com/dp/B00TES30F6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="UPPAbaby Extra Mesa Car Seat Base / Compatible with Mesa, V2 &amp; V3 Infant Car Seats / SmartSecure Installation" src="https://m.media-amazon.com/images/I/41ErpbiiwgL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00TES30F6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="UPPAbaby Extra Mesa Car Seat Base / Compatible with Mesa, V2 &amp; V3 Infant Car Seats / SmartSecure Installation" src="https://m.media-amazon.com/images/I/41ErpbiiwgL._SL500_.jpg"/></a>
 
 
 The **UPPAbaby Extra Mesa Car Seat Base** is ideal for parents or caregivers who already own a **Mesa, V2, or V3 Infant Car Seat** and need an additional base for a second vehicle or for convenience. It is perfect for families on the go who prioritize safety, ease of use, and compatibility with trusted infant car seats.
@@ -71,10 +71,10 @@ The **UPPAbaby Extra Mesa Car Seat Base** is designed with the user’s convenie
 
 Additionally, the lightweight and compact design make it easy to transfer the base between vehicles or store it when not in use. This makes the base a practical choice for busy families who require flexibility in their transportation setup. With the UPPAbaby Extra Mesa Car Seat Base, users gain peace of mind knowing their infant car seat is securely and properly installed every time.
 
-## <a href="https://www.amazon.com/dp/B00OAWL4FE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Uppababy Upper Adapter For Vista Strollers</a>
+## <a href="https://www.amazon.com/dp/B00OAWL4FE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Uppababy Upper Adapter For Vista Strollers</a>
 
 
-<a href="https://www.amazon.com/dp/B00OAWL4FE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="UPPAbaby Upper Adapter for Vista, Vista V2, and Vista V3 Strollers/ Compatible with Bassinet, Toddler Seat, Aria, Mesa V2, or Mesa Max Infant Car Seats / Quick + Secure Attachment / 1 Set" src="https://m.media-amazon.com/images/I/31fUbd4MqoL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00OAWL4FE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="UPPAbaby Upper Adapter for Vista, Vista V2, and Vista V3 Strollers/ Compatible with Bassinet, Toddler Seat, Aria, Mesa V2, or Mesa Max Infant Car Seats / Quick + Secure Attachment / 1 Set" src="https://m.media-amazon.com/images/I/31fUbd4MqoL._SL500_.jpg"/></a>
 
 
 The **UPPAbaby Upper Adapter for Vista, Vista V2, and Vista V3 Strollers** is ideal for parents and caregivers who want a versatile and reliable solution to attach various infant car seats and bassinets securely to their UPPAbaby strollers. If you own a **Vista stroller** model and are looking to expand its usability with compatible seats like the **Aria, Mesa V2, or Mesa Max infant car seats**, this adapter set is designed specifically for you. It is perfect for families on the go who prioritize safety, convenience, and quick transitions between stroller and car seat modes.
@@ -96,10 +96,10 @@ The **UPPAbaby Upper Adapter** is engineered to seamlessly connect your **Vista,
 
 Beyond convenience, the adapter enhances the overall functionality of your stroller setup. Parents benefit from the ability to quickly switch between different seating options without complex adjustments or additional tools. The lightweight yet sturdy build means the adapter adds minimal bulk or weight, preserving the stroller’s maneuverability and ease of use. Overall, this accessory is a smart investment for families looking to maximize their existing UPPAbaby stroller’s potential with reliable, safe, and convenient seat integration.
 
-## <a href="https://www.amazon.com/dp/B0DJG1L2CR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Uppababy Travel System - Vista V3 Stroller + Mesa V2 Infant Car Seat Combo</a>
+## <a href="https://www.amazon.com/dp/B0DJG1L2CR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Uppababy Travel System - Vista V3 Stroller + Mesa V2 Infant Car Seat Combo</a>
 
 
-<a href="https://www.amazon.com/dp/B0DJG1L2CR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="UPPAbaby Travel System - Vista V3 Stroller + Mesa V2 Infant Car Seat Combo - Toddler Seat, Rain Shield, Bug Shield, Storage Bag, Car Seat, Base + Infant Insert Included - Jake (Charcoal)" src="https://m.media-amazon.com/images/I/41JHM7q8IvL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DJG1L2CR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="UPPAbaby Travel System - Vista V3 Stroller + Mesa V2 Infant Car Seat Combo - Toddler Seat, Rain Shield, Bug Shield, Storage Bag, Car Seat, Base + Infant Insert Included - Jake (Charcoal)" src="https://m.media-amazon.com/images/I/41JHM7q8IvL._SL500_.jpg"/></a>
 
 
 The **UPPAbaby Travel System** - Vista V3 Stroller + Mesa V2 Infant Car Seat Combo is ideal for parents who prioritize safety and convenience in their child mobility solutions. This product is perfect for families seeking a versatile and comprehensive travel system that can grow with their child, from infancy through toddlerhood, offering seamless transitions between car and stroller.
@@ -121,10 +121,10 @@ The **UPPAbaby Travel System** offers a robust and comprehensive solution for pa
 
 Additionally, the **rain shield** and **bug shield** included in the package provide added protection against the elements, ensuring that your child remains comfortable and safe regardless of weather conditions. The **storage bag** offers ample space for essentials, making it easier for parents to carry everything they need. Overall, this travel system stands out for its **convenience, durability**, and **sleek design**, making it a top choice for discerning parents.
 
-## <a href="https://www.amazon.com/dp/B0DT4SH8PG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Uppababy Rumbleseat V3 Second Lower Seat</a>
+## <a href="https://www.amazon.com/dp/B0DT4SH8PG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Uppababy Rumbleseat V3 Second Lower Seat</a>
 
 
-<a href="https://www.amazon.com/dp/B0DT4SH8PG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="UPPAbaby RumbleSeat V3 Second Lower Seat - Compatible with Vista V2 and Vista V3 - All-Weather Seat + Magnetic Buckle – Adapters Included - Declan (Oat Mélange/Silver Frame/Chestnut Leather)" src="https://m.media-amazon.com/images/I/31ZU9p-AocL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DT4SH8PG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="UPPAbaby RumbleSeat V3 Second Lower Seat - Compatible with Vista V2 and Vista V3 - All-Weather Seat + Magnetic Buckle – Adapters Included - Declan (Oat Mélange/Silver Frame/Chestnut Leather)" src="https://m.media-amazon.com/images/I/31ZU9p-AocL._SL500_.jpg"/></a>
 
 
 The **UPPAbaby RumbleSeat V3 Second Lower Seat** is ideal for parents who already own a **Vista V2 or Vista V3 stroller** and need a convenient, stylish solution to carry a second child. This accessory is perfect for families with two young children who want to enjoy outdoor activities together without the hassle of multiple strollers. Its all-weather design and magnetic buckle make it especially suitable for busy parents seeking both functionality and ease of use in various conditions.
@@ -148,10 +148,10 @@ The **UPPAbaby RumbleSeat V3** features a thoughtfully engineered design that en
 
 This second lower seat also contributes to a balanced and stylish look with its premium **Declan color scheme**, blending oat mélange fabric with a silver frame and chestnut leather accents. The seat’s dimensions and weight have been optimized to avoid adding unnecessary bulk, making it easier to maneuver the stroller even when carrying two children. Overall, the RumbleSeat V3 combines practicality, comfort, and aesthetic appeal, making it a smart investment for parents seeking a reliable and attractive solution for double stroller use.
 
-## <a href="https://www.amazon.com/dp/B0CVBNC1X6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Uppababy Aria Lightweight Infant Car Seat</a>
+## <a href="https://www.amazon.com/dp/B0CVBNC1X6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Uppababy Aria Lightweight Infant Car Seat</a>
 
 
-<a href="https://www.amazon.com/dp/B0CVBNC1X6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="UPPAbaby Aria Lightweight Infant Car Seat/Just Under 6 lbs for Easy Portability/Base with Load Leg + Infant Insert Included/Direct Stroller Attachment/Jake (Charcoal/Black Leather)" src="https://m.media-amazon.com/images/I/413FocxeEJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CVBNC1X6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="UPPAbaby Aria Lightweight Infant Car Seat/Just Under 6 lbs for Easy Portability/Base with Load Leg + Infant Insert Included/Direct Stroller Attachment/Jake (Charcoal/Black Leather)" src="https://m.media-amazon.com/images/I/413FocxeEJL._SL500_.jpg"/></a>
 
 
 The **UPPAbaby Aria Lightweight Infant Car Seat** is ideal for parents and caregivers seeking a combination of safety, portability, and convenience. Perfect for those who are frequently on the move, this car seat suits families who want an easy-to-carry option without compromising on security and comfort for their infant. It is especially beneficial for urban dwellers or travel enthusiasts who need a lightweight yet reliable infant car seat.
@@ -174,10 +174,10 @@ The **UPPAbaby Aria Infant Car Seat** stands out due to its remarkably lightweig
 
 Another key feature is its compatibility with UPPAbaby strollers, allowing parents to attach the car seat directly without needing to remove the infant. This seamless transition between car and stroller not only saves time but also minimizes disruption for the baby. The stylish Jake color scheme offers a modern aesthetic that complements any lifestyle, making it a practical yet fashionable choice for parents. Overall, this car seat balances safety, convenience, and design to meet the needs of today's active families.
 
-## <a href="https://www.amazon.com/dp/B0DB64X1SN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Upper Adapter Compatible With Uppababy Vista And Vista V2 And Vista V3 Strollers/bassinet, Toddler Seat, Aria, Mesa V2, Or Mesa Max Infant-secure</a>
+## <a href="https://www.amazon.com/dp/B0DB64X1SN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Upper Adapter Compatible With Uppababy Vista And Vista V2 And Vista V3 Strollers/bassinet, Toddler Seat, Aria, Mesa V2, Or Mesa Max Infant-secure</a>
 
 
-<a href="https://www.amazon.com/dp/B0DB64X1SN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Upper Adapter Compatible with UPPAbaby Vista and Vista V2 and Vista V3 Strollers/Bassinet, Toddler Seat, Aria, Mesa V2, or Mesa Max Infant-Secure (Car Seats Accessories 1Set+2 Pcs Stroller Hooks)" src="https://m.media-amazon.com/images/I/41UwhA5SQYL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DB64X1SN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Upper Adapter Compatible with UPPAbaby Vista and Vista V2 and Vista V3 Strollers/Bassinet, Toddler Seat, Aria, Mesa V2, or Mesa Max Infant-Secure (Car Seats Accessories 1Set+2 Pcs Stroller Hooks)" src="https://m.media-amazon.com/images/I/41UwhA5SQYL._SL500_.jpg"/></a>
 
 
 The **Upper Adapter Compatible with UPPAbaby Vista and Vista V2 and Vista V3 Strollers/Bassinet, Toddler Seat, Aria, Mesa V2, or Mesa Max Infant-Secure** is ideal for parents and caregivers who already own or plan to use **UPPAbaby stroller systems** and car seats. This accessory is perfect for those seeking a seamless and secure way to attach infant car seats or other compatible components to their strollers, enhancing convenience and safety during outings with their little ones.
@@ -199,10 +199,10 @@ This **Upper Adapter by Henkgo** is crafted to fit perfectly with a variety of *
 
 Additionally, the included stroller hooks enhance the adapter’s practicality by allowing caregivers to hang bags or other essentials conveniently, freeing up hands for more important tasks. The black ash finish not only complements the sleek aesthetic of UPPAbaby strollers but also resists wear and tear over time. Overall, this adapter is a must-have accessory for anyone looking to maximize the functionality and safety of their UPPAbaby travel system.
 
-## <a href="https://www.amazon.com/dp/B08C19CL1N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Uppababy Infant Snug Seat</a>
+## <a href="https://www.amazon.com/dp/B08C19CL1N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Uppababy Infant Snug Seat</a>
 
 
-<a href="https://www.amazon.com/dp/B08C19CL1N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="UPPAbaby Infant Snug Seat / Compatible with Vista and Cruz Strollers / 2 in 1 Newborn to Toddler Comfort Insert" src="https://m.media-amazon.com/images/I/41RvghWwKnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08C19CL1N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="UPPAbaby Infant Snug Seat / Compatible with Vista and Cruz Strollers / 2 in 1 Newborn to Toddler Comfort Insert" src="https://m.media-amazon.com/images/I/41RvghWwKnL._SL500_.jpg"/></a>
 
 
 The **UPPAbaby Infant Snug Seat** is ideal for parents who want a versatile, comfortable, and safe solution for their newborns and toddlers. Designed to be compatible with **Vista** and **Cruz strollers**, this 2-in-1 comfort insert offers an excellent fit for infants transitioning through early developmental stages. If you are seeking a product that grows with your child while providing premium support and cushioning, this item is perfect for you.
@@ -225,10 +225,10 @@ The **UPPAbaby Infant Snug Seat** features a thoughtfully engineered design that
 
 Moreover, the insert’s compatibility with both the **Vista** and **Cruz strollers** means it can seamlessly integrate into your existing stroller system. This adaptability allows you to maximize your investment by eliminating the need for multiple inserts as your baby grows. Additionally, the lightweight and compact dimensions make installation and removal hassle-free, enhancing convenience for busy parents on the go.
 
-## <a href="https://www.amazon.com/dp/B0CST7ZQG3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Uppababy Rumbleseat V2+ Second Lower Seat</a>
+## <a href="https://www.amazon.com/dp/B0CST7ZQG3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Uppababy Rumbleseat V2+ Second Lower Seat</a>
 
 
-<a href="https://www.amazon.com/dp/B0CST7ZQG3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="UPPAbaby RumbleSeat V2+ Second Lower Seat/Compatible with Vista V2 and Vista V3 / Adapters, Bumper Bar, Bug Shield Included/Gregory (Blue Mélange/Silver Frame/Saddle Leather)" src="https://m.media-amazon.com/images/I/41xr9CSLyPL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CST7ZQG3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="UPPAbaby RumbleSeat V2+ Second Lower Seat/Compatible with Vista V2 and Vista V3 / Adapters, Bumper Bar, Bug Shield Included/Gregory (Blue Mélange/Silver Frame/Saddle Leather)" src="https://m.media-amazon.com/images/I/41xr9CSLyPL._SL500_.jpg"/></a>
 
 
 The **UPPAbaby RumbleSeat V2+** is ideal for parents who already own the **Vista V2 or Vista V3 stroller** and need a convenient and stylish solution to transport a second child. This accessory is perfect for growing families looking to expand their stroller without purchasing an entirely new system, providing versatility and comfort for siblings or twins.

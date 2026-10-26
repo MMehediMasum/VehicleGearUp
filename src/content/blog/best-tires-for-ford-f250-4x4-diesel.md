@@ -23,10 +23,10 @@ Picking the right tires works together with these parts to enhance your truck’
 
 
 
-## <a href="https://www.amazon.com/dp/B0D7XN5R9D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Coil Springs For 4 Inch Lift</a>
+## <a href="https://www.amazon.com/dp/B0D7XN5R9D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Coil Springs For 4 Inch Lift</a>
 
 
-<a href="https://www.amazon.com/dp/B0D7XN5R9D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BDS033411 | Coil Springs for 4 Inch Lift | Compatible with Ford F250/F350 Super Duty (05-24) 4WD Diesel" src="https://m.media-amazon.com/images/I/31kOWNrdqpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D7XN5R9D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BDS033411 | Coil Springs for 4 Inch Lift | Compatible with Ford F250/F350 Super Duty (05-24) 4WD Diesel" src="https://m.media-amazon.com/images/I/31kOWNrdqpL._SL500_.jpg"/></a>
 
 
 The **BDS033411 Coil Springs for 4 Inch Lift** are ideal for truck owners who drive **Ford F250/F350 Super Duty (2005-2024) 4WD Diesel** models and seek to enhance their vehicle's suspension performance. This product is perfect for those wanting a reliable lift kit to improve off-road capability, increase ground clearance, and maintain a smooth ride under heavy loads. If you are an enthusiast looking to upgrade your truck's suspension for better handling and durability, these coil springs are a great choice.
@@ -49,10 +49,10 @@ The **BDS033411 Coil Springs** are engineered to deliver a robust **4-inch lift*
 
 Manufactured by **BDS Suspension**, a trusted name in aftermarket truck components, these coil springs boast durable construction with a weight of 63.2 pounds, providing the strength needed for heavy-duty use. The design also helps in reducing suspension sag when carrying additional loads, making it an excellent upgrade for those who tow or haul frequently. Overall, these coil springs offer a balanced blend of performance, reliability, and compatibility tailored specifically for Ford Super Duty diesel trucks.
 
-## <a href="https://www.amazon.com/dp/B07KLJW2GP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Carli Suspension Stainless High Mount Steering Stabilizer</a>
+## <a href="https://www.amazon.com/dp/B07KLJW2GP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Carli Suspension Stainless High Mount Steering Stabilizer</a>
 
 
-<a href="https://www.amazon.com/dp/B07KLJW2GP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Carli Suspension 17+ F250/350 4×4 Stainless High Mount Steering Stabilizer (2017+ 4x4 F250/350)" src="https://m.media-amazon.com/images/I/21ji5pPL7fL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07KLJW2GP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Carli Suspension 17+ F250/350 4×4 Stainless High Mount Steering Stabilizer (2017+ 4x4 F250/350)" src="https://m.media-amazon.com/images/I/21ji5pPL7fL._SL500_.jpg"/></a>
 
 
 The **Carli Suspension 17+ F250/350 4×4 Stainless High Mount Steering Stabilizer** is ideal for owners of 2017 and newer Ford F250 and F350 4x4 trucks who are looking to enhance their vehicle's steering performance and durability. If you frequently drive on rough terrains, tow heavy loads, or want to improve your truck's handling and reduce steering vibrations, this high-quality stabilizer is designed to meet those needs.

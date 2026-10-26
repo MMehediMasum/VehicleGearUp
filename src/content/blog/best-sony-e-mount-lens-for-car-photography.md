@@ -20,10 +20,10 @@ The FE 50mm f/1. 8 lens works well in low light and creates sharp images. Tamron
 
 
 
-## <a href="https://www.amazon.com/dp/B00HNJWSDS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sony E 55-210mm F4.5-6.3 Lens</a>
+## <a href="https://www.amazon.com/dp/B00HNJWSDS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sony E 55-210mm F4.5-6.3 Lens</a>
 
 
-<a href="https://www.amazon.com/dp/B00HNJWSDS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Sony E 55-210mm F4.5-6.3 Lens for Sony E-Mount Cameras (Black)" src="https://m.media-amazon.com/images/I/41GNaHblNKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00HNJWSDS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Sony E 55-210mm F4.5-6.3 Lens for Sony E-Mount Cameras (Black)" src="https://m.media-amazon.com/images/I/41GNaHblNKL._SL500_.jpg"/></a>
 
 
 The **Sony E 55-210mm F4.5-6.3 Lens** for **Sony E-Mount Cameras** is ideal for photography enthusiasts and hobbyists who want to expand their zoom capabilities without investing in bulky and expensive equipment. This lens is perfect for those who enjoy shooting wildlife, sports, or distant subjects and are looking for a lightweight, compact telephoto zoom option that complements their existing Sony E-mount camera system.
@@ -46,10 +46,10 @@ The **Sony E 55-210mm F4.5-6.3 Lens** features a versatile telephoto zoom range 
 
 Additionally, the lens offers smooth and quiet autofocus, which benefits both photography and videography by minimizing noise during focusing. While the variable maximum aperture limits its low-light performance, the lens performs well in bright daylight and controlled lighting environments. Overall, it provides an excellent balance of functionality, portability, and affordability, making it a practical addition for users seeking to expand their creative possibilities with a Sony E-mount camera.
 
-## <a href="https://www.amazon.com/dp/B07XBX32GR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sony Fe 50mm F1.8 Standard Lens</a>
+## <a href="https://www.amazon.com/dp/B07XBX32GR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sony Fe 50mm F1.8 Standard Lens</a>
 
 
-<a href="https://www.amazon.com/dp/B07XBX32GR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Sony - FE 50mm F1.8 Standard Lens (SEL50F18F/2)" src="https://m.media-amazon.com/images/I/41iCSmzKZ8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07XBX32GR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Sony - FE 50mm F1.8 Standard Lens (SEL50F18F/2)" src="https://m.media-amazon.com/images/I/41iCSmzKZ8L._SL500_.jpg"/></a>
 
 
 The **Sony - FE 50mm F1.8 Standard Lens (SEL50F18F/2)** is ideal for photographers and content creators who seek a versatile, lightweight, and affordable prime lens. Whether you're a beginner looking to upgrade from a kit lens or a professional in need of a compact lens for everyday shooting, this lens offers excellent image quality and ease of use for portrait, street, and low-light photography.
@@ -72,10 +72,10 @@ The **Sony FE 50mm F1.8** lens features a bright **F1.8 aperture** that allows p
 
 With its sharp optics and reliable performance on Sony's full-frame cameras, this lens provides users with crisp, clear images that maintain detail even in challenging lighting. The **FE mount compatibility** ensures seamless integration with Sony's mirrorless system, maximizing autofocus accuracy and overall handling. While it lacks advanced features like weather sealing, its affordability and quality make it a fantastic choice for photographers looking to expand their creative possibilities without breaking the bank.
 
-## <a href="https://www.amazon.com/dp/B09DP27V2S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tamron 18-300mm F/3.5-6.3 Di Iii-a Vc Vxd Lens</a>
+## <a href="https://www.amazon.com/dp/B09DP27V2S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tamron 18-300mm F/3.5-6.3 Di Iii-a Vc Vxd Lens</a>
 
 
-<a href="https://www.amazon.com/dp/B09DP27V2S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Tamron 18-300mm F/3.5-6.3 Di III-A VC VXD Lens for Sony E APS-C Mirrorless Cameras (Black)" src="https://m.media-amazon.com/images/I/31+Mh7BzkYL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09DP27V2S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Tamron 18-300mm F/3.5-6.3 Di III-A VC VXD Lens for Sony E APS-C Mirrorless Cameras (Black)" src="https://m.media-amazon.com/images/I/31+Mh7BzkYL._SL500_.jpg"/></a>
 
 
 The **Tamron 18-300mm F/3.5-6.3 Di III-A VC VXD Lens** for **Sony E APS-C Mirrorless Cameras** is ideal for photography enthusiasts and travelers who seek an all-in-one lens solution. This versatile lens is perfect for those who want to capture a wide range of subjects without the hassle of frequently changing lenses, making it suitable for hobbyists, vloggers, and even semi-professional photographers looking for convenience and quality in one package.
@@ -98,10 +98,10 @@ The **Tamron 18-300mm F/3.5-6.3 Di III-A VC VXD Lens** offers an impressive zoom
 
 Additionally, the lens's autofocus system powered by the **VXD motor** provides fast and quiet focusing, which is beneficial for both still photography and video recording. This lens is designed specifically for **Sony E APS-C mirrorless cameras**, ensuring seamless integration and optimized image quality. Overall, this lens balances versatility, performance, and convenience, making it a valuable tool for those who want to capture a variety of subjects without carrying multiple lenses.
 
-## <a href="https://www.amazon.com/dp/B099NCNFC7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ttartisan 7.5mm F2.0 Aps-c Large Aperture Fisheye Lens</a>
+## <a href="https://www.amazon.com/dp/B099NCNFC7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ttartisan 7.5mm F2.0 Aps-c Large Aperture Fisheye Lens</a>
 
 
-<a href="https://www.amazon.com/dp/B099NCNFC7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="TTArtisan 7.5mm F2.0 APS-C Large Aperture Cameras Lens Fisheye Lens Compatible with Sony E Mount Camera A5000, A5100, A6000,A6100, A6300,A6400, A6500, A6600, NEX-3,NEX-3N, NEX-3R" src="https://m.media-amazon.com/images/I/41DUcqsoPnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B099NCNFC7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="TTArtisan 7.5mm F2.0 APS-C Large Aperture Cameras Lens Fisheye Lens Compatible with Sony E Mount Camera A5000, A5100, A6000,A6100, A6300,A6400, A6500, A6600, NEX-3,NEX-3N, NEX-3R" src="https://m.media-amazon.com/images/I/41DUcqsoPnL._SL500_.jpg"/></a>
 
 
 The **TTArtisan 7.5mm F2.0 APS-C Large Aperture Camera Lens** is an ideal purchase for photography enthusiasts and professionals who are looking to capture expansive landscapes or creative compositions with a unique perspective. This **fisheye lens** is perfect for those who own a **Sony E Mount Camera** such as the **A5000**, **A5100**, **A6000**, **A6100**, **A6300**, **A6400**, **A6500**, **A6600**, as well as the **NEX-3** series. If you’re passionate about capturing dramatic and artistic shots with a wide field of view, this lens is tailored for you.
@@ -121,10 +121,10 @@ One of the standout features of the **TTArtisan 7.5mm F2.0** lens is its **ultra
 
 Additionally, the lens boasts a **compact and lightweight** design, making it a convenient companion for travel and outdoor photography. Despite its manual focus, which might require a bit of practice for newcomers, this feature allows for greater control over the focus point, enabling seasoned photographers to fine-tune their shots to perfection. The lens's compatibility with a range of **Sony E Mount Cameras** ensures versatility and broad usability, making it a valuable addition to any photographer’s toolkit.
 
-## <a href="https://www.amazon.com/dp/B0CLDBF1LX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Viltrox 20mm F2.8 Fe</a>
+## <a href="https://www.amazon.com/dp/B0CLDBF1LX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Viltrox 20mm F2.8 Fe</a>
 
 
-<a href="https://www.amazon.com/dp/B0CLDBF1LX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="VILTROX 20mm f2.8 FE, 20mm f/2.8 e-Mount Full Frame AF Lens for Sony e Mount, Prime Wide Angle Lens for Sony e Mount a7cr a7cii a7c a6700 zv-e100 a6600 a6400 a7iv a7iii" src="https://m.media-amazon.com/images/I/41Ohzua3YoL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CLDBF1LX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="VILTROX 20mm f2.8 FE, 20mm f/2.8 e-Mount Full Frame AF Lens for Sony e Mount, Prime Wide Angle Lens for Sony e Mount a7cr a7cii a7c a6700 zv-e100 a6600 a6400 a7iv a7iii" src="https://m.media-amazon.com/images/I/41Ohzua3YoL._SL500_.jpg"/></a>
 
 
 The **VILTROX 20mm f2.8 FE** lens is ideal for **photographers and videographers** who use Sony e Mount cameras such as the **a7cr, a7cii, a7c, a6700, zv-e100, a6600, a6400, a7iv,** and **a7iii**. This lens is perfect for those seeking a lightweight, compact, and versatile **wide-angle prime lens** that offers fast autofocus and excellent image quality for landscapes, street photography, and video work.
@@ -147,10 +147,10 @@ The **VILTROX 20mm f2.8 FE** lens features a compact design measuring just 2.56 
 
 Equipped with advanced autofocus technology tailored for Sony e Mount systems, this lens offers quick and precise focusing, which is beneficial for both still photography and video recording. Its wide 20mm focal length is perfect for capturing expansive landscapes, architecture, and environmental portraits, providing users with versatility in various shooting scenarios. Overall, the **VILTROX 20mm f2.8 FE** is a budget-friendly lens that delivers excellent performance for Sony mirrorless camera users seeking a reliable wide-angle prime lens.
 
-## <a href="https://www.amazon.com/dp/B08PFNNKCC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tamron 17-70mm F/2.8 Di Iii-a Vc Rxd Lens For Sony E Aps-c Mirrorless Cameras</a>
+## <a href="https://www.amazon.com/dp/B08PFNNKCC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tamron 17-70mm F/2.8 Di Iii-a Vc Rxd Lens For Sony E Aps-c Mirrorless Cameras</a>
 
 
-<a href="https://www.amazon.com/dp/B08PFNNKCC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Tamron 17-70mm f/2.8 Di III-A VC RXD Lens for Sony E APS-C Mirrorless Cameras Black" src="https://m.media-amazon.com/images/I/31ESrNpGtcL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08PFNNKCC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Tamron 17-70mm f/2.8 Di III-A VC RXD Lens for Sony E APS-C Mirrorless Cameras Black" src="https://m.media-amazon.com/images/I/31ESrNpGtcL._SL500_.jpg"/></a>
 
 
 The **Tamron 17-70mm f/2.8 Di III-A VC RXD Lens** is ideal for **photographers** using **Sony E APS-C mirrorless cameras** who seek a versatile, high-performance zoom lens. This lens perfectly suits enthusiasts and professionals who need a compact, lightweight option without sacrificing image quality, especially for everyday photography, travel, and event coverage.
@@ -173,10 +173,10 @@ The **Tamron 17-70mm f/2.8 Di III-A VC RXD Lens** offers a remarkable combinatio
 
 Designed specifically for **Sony E-mount APS-C mirrorless cameras**, this lens delivers excellent optical performance in a compact package. The inclusion of the RXD autofocus motor ensures smooth and quiet focusing, which is particularly beneficial when recording videos. Overall, this lens is a great investment for photographers looking to elevate their creative possibilities without carrying heavy gear.
 
-## <a href="https://www.amazon.com/dp/B0FJTB2HV3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tamron 16-30mm F/2.8 Di Iii Vxd G2</a>
+## <a href="https://www.amazon.com/dp/B0FJTB2HV3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tamron 16-30mm F/2.8 Di Iii Vxd G2</a>
 
 
-<a href="https://www.amazon.com/dp/B0FJTB2HV3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Tamron 16-30mm F/2.8 Di III VXD G2 for Sony E-Mount Full Frame and APS-C Mirrorless Cameras" src="https://m.media-amazon.com/images/I/31-gFwa4hbL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FJTB2HV3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Tamron 16-30mm F/2.8 Di III VXD G2 for Sony E-Mount Full Frame and APS-C Mirrorless Cameras" src="https://m.media-amazon.com/images/I/31-gFwa4hbL._SL500_.jpg"/></a>
 
 
 The **Tamron 16-30mm F/2.8 Di III VXD G2** is ideal for professional photographers and advanced enthusiasts who use **Sony E-Mount Full Frame** or **APS-C Mirrorless Cameras**. This lens is perfect for those seeking a versatile wide-angle zoom with a fast aperture for capturing landscapes, architecture, and events in low-light conditions while maintaining exceptional image quality.
@@ -199,10 +199,10 @@ The **Tamron 16-30mm F/2.8 Di III VXD G2** stands out due to its combination of 
 
 Additionally, the advanced **VXD autofocus system** provides quick and silent focusing, which is essential for capturing fleeting moments without disruption. While it lacks image stabilization, the lens pairs well with Sony's in-body stabilization technology to reduce shake. Overall, this lens offers a professional-grade wide-angle solution that enhances creative possibilities for Sony mirrorless camera users.
 
-## <a href="https://www.amazon.com/dp/B075K5QD8M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">5 Pack Body Cap And Rear Lens Cap Cover Kit For Sony Alpha And Nex Series E-mount Camera &amp; Lens</a>
+## <a href="https://www.amazon.com/dp/B075K5QD8M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">5 Pack Body Cap And Rear Lens Cap Cover Kit For Sony Alpha And Nex Series E-mount Camera &amp; Lens</a>
 
 
-<a href="https://www.amazon.com/dp/B075K5QD8M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="5 Pack Body Cap and Rear Lens Cap Cover Kit for Sony Alpha and NEX Series E-Mount Camera &amp; Lens for Sony A7 A7II A7III A7S A7SII A7R A7RII A7RIII A7RIV A6600 A6500 A6400 A6300 A6100 A6000 A5100 A5000" src="https://m.media-amazon.com/images/I/41qw7groP9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B075K5QD8M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="5 Pack Body Cap and Rear Lens Cap Cover Kit for Sony Alpha and NEX Series E-Mount Camera &amp; Lens for Sony A7 A7II A7III A7S A7SII A7R A7RII A7RIII A7RIV A6600 A6500 A6400 A6300 A6100 A6000 A5100 A5000" src="https://m.media-amazon.com/images/I/41qw7groP9L._SL500_.jpg"/></a>
 
 
 The **5 Pack Body Cap and Rear Lens Cap Cover Kit** is ideal for photographers and videographers who own **Sony Alpha** and **NEX Series E-Mount Cameras**. Whether you have models like the **Sony A7** series, **A6600**, or **A5000**, this kit is perfect for protecting your valuable camera body and lenses from dust, dirt, and damage when not in use. It is especially suited for users who frequently change lenses and want a reliable, affordable solution to maintain their gear's longevity.
@@ -224,10 +224,10 @@ This **Body Cap and Rear Lens Cap Cover Kit** by **JJC** is designed to offer ex
 
 The lightweight and compact nature of this kit makes it a practical choice for photographers on the go. Whether you are a professional or an enthusiast, the ease of use allows for quick lens swaps without compromising on protection. Investing in this kit means you can confidently carry your gear knowing that your camera body and lenses are shielded against environmental elements, ultimately extending the lifespan of your valuable photography equipment.
 
-## <a href="https://www.amazon.com/dp/B01BESQYJW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sony Sel2470gm E-mount Camera Lens</a>
+## <a href="https://www.amazon.com/dp/B01BESQYJW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sony Sel2470gm E-mount Camera Lens</a>
 
 
-<a href="https://www.amazon.com/dp/B01BESQYJW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Sony SEL2470GM E-Mount Camera Lens: FE 24-70 mm F2.8 G Master Full Frame Standard Zoom Lens Black" src="https://m.media-amazon.com/images/I/310tqzSAUoL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01BESQYJW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Sony SEL2470GM E-Mount Camera Lens: FE 24-70 mm F2.8 G Master Full Frame Standard Zoom Lens Black" src="https://m.media-amazon.com/images/I/310tqzSAUoL._SL500_.jpg"/></a>
 
 
 The **Sony SEL2470GM E-Mount Camera Lens** is ideal for professional photographers and serious enthusiasts who demand exceptional image quality and versatile performance. This **FE 24-70 mm F2.8 G Master Full Frame Standard Zoom Lens** is perfect for those using Sony's full-frame mirrorless cameras and looking for a reliable, high-quality lens for portraits, landscapes, events, and everyday photography.
@@ -249,10 +249,10 @@ The **Sony SEL2470GM** lens features advanced optical elements including XA (ext
 
 Additionally, the lens incorporates a fast and precise autofocus system that is quiet and ideal for both stills and video recording. Its durable construction, including weather sealing, makes it reliable for outdoor shoots in various environmental conditions. The compact size and manageable weight make it a practical choice for photographers who need professional-grade performance without sacrificing mobility.
 
-## <a href="https://www.amazon.com/dp/B0054I54JU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sony Sel30m35 30mm F/3.5 Macro Lens</a>
+## <a href="https://www.amazon.com/dp/B0054I54JU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sony Sel30m35 30mm F/3.5 Macro Lens</a>
 
 
-<a href="https://www.amazon.com/dp/B0054I54JU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Sony SEL30M35 30mm f/3.5 e-mount Macro Fixed Lens" src="https://m.media-amazon.com/images/I/411tbonhcaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0054I54JU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Sony SEL30M35 30mm f/3.5 e-mount Macro Fixed Lens" src="https://m.media-amazon.com/images/I/411tbonhcaL._SL500_.jpg"/></a>
 
 
 The **Sony SEL30M35 30mm f/3.5 e-mount Macro Fixed Lens** is ideal for photography enthusiasts and professionals who want to capture detailed close-up shots with exceptional clarity. This lens is perfect for those who specialize in macro photography, such as nature photographers, product shooters, and hobbyists looking to explore the world of tiny subjects.

@@ -22,10 +22,10 @@ These filters are designed for durability, easy installation, and reusable featu
 
 
 
-## <a href="https://www.amazon.com/dp/B0B62XQDHB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Xmmt Red Sucker High Flow Stage 1 Air Cleaner Filter Intake Element</a>
+## <a href="https://www.amazon.com/dp/B0B62XQDHB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Xmmt Red Sucker High Flow Stage 1 Air Cleaner Filter Intake Element</a>
 
 
-<a href="https://www.amazon.com/dp/B0B62XQDHB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="XMMT Red Sucker High Flow Stage 1 Air Cleaner Filter Intake Element For Harley Big Twin Cam Touring 1999-2007, Softail 2000-2015 (except 2008-2016 Touring/Trike)" src="https://m.media-amazon.com/images/I/51V2XT9UPrL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B62XQDHB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="XMMT Red Sucker High Flow Stage 1 Air Cleaner Filter Intake Element For Harley Big Twin Cam Touring 1999-2007, Softail 2000-2015 (except 2008-2016 Touring/Trike)" src="https://m.media-amazon.com/images/I/51V2XT9UPrL._SL500_.jpg"/></a>
 
 
 The **XMMT Red Sucker High Flow Stage 1 Air Cleaner Filter Intake Element** is ideal for motorcycle enthusiasts and riders who own Harley Big Twin Cam Touring models from 1999-2007 or Softail models from 2000-2015 (excluding 2008-2016 Touring/Trike). This air filter is perfect for those looking to enhance their bike's performance with improved air intake, ensuring better combustion and power output. If you want to maintain your Harley’s engine efficiency and longevity while boosting its overall performance, this product is designed for you.
@@ -47,10 +47,10 @@ The **XMMT Red Sucker High Flow Stage 1 Air Cleaner Filter** is engineered to ma
 
 Additionally, this air cleaner filter is designed for easy installation, allowing riders to upgrade their bike without professional help. Its compatibility with specific Harley models means it fits perfectly, ensuring no loss in air sealing or engine efficiency. Regular maintenance, such as cleaning, will keep the filter performing at its best, making it a cost-effective upgrade for Harley owners aiming to boost their bike’s power and longevity.
 
-## <a href="https://www.amazon.com/dp/B000FGCYT4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">K&amp;n Engine Air Filter</a>
+## <a href="https://www.amazon.com/dp/B000FGCYT4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">K&amp;n Engine Air Filter</a>
 
 
-<a href="https://www.amazon.com/dp/B000FGCYT4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="K&amp;N Engine Air Filter: High Performance, Premium, Powersport Air Filter: Fits 2001-2008 HARLEY DAVIDSON (Screamin Eagle, Dyna, Road King, Ultra Classic Electra Gli, and other select models) HD-0800" src="https://m.media-amazon.com/images/I/414Wj5f63EL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000FGCYT4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="K&amp;N Engine Air Filter: High Performance, Premium, Powersport Air Filter: Fits 2001-2008 HARLEY DAVIDSON (Screamin Eagle, Dyna, Road King, Ultra Classic Electra Gli, and other select models) HD-0800" src="https://m.media-amazon.com/images/I/414Wj5f63EL._SL500_.jpg"/></a>
 
 
 The **K&N Engine Air Filter** is ideal for motorcycle enthusiasts and riders who own select **2001-2008 HARLEY DAVIDSON** models such as the Screamin Eagle, Dyna, Road King, and Ultra Classic Electra Glide. If you are looking to enhance your bike's performance with a reliable, high-quality air filter that offers improved airflow and engine protection, this premium **powersport air filter** is designed specifically for you.
@@ -72,10 +72,10 @@ The **K&N Engine Air Filter** features advanced filtration technology engineered
 
 Additionally, the reusable nature of this air filter offers long-term cost savings. Instead of frequently replacing disposable filters, you can clean and re-oil the **K&N filter** to keep it performing like new. The filter’s durable construction also withstands harsh conditions, making it a reliable choice for riders who demand both performance and longevity from their motorcycle components.
 
-## <a href="https://www.amazon.com/dp/B0DP6H6GWG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">High Flow Air Filter For Harley Sportster Models</a>
+## <a href="https://www.amazon.com/dp/B0DP6H6GWG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">High Flow Air Filter For Harley Sportster Models</a>
 
 
-<a href="https://www.amazon.com/dp/B0DP6H6GWG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="High Flow Air Filter for Harley Sportster Models 2004-2019#29044-04" src="https://m.media-amazon.com/images/I/519THIU9GYL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DP6H6GWG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="High Flow Air Filter for Harley Sportster Models 2004-2019#29044-04" src="https://m.media-amazon.com/images/I/519THIU9GYL._SL500_.jpg"/></a>
 
 
 The **High Flow Air Filter for Harley Sportster Models 2004-2019 #29044-04** is ideal for motorcycle enthusiasts and riders who own a **Harley Sportster** from the years 2004 to 2019. This product is perfect for those looking to enhance their bike's performance by improving air intake efficiency and overall engine responsiveness. If you want to boost your motorcycle's horsepower and fuel efficiency without compromising reliability, this air filter is a great investment.
@@ -97,10 +97,10 @@ The **MUXIHO High Flow Air Filter** is engineered to deliver superior airflow co
 
 Besides boosting performance, this air filter also helps improve fuel economy by optimizing the air-to-fuel ratio. Its reusable and washable nature means you can maintain peak performance with minimal ongoing costs. Built by MUXIHO, a manufacturer known for quality motorcycle accessories, this air filter offers reliability and durability, ensuring your Harley Sportster runs smoother and longer.
 
-## <a href="https://www.amazon.com/dp/B071CY6H35?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">K&amp;n Engine Air Filter</a>
+## <a href="https://www.amazon.com/dp/B071CY6H35?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">K&amp;n Engine Air Filter</a>
 
 
-<a href="https://www.amazon.com/dp/B071CY6H35?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="K&amp;N Engine Air Filter: High Performance, Powersport Air Filter: Fits 2017-2019 HARLEY DAVIDSON (Road King, Electra Glide, Ultra, Classic, Tri Glide, Limited, Low, and other select models) HD-1717" src="https://m.media-amazon.com/images/I/41TlTDzd9vL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B071CY6H35?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="K&amp;N Engine Air Filter: High Performance, Powersport Air Filter: Fits 2017-2019 HARLEY DAVIDSON (Road King, Electra Glide, Ultra, Classic, Tri Glide, Limited, Low, and other select models) HD-1717" src="https://m.media-amazon.com/images/I/41TlTDzd9vL._SL500_.jpg"/></a>
 
 
 The **K&N Engine Air Filter** is ideal for motorcycle enthusiasts and riders who own select 2017-2019 **HARLEY DAVIDSON** models such as the **Road King, Electra Glide, Ultra, Classic, Tri Glide, Limited, Low**, and others. If you are looking to enhance your bike’s performance with a reliable, high-quality air filter designed specifically for powersport applications, this product is a perfect fit. It is especially suited for those who want improved airflow without compromising engine protection.
@@ -122,10 +122,10 @@ The **K&N Engine Air Filter** is crafted to deliver enhanced airflow to your mot
 
 By allowing more air to flow through while filtering out harmful particles, this air filter helps maintain engine health and extends the life of your bike’s internal components. Riders benefit from better throttle response and improved fuel efficiency. Additionally, the reusable nature of this filter means less environmental waste and long-term savings, making it a smart investment for any Harley Davidson owner seeking performance and reliability.
 
-## <a href="https://www.amazon.com/dp/B0DK6NZB4D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">High Air Flow Engine Air Filter For Harley Touring Street Glide Road King Electra Glide</a>
+## <a href="https://www.amazon.com/dp/B0DK6NZB4D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">High Air Flow Engine Air Filter For Harley Touring Street Glide Road King Electra Glide</a>
 
 
-<a href="https://www.amazon.com/dp/B0DK6NZB4D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="High Air Flow with Excellent Filtration Engine Air Filter for Fits 2017-2023 HARLEY Touring Street Glide Road King Electra Glide 2017-2024 HD-1717 29400212" src="https://m.media-amazon.com/images/I/41maa6zGvKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DK6NZB4D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="High Air Flow with Excellent Filtration Engine Air Filter for Fits 2017-2023 HARLEY Touring Street Glide Road King Electra Glide 2017-2024 HD-1717 29400212" src="https://m.media-amazon.com/images/I/41maa6zGvKL._SL500_.jpg"/></a>
 
 
 This **High Air Flow with Excellent Filtration Engine Air Filter** is perfect for **motorcycle enthusiasts** who own a **2017-2023 HARLEY Touring Street Glide, Road King, or Electra Glide**. If you're looking for a **reliable** and **efficient** way to enhance your bike's performance, this filter is a must-have. It is especially ideal for those who frequently ride in **dusty or polluted environments**, ensuring your engine remains in optimal condition.
@@ -145,10 +145,10 @@ The **WLZW Engine Air Filter** is designed to deliver **high air flow**, which i
 
 Another key feature of this air filter is its **excellent filtration capability**. It effectively captures dust, pollen, and other harmful particles, ensuring that only clean air enters your engine. This not only extends the life of your engine but also maintains its **smooth operation** over time. The filter is manufactured by **WLZW**, a brand known for its **quality** and **durability**, making it a reliable choice for any motorcycle enthusiast.
 
-## <a href="https://www.amazon.com/dp/B07N8TMQ2Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">K&amp;n Cold Air Intake System</a>
+## <a href="https://www.amazon.com/dp/B07N8TMQ2Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">K&amp;n Cold Air Intake System</a>
 
 
-<a href="https://www.amazon.com/dp/B07N8TMQ2Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="K&amp;N Cold Air Intake System: High-Flow Air Filter, Increase Performance &amp; Acceleration: Compatible with 2017-2021 Harley Davidson: (See Product Description for Selected Models) 57-1139" src="https://m.media-amazon.com/images/I/41kiknwQEVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07N8TMQ2Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="K&amp;N Cold Air Intake System: High-Flow Air Filter, Increase Performance &amp; Acceleration: Compatible with 2017-2021 Harley Davidson: (See Product Description for Selected Models) 57-1139" src="https://m.media-amazon.com/images/I/41kiknwQEVL._SL500_.jpg"/></a>
 
 
 The **K&N Cold Air Intake System** is ideal for Harley Davidson enthusiasts who want to enhance their bike's performance and acceleration. Specifically designed for select models from **2017 to 2021 Harley Davidson**, this product is perfect for riders looking to upgrade their air intake for improved engine efficiency and a noticeable boost in power.
@@ -171,10 +171,10 @@ The **K&N Cold Air Intake System** features a precision-engineered **high-flow a
 
 Constructed with quality materials and designed specifically for Harley Davidson motorcycles, this intake system ensures a perfect fit and long-lasting durability. Its streamlined dimensions (**Height: 9.5 Inches, Width: 4.875 Inches, Length: 11.75 Inches**) and lightweight profile mean it integrates seamlessly without adding bulk. Overall, the K&N Cold Air Intake System is a smart investment for bikers aiming to elevate their machine's performance while maintaining reliability and style.
 
-## <a href="https://www.amazon.com/dp/B0CQ2KKC3N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">High-flo Replacement Air Filter Element For Ventilator</a>
+## <a href="https://www.amazon.com/dp/B0CQ2KKC3N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">High-flo Replacement Air Filter Element For Ventilator</a>
 
 
-<a href="https://www.amazon.com/dp/B0CQ2KKC3N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="High-Flo Replacement Air Filter Element For Ventilator - Milwaukee-Eight Engine '18-later Softail and '17-later Touring and Trike Models Equipped with 114 Air Cleaner" src="https://m.media-amazon.com/images/I/31W2a0gAwIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CQ2KKC3N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="High-Flo Replacement Air Filter Element For Ventilator - Milwaukee-Eight Engine '18-later Softail and '17-later Touring and Trike Models Equipped with 114 Air Cleaner" src="https://m.media-amazon.com/images/I/31W2a0gAwIL._SL500_.jpg"/></a>
 
 
 The **High-Flo Replacement Air Filter Element** is ideal for motorcycle enthusiasts and owners of the **Milwaukee-Eight Engine '18-later Softail** as well as the **'17-later Touring and Trike Models** equipped with the **114 Air Cleaner**. This product is perfect for those who want to maintain optimal engine performance and improve air intake efficiency with a reliable and easy-to-install replacement part. If you seek enhanced engine longevity and smoother rides, this air filter element is designed specifically to meet those needs.
@@ -196,10 +196,10 @@ The **High-Flo Replacement Air Filter Element** stands out due to its precise en
 
 Additionally, the filter’s easy installation process means that motorcycle owners can replace it without needing specialized tools or professional assistance. This accessibility supports regular maintenance, which is crucial for keeping the engine running at its best. Crafted by **M Maintenanse**, the product assures durability and reliability, giving users peace of mind that their investment supports optimal engine health.
 
-## <a href="https://www.amazon.com/dp/B000FGJR1W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">K&amp;n High-flow Original Lifetime Engine Air Filter</a>
+## <a href="https://www.amazon.com/dp/B000FGJR1W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">K&amp;n High-flow Original Lifetime Engine Air Filter</a>
 
 
-<a href="https://www.amazon.com/dp/B000FGJR1W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="K&amp;N High-Flow Original Lifetime Engine Air Filter: Increase Power &amp; Accerlation, Washable, Premium: Compatible with 2004-2013 Harley Davidson: (See Product Description for Select Models) HD-8834" src="https://m.media-amazon.com/images/I/41TQKBK6pSL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000FGJR1W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="K&amp;N High-Flow Original Lifetime Engine Air Filter: Increase Power &amp; Accerlation, Washable, Premium: Compatible with 2004-2013 Harley Davidson: (See Product Description for Select Models) HD-8834" src="https://m.media-amazon.com/images/I/41TQKBK6pSL._SL500_.jpg"/></a>
 
 
 The **K&N High-Flow Original Lifetime Engine Air Filter** is ideal for motorcycle enthusiasts and riders who own a compatible **2004-2013 Harley Davidson** model and seek to enhance their bike’s performance. This premium air filter is perfect for those looking to increase power and acceleration without frequent replacements, thanks to its washable and reusable design. If you're aiming to boost engine efficiency and maintain high airflow while protecting your engine, this product is a great investment.
@@ -221,10 +221,10 @@ The **K&N High-Flow Original Lifetime Engine Air Filter** is engineered to maxim
 
 Another significant benefit of this air filter is its washable and reusable nature, which aligns with sustainable practices and cost savings. Unlike traditional disposable filters, this **premium K&N filter** can be cleaned and reused multiple times throughout the bike’s lifespan. This not only reduces waste but also eliminates the hassle and expense of frequent replacements. The precise fit for **Harley Davidson** models ensures seamless installation and optimal performance, making it a smart upgrade for riders seeking reliability and power enhancement.
 
-## <a href="https://www.amazon.com/dp/B005DUMBYK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">K&amp;n Engine Air Filter</a>
+## <a href="https://www.amazon.com/dp/B005DUMBYK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">K&amp;n Engine Air Filter</a>
 
 
-<a href="https://www.amazon.com/dp/B005DUMBYK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="K&amp;N Engine Air Filter: High Performance, Premium, Powersport Air Filter: Fits 2009-2017 HARLEY DAVIDSON (Fat Bob, Dyna Low Rider, Wide Glide, Switchback, CVO Limited, and other select models) HD-0910" src="https://m.media-amazon.com/images/I/41X2DRCvCSL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B005DUMBYK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="K&amp;N Engine Air Filter: High Performance, Premium, Powersport Air Filter: Fits 2009-2017 HARLEY DAVIDSON (Fat Bob, Dyna Low Rider, Wide Glide, Switchback, CVO Limited, and other select models) HD-0910" src="https://m.media-amazon.com/images/I/41X2DRCvCSL._SL500_.jpg"/></a>
 
 
 The **K&N Engine Air Filter** is ideal for motorcycle enthusiasts and Harley Davidson owners looking to boost their bike's performance. Specifically designed to fit 2009-2017 **HARLEY DAVIDSON** models such as the **Fat Bob, Dyna Low Rider, Wide Glide, Switchback,** and **CVO Limited**, this premium **powersport air filter** is perfect for riders who want enhanced airflow and improved engine efficiency without compromising on quality. If you seek a durable, reusable air filter that supports high-performance riding, this product is tailored for you.
@@ -248,10 +248,10 @@ The **K&N Engine Air Filter** boasts a high-performance design that optimizes ai
 
 Beyond performance improvements, the filter’s reusable nature is environmentally friendly and convenient for riders committed to maintenance. Regular cleaning and re-oiling keep the filter functioning at peak efficiency, ensuring your motorcycle continues to perform optimally on every ride. The sleek black design by **K&N Engineering** not only enhances functionality but also aligns well with the rugged aesthetics of Harley Davidson motorcycles, making it a worthy upgrade for any serious rider.
 
-## <a href="https://www.amazon.com/dp/B0819NM6ZS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Locopow Hd-0800 Air Filter For Harley Davidson</a>
+## <a href="https://www.amazon.com/dp/B0819NM6ZS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Locopow Hd-0800 Air Filter For Harley Davidson</a>
 
 
-<a href="https://www.amazon.com/dp/B0819NM6ZS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="LOCOPOW HD-0800 29442-99e Air Filter for Harley Davidson Dyna Road King Super Street Electra Glide Ultra Classic FatBoy Softail Springer Classic Custom Deluxe Deuce Rocker Slim High Flow" src="https://m.media-amazon.com/images/I/51mKNZV5TKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0819NM6ZS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="LOCOPOW HD-0800 29442-99e Air Filter for Harley Davidson Dyna Road King Super Street Electra Glide Ultra Classic FatBoy Softail Springer Classic Custom Deluxe Deuce Rocker Slim High Flow" src="https://m.media-amazon.com/images/I/51mKNZV5TKL._SL500_.jpg"/></a>
 
 
 The **LOCOPOW HD-0800 29442-99e Air Filter** is an excellent choice for motorcycle enthusiasts who want to enhance their **Harley Davidson** experience. If you own models like the **Dyna, Road King, Super Street, Electra Glide Ultra Classic, FatBoy, Softail Springer Classic, Custom Deluxe, Deuce, Rocker,** or **Slim**, this high flow air filter is designed specifically for your bike. Ideal for those who seek improved performance and efficiency, this air filter is perfect for riders who frequently embark on long journeys or participate in motorcycle events.

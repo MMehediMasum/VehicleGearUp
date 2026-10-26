@@ -23,10 +23,10 @@ Options such as Rough Country’s N3 shocks suit mild lifts, enhancing off-road 
 
 
 
-## <a href="https://www.amazon.com/dp/B01AISV3SG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Bilstein 24-253161 24-196468 Set Of Front &amp; Rear Monotube Shocks</a>
+## <a href="https://www.amazon.com/dp/B01AISV3SG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Bilstein 24-253161 24-196468 Set Of Front &amp; Rear Monotube Shocks</a>
 
 
-<a href="https://www.amazon.com/dp/B01AISV3SG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Bilstein 24-253161 24-196468 Set of Front &amp; Rear Monotube Shocks fits 2011 2024 Silverado Sierra 2500 3500 HD with 1.5" src="https://m.media-amazon.com/images/I/41bVV17CWVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01AISV3SG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Bilstein 24-253161 24-196468 Set of Front &amp; Rear Monotube Shocks fits 2011 2024 Silverado Sierra 2500 3500 HD with 1.5" src="https://m.media-amazon.com/images/I/41bVV17CWVL._SL500_.jpg"/></a>
 
 
 The **Bilstein 24-253161 24-196468 Set of Front & Rear Monotube Shocks** is ideal for truck owners who drive a **2011-2024 Silverado Sierra 2500 or 3500 HD** and have equipped their vehicle with a **1.5" front lift and 0-1" rear lift**. This set is perfect for those seeking enhanced suspension performance, improved ride quality, and durability under heavy-duty conditions. If you frequently drive on rough terrain or require reliable shock absorption for towing and hauling, these shocks are designed to meet your needs.
@@ -48,10 +48,10 @@ The **Bilstein front and rear monotube shocks** are engineered with a premium mo
 
 Additionally, these shocks are designed for direct fitment, making installation straightforward without the need for modifications. Their ability to maintain ride comfort and improve handling on both on-road and off-road terrains makes them a valuable upgrade for truck owners who demand reliability and performance. The combination of increased durability, improved stability, and tailored fitment ensures that these shocks deliver exceptional value for lifted heavy-duty trucks.
 
-## <a href="https://www.amazon.com/dp/B079QHJ393?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rancho Rs5000x Gas Shocks Set</a>
+## <a href="https://www.amazon.com/dp/B079QHJ393?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rancho Rs5000x Gas Shocks Set</a>
 
 
-<a href="https://www.amazon.com/dp/B079QHJ393?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rancho RS5000X Gas Shocks Set for 2011-2019 GMC Sierra 2500 HD 4WD RWD" src="https://m.media-amazon.com/images/I/41arZl+MXdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B079QHJ393?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rancho RS5000X Gas Shocks Set for 2011-2019 GMC Sierra 2500 HD 4WD RWD" src="https://m.media-amazon.com/images/I/41arZl+MXdL._SL500_.jpg"/></a>
 
 
 The **Rancho RS5000X Gas Shocks Set** is an excellent choice for owners of the **2011-2019 GMC Sierra 2500 HD 4WD and RWD** who are looking to enhance their vehicle’s suspension performance. Ideal for drivers who frequently haul heavy loads or drive off-road, this set is designed to provide superior ride comfort and improved handling under demanding conditions. If you want to upgrade your truck’s shock absorbers for better durability and control, this product is tailored for you.
@@ -73,10 +73,10 @@ The **Rancho RS5000X Gas Shocks Set** features advanced gas-charged technology t
 
 Designed as a direct fit for the **2011-2019 GMC Sierra 2500 HD 4WD and RWD** models, these shocks simplify the upgrade process without requiring modifications. Their precise dimensions (Height: 29.0 Inches, Width: 12.0 Inches, Length: 6.0 Inches) and weight (25.0 pounds) make them a substantial yet manageable improvement over factory parts, delivering enhanced vehicle control, improved ride comfort, and better overall driving experience for heavy-duty truck owners.
 
-## <a href="https://www.amazon.com/dp/B01LW94E48?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rancho Rs55274 Rs55288 Set Of Front &amp; Rear Rs5000x Series Shocks</a>
+## <a href="https://www.amazon.com/dp/B01LW94E48?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rancho Rs55274 Rs55288 Set Of Front &amp; Rear Rs5000x Series Shocks</a>
 
 
-<a href="https://www.amazon.com/dp/B01LW94E48?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rancho RS55274 RS55288 Set of Front &amp; Rear RS5000X Series Shocks fits 2001 2010 Sierra 2500 HD with Front Torsion Bar &amp; 0” Lift | Improved Handling &amp; Performance | For Quicker Rebound" src="https://m.media-amazon.com/images/I/413ftnXB+EL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01LW94E48?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rancho RS55274 RS55288 Set of Front &amp; Rear RS5000X Series Shocks fits 2001 2010 Sierra 2500 HD with Front Torsion Bar &amp; 0” Lift | Improved Handling &amp; Performance | For Quicker Rebound" src="https://m.media-amazon.com/images/I/413ftnXB+EL._SL500_.jpg"/></a>
 
 
 The **Rancho RS55274 RS55288 Set of Front & Rear RS5000X Series Shocks** is ideal for owners of the **2001-2010 Sierra 2500 HD** who are looking to enhance their vehicle's handling and performance without altering the factory ride height. This product is perfect for drivers who value a smoother ride, quicker rebound, and better control, especially those who frequently navigate rough terrains or carry heavy loads.
@@ -99,10 +99,10 @@ The **RS55274 RS55288 shocks** from the RS5000X Series are engineered to provide
 
 Constructed by **Rancho**, a reputable name in suspension products, these shocks boast durability and reliability. The white finish not only protects against corrosion but also complements the vehicle's undercarriage aesthetics. Installation of these shocks results in a smoother ride experience, reducing driver fatigue and improving overall vehicle responsiveness. For drivers who demand both function and quality, the RS55274 RS55288 shocks deliver a balanced blend of enhanced performance and lasting durability.
 
-## <a href="https://www.amazon.com/dp/B0792LHWLX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Detroit Axle - Shock Absorbers For Chevy Gmc Silverado Sierra</a>
+## <a href="https://www.amazon.com/dp/B0792LHWLX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Detroit Axle - Shock Absorbers For Chevy Gmc Silverado Sierra</a>
 
 
-<a href="https://www.amazon.com/dp/B0792LHWLX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Detroit Axle - Shock Absorbers for Chevy GMC Silverado Sierra 1500HD 2500HD 2500 Complete Front and Rear Shock Absorbers Replacement Shocks Assembly" src="https://m.media-amazon.com/images/I/41JZFROBdxS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0792LHWLX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Detroit Axle - Shock Absorbers for Chevy GMC Silverado Sierra 1500HD 2500HD 2500 Complete Front and Rear Shock Absorbers Replacement Shocks Assembly" src="https://m.media-amazon.com/images/I/41JZFROBdxS._SL500_.jpg"/></a>
 
 
 The **Detroit Axle Shock Absorbers** are an ideal investment for vehicle owners of **Chevy GMC Silverado Sierra 1500HD 2500HD 2500** who are looking to enhance their driving experience with improved stability and comfort. These shock absorbers are specifically designed for those who frequently drive on rugged terrains or require a smooth ride on highways. If you value performance and durability in your vehicle's suspension system, this product is tailored for you.
@@ -122,10 +122,10 @@ These **Detroit Axle Shock Absorbers** boast a **durable construction** that ass
 
 The **easy installation** process of these shock absorbers ensures that vehicle owners can replace their existing parts without professional help, making it a cost-effective solution. The complete replacement assembly means that everything needed for a seamless installation is included, minimizing downtime and getting you back on the road quickly. This is particularly beneficial for those who prefer DIY vehicle maintenance.
 
-## <a href="https://www.amazon.com/dp/B01AX9CTDI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Bilstein B8 5100 Series Suspension Shock Absorbers Set</a>
+## <a href="https://www.amazon.com/dp/B01AX9CTDI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Bilstein B8 5100 Series Suspension Shock Absorbers Set</a>
 
 
-<a href="https://www.amazon.com/dp/B01AX9CTDI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Bilstein 24-186735/24-186742 Set of Front and Rear B8 5100 Series Suspension Shock Absorbers fits Select Silverado/Sierra 1500 HD, 2500, 2500 HD, 3500, and 3500 HD Models | Easy Installation" src="https://m.media-amazon.com/images/I/412Y1zJa4iL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01AX9CTDI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Bilstein 24-186735/24-186742 Set of Front and Rear B8 5100 Series Suspension Shock Absorbers fits Select Silverado/Sierra 1500 HD, 2500, 2500 HD, 3500, and 3500 HD Models | Easy Installation" src="https://m.media-amazon.com/images/I/412Y1zJa4iL._SL500_.jpg"/></a>
 
 
 The **Bilstein 24-186735/24-186742 Set of Front and Rear B8 5100 Series Suspension Shock Absorbers** is ideal for truck owners who demand enhanced performance and durability from their suspension system. Specifically designed to fit select **Silverado/Sierra 1500 HD, 2500, 2500 HD, 3500, and 3500 HD models**, this set is perfect for those who frequently drive on rough terrains or carry heavy loads and want to improve their vehicle’s handling and ride comfort. If you're seeking a reliable upgrade that offers superior shock absorption with easy installation, this product is tailored for you.
@@ -148,10 +148,10 @@ The **Bilstein B8 5100 Series Shock Absorbers** are engineered with monotube gas
 
 Additionally, the easy installation process means that users can upgrade their suspension system without professional assistance, saving on labor costs. The front and rear set ensures balanced performance and safety, enhancing overall vehicle responsiveness and driver confidence. By investing in these Bilstein shock absorbers, truck owners gain increased durability, improved handling, and a comfortable driving experience, making it a smart choice for both daily driving and demanding work environments.
 
-## <a href="https://www.amazon.com/dp/B0BQN8GFVF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Realtruck Superlift Suspension Lift Kit Shock Box For Silverado/sierra</a>
+## <a href="https://www.amazon.com/dp/B0BQN8GFVF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Realtruck Superlift Suspension Lift Kit Shock Box For Silverado/sierra</a>
 
 
-<a href="https://www.amazon.com/dp/B0BQN8GFVF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="RealTruck SUPERLIFT SUSPENSION Lift Kit Shock Box for Silverado/Sierra | Front &amp; Rear Bilstein 5100 Series Shocks | 84026 | Fits 2001-2010 Chevrolet Silverado/GMC Sierra 2500HD/3500 with 6-7.5" src="https://m.media-amazon.com/images/I/31KhIUPbUNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BQN8GFVF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="RealTruck SUPERLIFT SUSPENSION Lift Kit Shock Box for Silverado/Sierra | Front &amp; Rear Bilstein 5100 Series Shocks | 84026 | Fits 2001-2010 Chevrolet Silverado/GMC Sierra 2500HD/3500 with 6-7.5" src="https://m.media-amazon.com/images/I/31KhIUPbUNL._SL500_.jpg"/></a>
 
 
 Ideal for off-road enthusiasts and heavy-duty truck owners, the **RealTruck SUPERLIFT SUSPENSION Lift Kit Shock Box** is designed for those who want to enhance their **Chevrolet Silverado** or **GMC Sierra 2500HD/3500** with superior lift and shock absorption capabilities. If you own a 2001-2010 model and seek a reliable suspension upgrade to improve both appearance and performance, this kit is an excellent choice.
@@ -174,10 +174,10 @@ The **RealTruck SUPERLIFT SUSPENSION Lift Kit Shock Box** stands out with its in
 
 Constructed by **Superlift**, a trusted manufacturer in the suspension industry, this kit guarantees durability and performance. The silver finish not only protects against corrosion but also adds an aesthetic upgrade to the vehicle's undercarriage. Overall, this lift kit offers a balanced combination of style, strength, and functionality, making it a worthwhile investment for anyone looking to upgrade their Silverado or Sierra’s suspension system.
 
-## <a href="https://www.amazon.com/dp/B07YZQK695?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rough Country Front Shocks</a>
+## <a href="https://www.amazon.com/dp/B07YZQK695?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rough Country Front Shocks</a>
 
 
-<a href="https://www.amazon.com/dp/B07YZQK695?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rough Country 0-3" src="https://m.media-amazon.com/images/I/31jGKCI4giL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07YZQK695?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rough Country 0-3" src="https://m.media-amazon.com/images/I/31jGKCI4giL._SL500_.jpg"/></a>
 
 
 The **Rough Country 0-3" N3 Front Shocks** for **11-24 Chevy/GMC Sierra 2500 HD** are ideal for truck owners looking to improve their vehicle's suspension performance with a reliable and durable upgrade. This product is perfect for off-road enthusiasts, daily drivers seeking enhanced ride comfort, and anyone wanting to maintain optimal handling and control on varying terrains. If you own a **Chevy or GMC Sierra 2500 HD** model between 2011 and 2024 and want to achieve a smooth yet firm ride, this shock absorber set is designed for you.
@@ -200,10 +200,10 @@ The **Rough Country 0-3" N3 Front Shocks** boast a robust build and precision en
 
 In addition to enhancing ride quality, these shocks are designed to withstand harsh conditions thanks to their durable construction from **Rough Country**. Users benefit from improved shock absorption, reduced vibration, and increased stability. This results in a safer, more comfortable driving experience whether navigating rough trails or cruising on highways. Overall, these front shocks offer a significant upgrade for those seeking both performance and reliability in their suspension system.
 
-## <a href="https://www.amazon.com/dp/B0C3BZMF8Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Detroit Axle 4pc Shock Absorbers For Chevy Silverado Gmc Sierra 2500 3500 Hd</a>
+## <a href="https://www.amazon.com/dp/B0C3BZMF8Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Detroit Axle 4pc Shock Absorbers For Chevy Silverado Gmc Sierra 2500 3500 Hd</a>
 
 
-<a href="https://www.amazon.com/dp/B0C3BZMF8Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Detroit Axle - 4pc Shocks Absorbers for 2011-2022 Chevy Silverado GMC Sierra 2500 3500 HD, 4 Front and Rear Shock Absorbers Assembly 2012 2013 2014 2015 2016 2017 2018 2019 2020 2021 Replacement" src="https://m.media-amazon.com/images/I/41QuaRzTTrL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C3BZMF8Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Detroit Axle - 4pc Shocks Absorbers for 2011-2022 Chevy Silverado GMC Sierra 2500 3500 HD, 4 Front and Rear Shock Absorbers Assembly 2012 2013 2014 2015 2016 2017 2018 2019 2020 2021 Replacement" src="https://m.media-amazon.com/images/I/41QuaRzTTrL._SL500_.jpg"/></a>
 
 
 The **Detroit Axle - 4pc Shocks Absorbers** are ideal for vehicle owners who drive **2011-2022 Chevy Silverado** or **GMC Sierra 2500 and 3500 HD** models and need a reliable replacement for their front and rear shock absorbers. This product is perfect for those seeking to restore their truck’s original ride quality and handling performance, especially if their current shocks have worn out or are causing a rough driving experience. Whether you use your truck for heavy-duty work or everyday driving, these shock absorbers are designed to meet your needs.
@@ -225,10 +225,10 @@ The **Detroit Axle - 4pc Shocks Absorbers** feature robust engineering and preci
 
 Additionally, the set includes both front and rear shock absorbers, allowing for consistent suspension performance across all wheels. This balanced approach helps maintain vehicle stability and reduces wear on other suspension components. Investing in this replacement assembly not only restores your truck’s handling dynamics but also extends the longevity of your suspension system, making it a smart choice for truck owners who prioritize both comfort and durability.
 
-## <a href="https://www.amazon.com/dp/B09QMSMVVJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rough Country V2 Front Shocks</a>
+## <a href="https://www.amazon.com/dp/B09QMSMVVJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rough Country V2 Front Shocks</a>
 
 
-<a href="https://www.amazon.com/dp/B09QMSMVVJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rough Country 0-2" src="https://m.media-amazon.com/images/I/31-jq1dk8tL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09QMSMVVJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rough Country 0-2" src="https://m.media-amazon.com/images/I/31-jq1dk8tL._SL500_.jpg"/></a>
 
 
 The **Rough Country 0-2" V2 Front Shocks** are ideal for owners of **Chevy Silverado** and **GMC Sierra 2500HD/3500HD** models from **2011 to 2025** who are looking to improve their truck’s suspension performance. If you want a reliable, durable upgrade to enhance ride quality and handling without altering the vehicle’s height significantly, this pair of front shocks is perfect for you. Whether you use your truck for heavy-duty work or off-road adventures, these shocks provide the balance between comfort and control.
@@ -250,10 +250,10 @@ The **Rough Country 0-2" V2 Front Shocks** are engineered to enhance your truck�
 
 With easy installation and a fit tailored specifically for the **Chevy Silverado** and **GMC Sierra 2500HD/3500HD**, these front shocks offer an efficient upgrade without the need for complex modifications. The subtle 0-2" lift capability means you retain your truck’s factory stance while gaining improved suspension responsiveness. Overall, these shocks are a smart investment for truck owners looking to boost ride quality and vehicle stability.
 
-## <a href="https://www.amazon.com/dp/B019EO7S02?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rancho Rs9000xl Premium Gas Shocks</a>
+## <a href="https://www.amazon.com/dp/B019EO7S02?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rancho Rs9000xl Premium Gas Shocks</a>
 
 
-<a href="https://www.amazon.com/dp/B019EO7S02?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="RANCHO RS9000XL PREMIUM Gas Shocks Compatible with 2011-2015 GMC SIERRA 2500HD" src="https://m.media-amazon.com/images/I/41r8LP0ap4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B019EO7S02?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="RANCHO RS9000XL PREMIUM Gas Shocks Compatible with 2011-2015 GMC SIERRA 2500HD" src="https://m.media-amazon.com/images/I/41r8LP0ap4L._SL500_.jpg"/></a>
 
 
 The **RANCHO RS9000XL PREMIUM Gas Shocks** are ideal for owners of the **2011-2015 GMC SIERRA 2500HD** who seek enhanced ride control and improved vehicle performance. These shocks are perfect for drivers who frequently tow heavy loads, navigate rough terrains, or simply want a smoother, more controlled driving experience. If you value durability and adjustable ride quality, this product is designed to meet your needs.

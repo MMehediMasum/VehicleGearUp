@@ -22,10 +22,10 @@ You can find heads made for both stock and modified engines, including non-MDS v
 
 
 
-## <a href="https://www.amazon.com/dp/B0D1CTH6C3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Adv Remanufactured Hemi 5.7 Ohv Cylinder Head Pair V8</a>
+## <a href="https://www.amazon.com/dp/B0D1CTH6C3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Adv Remanufactured Hemi 5.7 Ohv Cylinder Head Pair V8</a>
 
 
-<a href="https://www.amazon.com/dp/B0D1CTH6C3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ADV Remanufactured HEMI 5.7 OHV Cylinder Head Pair V8 EAGLE 300 Challenger Charger Magnum Cherokee with Head Gasket Set &amp; Head Bolts 2009-2021 (CORE RETURN REQUIRED), 53021616DE / 53021616DD" src="https://m.media-amazon.com/images/I/51f2qlr5DFL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D1CTH6C3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ADV Remanufactured HEMI 5.7 OHV Cylinder Head Pair V8 EAGLE 300 Challenger Charger Magnum Cherokee with Head Gasket Set &amp; Head Bolts 2009-2021 (CORE RETURN REQUIRED), 53021616DE / 53021616DD" src="https://m.media-amazon.com/images/I/51f2qlr5DFL._SL500_.jpg"/></a>
 
 
 The **ADV Remanufactured HEMI 5.7 OHV Cylinder Head Pair V8** is ideal for automotive enthusiasts and professional mechanics looking to restore or upgrade their Chrysler 5.7L HEMI engines. If you own a **2009-2021 Dodge Challenger, Charger, Magnum, or Jeep Cherokee** and need a reliable replacement cylinder head with high-quality performance, this product is designed specifically for you. It is especially suited for those who prioritize durability and engine efficiency while ensuring compatibility with factory specifications.
@@ -48,10 +48,10 @@ The **ADV Remanufactured HEMI 5.7 OHV Cylinder Head Pair** offers a meticulously
 
 With precision engineering, these cylinder heads improve combustion efficiency and help maintain optimal engine temperatures. The remanufacturing process involves rigorous testing and quality assurance, giving users confidence in durability and performance. Whether restoring a classic muscle car or maintaining a daily driver, this cylinder head pair enhances power delivery, fuel efficiency, and overall reliability, making it an excellent investment for owners of compatible Chrysler vehicles.
 
-## <a href="https://www.amazon.com/dp/B000G3M7R0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Edelbrock 61119 Performer Rpm Cylinder Head</a>
+## <a href="https://www.amazon.com/dp/B000G3M7R0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Edelbrock 61119 Performer Rpm Cylinder Head</a>
 
 
-<a href="https://www.amazon.com/dp/B000G3M7R0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Edelbrock 61119 Performer RPM Cylinder Head for 2003-Up 5.7L/6.4L Chrysler HEMI Gen III 73cc Complete" src="https://m.media-amazon.com/images/I/41qLgzOsP9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000G3M7R0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Edelbrock 61119 Performer RPM Cylinder Head for 2003-Up 5.7L/6.4L Chrysler HEMI Gen III 73cc Complete" src="https://m.media-amazon.com/images/I/41qLgzOsP9L._SL500_.jpg"/></a>
 
 
 The **Edelbrock 61119 Performer RPM Cylinder Head** is perfect for car enthusiasts and mechanics looking to enhance the performance of their 2003-Up 5.7L/6.4L Chrysler HEMI Gen III engines. This product is ideal for those who demand increased horsepower and torque for their vehicles, whether for competitive racing or improved street performance.
@@ -73,10 +73,10 @@ The **Edelbrock 61119 Performer RPM Cylinder Head** is engineered with precision
 
 Featuring a **complete package** design, this cylinder head is straightforward to install for those with mechanical expertise, although some users may opt for professional installation. Its compatibility with specific Chrysler HEMI engines ensures that it integrates seamlessly, providing significant performance benefits such as increased horsepower and torque, essential for both racing and street use.
 
-## <a href="https://www.amazon.com/dp/B0DG6TFQR8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Adv Rebuilt 5.7 Ohv Cylinder Head Pair V8 Hemi</a>
+## <a href="https://www.amazon.com/dp/B0DG6TFQR8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Adv Rebuilt 5.7 Ohv Cylinder Head Pair V8 Hemi</a>
 
 
-<a href="https://www.amazon.com/dp/B0DG6TFQR8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ADV Rebuilt 5.7 OHV Cylinder Head Pair V8 HEMI EAGLE 300c Challenger Charger Durango Ram 1500 2500 3500 Cherokee 2009-2021 (CORE RETURN REQUIRED)" src="https://m.media-amazon.com/images/I/51feVBucvnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DG6TFQR8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ADV Rebuilt 5.7 OHV Cylinder Head Pair V8 HEMI EAGLE 300c Challenger Charger Durango Ram 1500 2500 3500 Cherokee 2009-2021 (CORE RETURN REQUIRED)" src="https://m.media-amazon.com/images/I/51feVBucvnL._SL500_.jpg"/></a>
 
 
 The **ADV Rebuilt 5.7 OHV Cylinder Head Pair** is ideal for vehicle owners and mechanics who need a reliable replacement or upgrade for their **V8 HEMI engines** in models such as the **EAGLE 300c, Challenger, Charger, Durango, Ram 1500, 2500, 3500, and Cherokee** from years 2009 to 2021. This product is perfect for those looking for a durable, high-quality cylinder head that ensures optimal engine performance and longevity, especially when a **core return** is feasible.
@@ -99,10 +99,10 @@ The **ADV Rebuilt 5.7 OHV Cylinder Head Pair** features high-quality rebuilding 
 
 Additionally, the compatibility with various models from the **Dodge, Chrysler, and Jeep** brands makes this cylinder head pair a versatile choice for many vehicle owners. The rebuilt nature of the product also means it is environmentally friendly, as it promotes the reuse of existing components without compromising on quality. Overall, this product provides a practical and effective solution for maintaining and upgrading V8 HEMI engines.
 
-## <a href="https://www.amazon.com/dp/B003XUDT98?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Arp Sp-head Studs For 5.7 Hemi</a>
+## <a href="https://www.amazon.com/dp/B003XUDT98?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Arp Sp-head Studs For 5.7 Hemi</a>
 
 
-<a href="https://www.amazon.com/dp/B003XUDT98?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ARP 2444300 SP-Head Studs for 5.7 Hemi" src="https://m.media-amazon.com/images/I/51mEml4PU4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B003XUDT98?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ARP 2444300 SP-Head Studs for 5.7 Hemi" src="https://m.media-amazon.com/images/I/51mEml4PU4L._SL500_.jpg"/></a>
 
 
 The **ARP 2444300 SP-Head Studs for 5.7 Hemi** are ideal for automotive enthusiasts and professionals looking to enhance the durability and performance of their **5.7 Hemi engines**. If you are upgrading your engine or performing a rebuild that demands high-strength fasteners to withstand extreme pressures and temperatures, these studs are the perfect choice. They are especially suited for those who want reliable and long-lasting engine components.
@@ -125,10 +125,10 @@ The **ARP 2444300 SP-Head Studs** feature precision engineering that ensures a s
 
 With the focus on durability and exact fitment, these studs reduce the risk of thread wear and loosening over time. The high-quality materials used in manufacturing provide resistance against corrosion and fatigue, extending the lifespan of your engine components. Ultimately, investing in these studs means less maintenance and increased confidence in your engine’s performance and reliability.
 
-## <a href="https://www.amazon.com/dp/B082QYD8MK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">5.7 Hemi Cylinder Heads</a>
+## <a href="https://www.amazon.com/dp/B082QYD8MK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">5.7 Hemi Cylinder Heads</a>
 
 
-<a href="https://www.amazon.com/dp/B082QYD8MK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img src="https://m.media-amazon.com/images/I/51uRt9I1xjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B082QYD8MK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img src="https://m.media-amazon.com/images/I/51uRt9I1xjL._SL500_.jpg"/></a>
 
 
 The **NEW 5.7 HEMI Cylinder Heads** are ideal for automotive enthusiasts and mechanics looking to enhance the performance of their **Dodge Durango, Charger, Magnum, Ram 1500, 2500, and R/T models** from 2003 to 2008. If you own one of these vehicles and want to maintain or upgrade your engine with reliable, high-quality components, this product is a perfect fit. Buyers who prioritize durability, engine efficiency, and compatibility with the original manufacturer's specifications will find these cylinder heads particularly beneficial.
@@ -151,10 +151,10 @@ The **NEW 5.7 HEMI Cylinder Heads** by ADV Cylinder Heads provide an excellent u
 
 Featuring robust construction and optimized airflow design, these cylinder heads improve combustion efficiency, leading to better horsepower and torque output. Additionally, their durable materials withstand high temperatures and stresses, making them suitable for both daily driving and more demanding applications. The core return requirement encourages responsible recycling, helping users contribute to environmental sustainability while maintaining their vehicles.
 
-## <a href="https://www.amazon.com/dp/B0CB22CLNY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Aluminum Hemi Gen 3 Hellcat Supercharger Head Adapter Plates</a>
+## <a href="https://www.amazon.com/dp/B0CB22CLNY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Aluminum Hemi Gen 3 Hellcat Supercharger Head Adapter Plates</a>
 
 
-<a href="https://www.amazon.com/dp/B0CB22CLNY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ALUMINUM HEMI GEN 3 HELLCAT SUPERCHARGER HEAD ADAPTER PLATES - MACHINED" src="https://m.media-amazon.com/images/I/41Mja-oCDyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CB22CLNY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ALUMINUM HEMI GEN 3 HELLCAT SUPERCHARGER HEAD ADAPTER PLATES - MACHINED" src="https://m.media-amazon.com/images/I/41Mja-oCDyL._SL500_.jpg"/></a>
 
 
 The **ALUMINUM HEMI GEN 3 HELLCAT SUPERCHARGER HEAD ADAPTER PLATES - MACHINED** are ideal for automotive enthusiasts and professional mechanics looking to enhance the performance and durability of their HEMI Gen 3 Hellcat engines. This product is perfect for those who want a reliable, precision-machined adapter plate that seamlessly fits their supercharger setup, ensuring optimal airflow and boost efficiency.
@@ -177,10 +177,10 @@ The **ALUMINUM HEMI GEN 3 HELLCAT SUPERCHARGER HEAD ADAPTER PLATES** offer excep
 
 In addition to durability and fitment, the adapter plates optimize the airflow path between the supercharger and the engine heads. This improved airflow translates to better combustion efficiency, increased horsepower, and enhanced throttle response. For users aiming to maximize their Hellcat engine's potential, these adapter plates provide a crucial upgrade that supports both daily driving and track-focused applications.
 
-## <a href="https://www.amazon.com/dp/B0F8VL2Z4L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">5.7 Hemi Lifters Camshaft Oil Pan Kit Timing Chain Head Gasket Water Plug Kit</a>
+## <a href="https://www.amazon.com/dp/B0F8VL2Z4L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">5.7 Hemi Lifters Camshaft Oil Pan Kit Timing Chain Head Gasket Water Plug Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0F8VL2Z4L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Non MDS 5.7 HEMI Lifters Camshaft Oil Pan Kit w/Timing Chain Head Gasket Water Plug Kit Fits for 2009-2018 Dodge Ram 1500 V8 5.7L" src="https://m.media-amazon.com/images/I/514kC1VpX8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F8VL2Z4L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Non MDS 5.7 HEMI Lifters Camshaft Oil Pan Kit w/Timing Chain Head Gasket Water Plug Kit Fits for 2009-2018 Dodge Ram 1500 V8 5.7L" src="https://m.media-amazon.com/images/I/514kC1VpX8L._SL500_.jpg"/></a>
 
 
 The **Non MDS 5.7 HEMI Lifters Camshaft Oil Pan Kit** is ideal for automotive enthusiasts and professional mechanics who own a **2009-2018 Dodge Ram 1500 V8 5.7L** and are looking to enhance engine performance and reliability. This kit is perfect for those seeking a comprehensive upgrade with components designed to work seamlessly together, including the camshaft, oil pan, timing chain, head gasket, and water plug, all from the trusted **TREXCAR** brand.
@@ -201,10 +201,10 @@ This **Non MDS 5.7 HEMI Lifters Camshaft Oil Pan Kit** offers a well-rounded sol
 
 Additionally, the **Non-MDS** configuration eliminates the Multi-Displacement System, simplifying the engine's mechanical design and potentially increasing reliability over time. This feature is particularly beneficial for users who prioritize consistent engine performance and easier maintenance. With the entire kit sourced from **TREXCAR**, buyers can expect quality craftsmanship and components that meet or exceed OEM specifications, ensuring peace of mind and enhanced vehicle longevity.
 
-## <a href="https://www.amazon.com/dp/B0DQCZ1S8Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">5.7l Hemi 2009+ Non-mds Camshaft &amp; Lifters Kit</a>
+## <a href="https://www.amazon.com/dp/B0DQCZ1S8Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">5.7l Hemi 2009+ Non-mds Camshaft &amp; Lifters Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0DQCZ1S8Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="5.7L HEMI 2009+ Non-MDS Camshaft &amp; Lifters Kit | Camshaft | Premium Non-MDS Lifters | Head Gasket Kit | Head Bolts | FITS: 2009-2022 Dodge Chrysler 5.7L HEMI Gen4 RAM Challenger Charger Non-MDS" src="https://m.media-amazon.com/images/I/51FRVyM3z3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DQCZ1S8Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="5.7L HEMI 2009+ Non-MDS Camshaft &amp; Lifters Kit | Camshaft | Premium Non-MDS Lifters | Head Gasket Kit | Head Bolts | FITS: 2009-2022 Dodge Chrysler 5.7L HEMI Gen4 RAM Challenger Charger Non-MDS" src="https://m.media-amazon.com/images/I/51FRVyM3z3L._SL500_.jpg"/></a>
 
 
 The **5.7L HEMI 2009+ Non-MDS Camshaft & Lifters Kit** is ideal for automotive enthusiasts and professional mechanics looking to upgrade or replace the camshaft and lifters on their **2009-2022 Dodge Chrysler 5.7L HEMI Gen4 RAM Challenger Charger Non-MDS** engines. This kit is perfect for those who require reliable, high-quality engine components that ensure optimal performance without the complexity of the MDS (Multi-Displacement System).
@@ -227,10 +227,10 @@ This **camshaft and lifters kit** is engineered to enhance engine performance by
 
 With components manufactured by **REDLINE ENGINE SUPPLY** and **ENGINETECH / REDLINE USA**, users can trust the quality and reliability of this kit. Its precise fit and durable materials contribute to a longer engine lifespan and better performance under demanding conditions. Whether for daily driving or high-performance applications, this kit provides a comprehensive solution to keep your HEMI engine running smoothly and efficiently.
 
-## <a href="https://www.amazon.com/dp/B0B2ZSCQW6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Susucar 5.7 Head Gasket Set With Bolts Kit</a>
+## <a href="https://www.amazon.com/dp/B0B2ZSCQW6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Susucar 5.7 Head Gasket Set With Bolts Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0B2ZSCQW6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SUSUCAR 5.7 Head Gasket Set with Bolts Kit for 2009-2016 Dodge Ram 1500 Challenger Durango Chrysler Jeep 5.7L HEMI HS26423PT" src="https://m.media-amazon.com/images/I/51Qdsb4KTAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B2ZSCQW6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SUSUCAR 5.7 Head Gasket Set with Bolts Kit for 2009-2016 Dodge Ram 1500 Challenger Durango Chrysler Jeep 5.7L HEMI HS26423PT" src="https://m.media-amazon.com/images/I/51Qdsb4KTAL._SL500_.jpg"/></a>
 
 
 The **SUSUCAR 5.7 Head Gasket Set with Bolts Kit** is ideal for vehicle owners and mechanics who need a reliable replacement part for the **2009-2016 Dodge Ram 1500, Challenger, Durango, Chrysler, and Jeep 5.7L HEMI engines**. If you are looking to restore engine performance and prevent leaks or overheating issues, this kit is designed to meet your needs with precision and durability.
@@ -252,10 +252,10 @@ The **SUSUCAR 5.7 Head Gasket Set with Bolts Kit** offers a comprehensive soluti
 
 By choosing this head gasket set, users benefit from enhanced engine reliability and longevity. The gasket’s robust design helps maintain proper engine compression, which directly improves fuel efficiency and power output. Additionally, the corrosion-resistant **silver finish** protects the components from wear and extends the lifespan of the repair, making it a cost-effective investment for vehicle maintenance and restoration.
 
-## <a href="https://www.amazon.com/dp/B0F4K2W9M4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">5.7 Hemi Head Gasket Set &amp; Oil Pan Gasket Kit W/bolts</a>
+## <a href="https://www.amazon.com/dp/B0F4K2W9M4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">5.7 Hemi Head Gasket Set &amp; Oil Pan Gasket Kit W/bolts</a>
 
 
-<a href="https://www.amazon.com/dp/B0F4K2W9M4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="5.7 Hemi Head Gasket Set &amp; Oil Pan Gasket Kit w/Bolts Fit for 2009-2016 Dodge Ram 1500/2500/3500 Durango, for Chrysler Aspen 5.7L V8 Engine - HS26423PT" src="https://m.media-amazon.com/images/I/51uNcs-08CL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F4K2W9M4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="5.7 Hemi Head Gasket Set &amp; Oil Pan Gasket Kit w/Bolts Fit for 2009-2016 Dodge Ram 1500/2500/3500 Durango, for Chrysler Aspen 5.7L V8 Engine - HS26423PT" src="https://m.media-amazon.com/images/I/51uNcs-08CL._SL500_.jpg"/></a>
 
 
 The **5.7 Hemi Head Gasket Set & Oil Pan Gasket Kit w/Bolts** is ideal for vehicle owners and mechanics who need a reliable and complete gasket solution for their **2009-2016 Dodge Ram 1500/2500/3500**, **Durango**, or **Chrysler Aspen 5.7L V8 Engine**. If you're looking to ensure optimal engine performance and prevent leaks, this kit is perfect for those performing engine rebuilds or maintenance on these specific models.

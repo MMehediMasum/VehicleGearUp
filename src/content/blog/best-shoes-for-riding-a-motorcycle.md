@@ -23,10 +23,10 @@ Brands like Harley-Davidson, Milwaukee Leather, and Skechers offer reliable opti
 
 
 
-## <a href="https://www.amazon.com/dp/B01B3ZVA40?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Harley-davidson Men's Baxter Leather Motorcycle Casual Sneaker</a>
+## <a href="https://www.amazon.com/dp/B01B3ZVA40?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Harley-davidson Men's Baxter Leather Motorcycle Casual Sneaker</a>
 
 
-<a href="https://www.amazon.com/dp/B01B3ZVA40?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Harley-Davidson Men's Baxter Leather Motorcycle Casual Sneaker, Black/Orange, 10.5" src="https://m.media-amazon.com/images/I/31Ez3+RB-3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01B3ZVA40?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Harley-Davidson Men's Baxter Leather Motorcycle Casual Sneaker, Black/Orange, 10.5" src="https://m.media-amazon.com/images/I/31Ez3+RB-3L._SL500_.jpg"/></a>
 
 
 Ideal for motorcycle enthusiasts and casual sneaker lovers alike, the **Harley-Davidson Men's Baxter Leather Motorcycle Casual Sneaker** in **Black/Orange** offers a perfect blend of style and functionality. If you are looking for a durable, comfortable shoe that reflects your passion for riding and suits everyday wear, this sneaker is an excellent choice.
@@ -47,10 +47,10 @@ The **Baxter Leather Motorcycle Casual Sneaker** features premium leather from *
 
 In addition to its robust build, the sneaker's black and orange color scheme makes a bold statement, perfectly aligning with the Harley-Davidson brand’s aesthetic. Lightweight at under one pound, it allows for easy movement whether you're on the bike or walking around town. This combination of style, comfort, and durability makes it a great option for those seeking versatile footwear that performs well in both casual and riding environments.
 
-## <a href="https://www.amazon.com/dp/B0CVTSG4VL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Milwaukee Leather Mbm9113 Men's Brown Waterproof Leather Motorcycle Reinforced Riding Shoes</a>
+## <a href="https://www.amazon.com/dp/B0CVTSG4VL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Milwaukee Leather Mbm9113 Men's Brown Waterproof Leather Motorcycle Reinforced Riding Shoes</a>
 
 
-<a href="https://www.amazon.com/dp/B0CVTSG4VL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Milwaukee Leather MBM9113 Men's Brown Waterproof Leather Motorcycle Reinforced Riding Shoes w/Ankle Support - 10" src="https://m.media-amazon.com/images/I/31MQXFhAlvL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CVTSG4VL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Milwaukee Leather MBM9113 Men's Brown Waterproof Leather Motorcycle Reinforced Riding Shoes w/Ankle Support - 10" src="https://m.media-amazon.com/images/I/31MQXFhAlvL._SL500_.jpg"/></a>
 
 
 The **Milwaukee Leather MBM9113 Men's Brown Waterproof Leather Motorcycle Reinforced Riding Shoes** are ideal for motorcycle enthusiasts who demand durability, comfort, and protection in their riding footwear. Perfect for riders seeking reliable **ankle support** and waterproof features, these shoes cater to those who prioritize safety without compromising style during their rides.
@@ -72,10 +72,10 @@ The **Milwaukee Leather MBM9113** shoes combine robust construction with practic
 
 Additionally, the shoes’ fit and dimensions make them suitable for extended use, offering comfort without sacrificing safety. The careful balance of protection, durability, and comfort makes these shoes a reliable choice for daily commuters and long-distance riders alike. With the trusted quality of **Milwaukee Leather**, you can expect a product that withstands the rigors of motorcycle riding and delivers consistent performance.
 
-## <a href="https://www.amazon.com/dp/B07H7MJR26?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Harley-davidson Men's Wrenford Canvas Motorcycle Casual Sneaker</a>
+## <a href="https://www.amazon.com/dp/B07H7MJR26?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Harley-davidson Men's Wrenford Canvas Motorcycle Casual Sneaker</a>
 
 
-<a href="https://www.amazon.com/dp/B07H7MJR26?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Harley-Davidson Men's Wrenford Canvas Motorcycle Casual Sneaker, Black, 10.5" src="https://m.media-amazon.com/images/I/319vGL5-9EL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07H7MJR26?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Harley-Davidson Men's Wrenford Canvas Motorcycle Casual Sneaker, Black, 10.5" src="https://m.media-amazon.com/images/I/319vGL5-9EL._SL500_.jpg"/></a>
 
 
 The **Harley-Davidson Men's Wrenford Canvas Motorcycle Casual Sneaker** in black is ideal for motorcycle enthusiasts who want a stylish yet comfortable sneaker that reflects their passion. Perfect for casual wear both on and off the bike, this sneaker is designed for men seeking a durable and fashionable option that complements their rugged lifestyle. If you value a blend of iconic brand style and everyday functionality, this shoe is a great choice.
@@ -98,10 +98,10 @@ The **Harley-Davidson Wrenford Canvas Sneaker** features a robust canvas constru
 
 Additionally, the sneaker's black color adds versatility, allowing it to pair effortlessly with a wide range of casual apparel. Whether you're heading out for a ride or just running errands, these sneakers provide a reliable and stylish option. The trusted Harley-Davidson manufacturing ensures quality craftsmanship, giving users confidence in their purchase. Overall, this sneaker is a practical and fashionable choice for those who appreciate motorcycle culture and need footwear that complements their dynamic lifestyle.
 
-## <a href="https://www.amazon.com/dp/B0CNYLXG6H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bofucn Motorcycle Leather Boots</a>
+## <a href="https://www.amazon.com/dp/B0CNYLXG6H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bofucn Motorcycle Leather Boots</a>
 
 
-<a href="https://www.amazon.com/dp/B0CNYLXG6H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bofucn Motorcycle Leather Boots,Street Riding Shoes,Anti-Slip Side Zipper Shoes for Men and Women (Black/Green, Adult, 5 Men/6 Women)" src="https://m.media-amazon.com/images/I/512xObt9ZQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CNYLXG6H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bofucn Motorcycle Leather Boots,Street Riding Shoes,Anti-Slip Side Zipper Shoes for Men and Women (Black/Green, Adult, 5 Men/6 Women)" src="https://m.media-amazon.com/images/I/512xObt9ZQL._SL500_.jpg"/></a>
 
 
 The **Bofucn Motorcycle Leather Boots** are ideal for both men and women who are passionate about street riding and seek durable, stylish footwear that offers excellent protection and comfort. If you are an avid motorcyclist looking for reliable **anti-slip** shoes with convenient features for everyday use, these boots are tailored to meet your needs. Their unisex design and availability in sizes 5 Men/6 Women make them a versatile choice for adult riders.
@@ -124,10 +124,10 @@ The **Bofucn Motorcycle Leather Boots** feature premium leather that not only wi
 
 These boots balance functionality with style, available in appealing **Black/Green** colors that complement a variety of riding gear. Their thoughtful construction addresses the needs of both men and women, making them a versatile option for adult riders. Whether commuting in the city or enjoying weekend rides, these boots offer dependable protection and comfort, making them a smart investment for motorcycle enthusiasts who value both safety and style.
 
-## <a href="https://www.amazon.com/dp/B07S7FZGMB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Skechers Men's New Wascana-benen Military And Tactical Boot</a>
+## <a href="https://www.amazon.com/dp/B07S7FZGMB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Skechers Men's New Wascana-benen Military And Tactical Boot</a>
 
 
-<a href="https://www.amazon.com/dp/B07S7FZGMB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Skechers Men's New Wascana-Benen Military and Tactical Boot, Black, 13 Wide" src="https://m.media-amazon.com/images/I/41z6of4UkcL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07S7FZGMB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Skechers Men's New Wascana-Benen Military and Tactical Boot, Black, 13 Wide" src="https://m.media-amazon.com/images/I/41z6of4UkcL._SL500_.jpg"/></a>
 
 
 The **Skechers Men's New Wascana-Benen Military and Tactical Boot** is perfect for those who require reliable footwear for demanding environments. Whether you're in the military, law enforcement, or enjoy outdoor adventures, these boots are designed to provide the necessary support and durability. Those who need **wide-sized** boots will find the 13 Wide option especially accommodating.
@@ -148,10 +148,10 @@ The **Skechers Men's New Wascana-Benen Military and Tactical Boot** offers a ble
 
 In addition to its durability, the boot features **ample cushioning** that provides comfort even during extended periods of wear. The **wide size** option is particularly beneficial for individuals with broader feet, ensuring a comfortable fit without compromising on support. Despite being on the **heavier** side, the **stylish black** design makes it a versatile option for various uniforms, catering to both functionality and appearance.
 
-## <a href="https://www.amazon.com/dp/B013HGP4XQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Harley-davidson Footwear Men's Roarke Sneaker</a>
+## <a href="https://www.amazon.com/dp/B013HGP4XQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Harley-davidson Footwear Men's Roarke Sneaker</a>
 
 
-<a href="https://www.amazon.com/dp/B013HGP4XQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Harley-Davidson Footwear Men's Roarke Sneaker, Blk/Orange Vulcanized LowCut, 11" src="https://m.media-amazon.com/images/I/415apESDfJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B013HGP4XQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Harley-Davidson Footwear Men's Roarke Sneaker, Blk/Orange Vulcanized LowCut, 11" src="https://m.media-amazon.com/images/I/415apESDfJL._SL500_.jpg"/></a>
 
 
 The **Harley-Davidson Footwear Men's Roarke Sneaker** in **Blk/Orange Vulcanized LowCut** is ideal for motorcycle enthusiasts and casual sneaker lovers who appreciate a blend of style, comfort, and durability. Perfect for men who want to showcase their passion for the Harley-Davidson brand while enjoying a versatile and supportive shoe for everyday wear.
@@ -174,10 +174,10 @@ The **Roarke Sneaker** features a vulcanized sole that offers superb traction, m
 
 Constructed with the high standards expected from **Harley-Davidson Footwear**, this sneaker balances ruggedness with comfort. It is lightweight and breathable, making it suitable for various activities without sacrificing durability. Whether you're riding, running errands, or socializing, the Roarke Sneaker provides a confident and stylish option for men who want footwear that stands out.
 
-## <a href="https://www.amazon.com/dp/B0CRJVKWQF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Milwaukee Leather Mbm9004wp Men's Waterproof Black Leather Motorcycle Reinforced Street Riding Shoes</a>
+## <a href="https://www.amazon.com/dp/B0CRJVKWQF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Milwaukee Leather Mbm9004wp Men's Waterproof Black Leather Motorcycle Reinforced Street Riding Shoes</a>
 
 
-<a href="https://www.amazon.com/dp/B0CRJVKWQF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Milwaukee Leather MBM9004WP Men's Waterproof Black Leather Motorcycle Reinforced Street Riding Shoes w/Ankle Support - 12" src="https://m.media-amazon.com/images/I/318Zs7NHvAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CRJVKWQF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Milwaukee Leather MBM9004WP Men's Waterproof Black Leather Motorcycle Reinforced Street Riding Shoes w/Ankle Support - 12" src="https://m.media-amazon.com/images/I/318Zs7NHvAL._SL500_.jpg"/></a>
 
 
 The **Milwaukee Leather MBM9004WP Men's Waterproof Black Leather Motorcycle Reinforced Street Riding Shoes** are ideal for motorcyclists seeking durable, stylish, and protective footwear. These shoes are perfect for riders who want a combination of **comfort, safety, and waterproof features** while navigating urban streets or longer rides. If you prioritize ankle support and reinforced protection without compromising on a sleek black leather look, these shoes are designed for you.
@@ -200,10 +200,10 @@ The **Milwaukee Leather MBM9004WP shoes** feature a sturdy design made to withst
 
 In addition to protection, these shoes offer substantial **ankle support**, which is crucial for maintaining balance and preventing injuries during rides. Their ergonomic design fits snugly, allowing for comfortable wear throughout the day. The combination of style and function makes these shoes a great investment for anyone serious about motorcycle safety without sacrificing aesthetics.
 
-## <a href="https://www.amazon.com/dp/B0B9S6YNC8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ilm Motorcycle Shoes For Men Black Waterproof Street Riding Breathable Powersport Anti-slip Footwear With Ankle Support</a>
+## <a href="https://www.amazon.com/dp/B0B9S6YNC8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ilm Motorcycle Shoes For Men Black Waterproof Street Riding Breathable Powersport Anti-slip Footwear With Ankle Support</a>
 
 
-<a href="https://www.amazon.com/dp/B0B9S6YNC8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ILM Motorcycle Shoes for Men Black Waterproof Street Riding Breathable Powersport Anti-Slip Footwear with Ankle Support, Shift pad (Black,10)" src="https://m.media-amazon.com/images/I/413OZRaEGtL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B9S6YNC8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ILM Motorcycle Shoes for Men Black Waterproof Street Riding Breathable Powersport Anti-Slip Footwear with Ankle Support, Shift pad (Black,10)" src="https://m.media-amazon.com/images/I/413OZRaEGtL._SL500_.jpg"/></a>
 
 
 The **ILM Motorcycle Shoes for Men** in Black are ideal for riders who seek a perfect blend of protection, comfort, and style during their street rides. These shoes are especially suited for motorcycle enthusiasts who demand **waterproof** and **breathable footwear** that can withstand various weather conditions while providing excellent grip and ankle support. If you are a powersport rider looking for reliable shoes with enhanced safety features like a **shift pad** and **anti-slip** soles, this product is designed with you in mind.
@@ -227,10 +227,10 @@ The **ILM Motorcycle Shoes** feature a durable construction with a waterproof me
 
 Beyond protection, these shoes offer substantial **ankle support** which is critical in reducing fatigue and minimizing the risk of injuries during sudden movements or accidents. The sleek **black design** not only looks stylish but also complements most motorcycle gear, making them a versatile choice for riders who value both function and fashion. Overall, the ILM Motorcycle Shoes combine safety, comfort, and durability, making them a smart investment for serious motorcycle riders.
 
-## <a href="https://www.amazon.com/dp/B013HGKMZG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Harley-davidson Men's Nathan Leather Motorcycle Casual Sneaker</a>
+## <a href="https://www.amazon.com/dp/B013HGKMZG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Harley-davidson Men's Nathan Leather Motorcycle Casual Sneaker</a>
 
 
-<a href="https://www.amazon.com/dp/B013HGKMZG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Harley-Davidson Men's Nathan Leather Motorcycle Casual Sneaker Vulcanized, Black, 13" src="https://m.media-amazon.com/images/I/410YzOMeBqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B013HGKMZG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Harley-Davidson Men's Nathan Leather Motorcycle Casual Sneaker Vulcanized, Black, 13" src="https://m.media-amazon.com/images/I/410YzOMeBqL._SL500_.jpg"/></a>
 
 
 The **Harley-Davidson Men's Nathan Leather Motorcycle Casual Sneaker Vulcanized** in **Black**, size **13**, is ideal for motorcycle enthusiasts and casual wearers who value both style and durability. If you're someone who wants a versatile shoe that offers the ruggedness of motorcycle footwear with the comfort of a casual sneaker, this product is designed for you. It perfectly suits riders looking for reliable foot protection without compromising on everyday wearability.
@@ -253,10 +253,10 @@ Featuring a robust **leather upper**, the Nathan Leather Motorcycle Sneaker offe
 
 Additionally, the lightweight yet sturdy construction allows for comfortable long-term use without sacrificing safety. The sneaker's dimensions—5.0 inches in height, 11.5 inches in width, and 13.5 inches in length—offer a snug fit that supports foot stability. Overall, this shoe blends functional motorcycle features with casual sneaker comfort, making it a versatile addition to any rider’s wardrobe.
 
-## <a href="https://www.amazon.com/dp/B00FA58ZB6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Harley-davidson Men's Beau Leather Motorcycle Casual Wedge Boot</a>
+## <a href="https://www.amazon.com/dp/B00FA58ZB6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Harley-davidson Men's Beau Leather Motorcycle Casual Wedge Boot</a>
 
 
-<a href="https://www.amazon.com/dp/B00FA58ZB6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Harley-Davidson Men's Beau Leather Motorcycle Casual Wedge Boot, Brown, 11" src="https://m.media-amazon.com/images/I/41YVqGM-BxL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00FA58ZB6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Harley-Davidson Men's Beau Leather Motorcycle Casual Wedge Boot, Brown, 11" src="https://m.media-amazon.com/images/I/41YVqGM-BxL._SL500_.jpg"/></a>
 
 
 The **Harley-Davidson Men's Beau Leather Motorcycle Casual Wedge Boot** is the perfect choice for motorcycle enthusiasts who value both style and function. These boots are ideal for riders seeking a blend of casual wear and reliable motorcycle gear. If you appreciate the iconic **Harley-Davidson brand** and want a boot that offers comfort and durability for everyday use, these are the boots for you.

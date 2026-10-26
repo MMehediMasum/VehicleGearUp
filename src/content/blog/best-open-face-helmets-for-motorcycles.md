@@ -23,10 +23,10 @@ Riders enjoy better airflow and a wider view compared to full-face helmets. Popu
 
 
 
-## <a href="https://www.amazon.com/dp/B0744CGRCS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ilm Half Helmet Motorcycle Open Face Sun Visor Quick Release Buckle Dot Approved</a>
+## <a href="https://www.amazon.com/dp/B0744CGRCS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ilm Half Helmet Motorcycle Open Face Sun Visor Quick Release Buckle Dot Approved</a>
 
 
-<a href="https://www.amazon.com/dp/B0744CGRCS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ILM Half Helmet Motorcycle Open Face Sun Visor Quick Release Buckle DOT Approved Cycling Motocross Suits Men Women Model-205V (L, Matt Black)" src="https://m.media-amazon.com/images/I/41V+BXZeezS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0744CGRCS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ILM Half Helmet Motorcycle Open Face Sun Visor Quick Release Buckle DOT Approved Cycling Motocross Suits Men Women Model-205V (L, Matt Black)" src="https://m.media-amazon.com/images/I/41V+BXZeezS._SL500_.jpg"/></a>
 
 
 The **ILM Half Helmet Motorcycle Open Face Sun Visor** is ideal for both men and women who seek a balance between protection and comfort while riding. This helmet suits riders who prefer an open-face design for better visibility and ventilation, making it perfect for casual city rides, motocross enthusiasts, and those who want a lightweight yet durable option. If you're looking for a stylish, DOT approved helmet with convenient features, this model is a great choice.
@@ -49,10 +49,10 @@ The **ILM Half Helmet** features a compact and ergonomic build with dimensions o
 
 Besides its practical features, the helmet's matte black color and minimalist style appeal to riders who value aesthetics alongside safety. Being **DOT approved**, it meets rigorous safety standards, providing peace of mind on every journey. Whether commuting through busy streets or enjoying weekend rides, this helmet combines comfort, style, and protection, making it a versatile choice for various motorcycle enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B08Y5RKKWG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cartman Motorcycle Open Face Helmet</a>
+## <a href="https://www.amazon.com/dp/B08Y5RKKWG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cartman Motorcycle Open Face Helmet</a>
 
 
-<a href="https://www.amazon.com/dp/B08Y5RKKWG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Cartman Motorcycle Open Face Helmet with Sun Visor Quick Release Buckle, DOT Approved, X-Large" src="https://m.media-amazon.com/images/I/41FoNu8fD4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08Y5RKKWG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Cartman Motorcycle Open Face Helmet with Sun Visor Quick Release Buckle, DOT Approved, X-Large" src="https://m.media-amazon.com/images/I/41FoNu8fD4L._SL500_.jpg"/></a>
 
 
 The **Cartman Motorcycle Open Face Helmet with Sun Visor** is ideal for riders who prioritize both safety and comfort during their rides. This helmet is perfect for motorcyclists who prefer an open face design for better visibility and ventilation, while still wanting reliable protection. If you are looking for a lightweight yet sturdy helmet with convenient features like a quick release buckle and a sun visor, this helmet suits your needs.
@@ -75,10 +75,10 @@ The **Cartman Motorcycle Open Face Helmet** stands out with its blend of safety 
 
 Designed with comfort in mind, this helmet is lightweight and provides ample ventilation due to its open face design, making it suitable for warm weather rides. The sleek **black finish** adds a stylish touch while remaining versatile enough to match different motorcycle styles. Overall, the Cartman helmet offers a practical and reliable option for riders seeking a balance between protection, comfort, and style.
 
-## <a href="https://www.amazon.com/dp/B0CW36DVQG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jqf Gear Retro Motorcycle Helmets For Men Women Open Face Helmets</a>
+## <a href="https://www.amazon.com/dp/B0CW36DVQG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jqf Gear Retro Motorcycle Helmets For Men Women Open Face Helmets</a>
 
 
-<a href="https://www.amazon.com/dp/B0CW36DVQG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JQF Gear Retro Motorcycle Helmets for Men Women Open Face Helmets Sun Visor Quick Release Buckle MM107 DOT Approved Half Face Crusier Helmet (Matte Black, M)" src="https://m.media-amazon.com/images/I/416SJsGFtTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CW36DVQG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JQF Gear Retro Motorcycle Helmets for Men Women Open Face Helmets Sun Visor Quick Release Buckle MM107 DOT Approved Half Face Crusier Helmet (Matte Black, M)" src="https://m.media-amazon.com/images/I/416SJsGFtTL._SL500_.jpg"/></a>
 
 
 The **JQF Gear Retro Motorcycle Helmet** is ideal for both men and women who appreciate a blend of classic style and modern safety features. Perfect for riders seeking a lightweight, comfortable, and stylish open face helmet with practical additions, this helmet suits casual cruisers and daily commuters alike. Those who want a DOT-approved, reliable helmet with convenience features such as a sun visor and quick release buckle will find this model especially appealing.
@@ -101,10 +101,10 @@ The **JQF Gear Retro Motorcycle Helmet** combines vintage aesthetics with modern
 
 Additionally, the **quick release buckle** system simplifies the process of putting on and taking off the helmet, which is a valuable feature for frequent riders. The helmet’s lightweight build and snug fit provide excellent comfort over long distances, while the **DOT approval** guarantees that it meets essential safety requirements. Overall, this helmet is a smart choice for riders prioritizing safety, convenience, and a timeless look.
 
-## <a href="https://www.amazon.com/dp/B01IQV1MMO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yema Helmet Ym-627</a>
+## <a href="https://www.amazon.com/dp/B01IQV1MMO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yema Helmet Ym-627</a>
 
 
-<a href="https://www.amazon.com/dp/B01IQV1MMO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Motorcycle Open Face Helmet DOT Approved - YEMA Helmet YM-627 Motorbike Moped Jet Bobber Pilot Crash Chopper 3/4 Half Helmet with Sun Visor for Adult Men Women - Matte Black,Medium" src="https://m.media-amazon.com/images/I/41yz6JD2etL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01IQV1MMO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Motorcycle Open Face Helmet DOT Approved - YEMA Helmet YM-627 Motorbike Moped Jet Bobber Pilot Crash Chopper 3/4 Half Helmet with Sun Visor for Adult Men Women - Matte Black,Medium" src="https://m.media-amazon.com/images/I/41yz6JD2etL._SL500_.jpg"/></a>
 
 
 The **Motorcycle Open Face Helmet DOT Approved - YEMA Helmet YM-627** is ideal for riders seeking a blend of style, protection, and comfort. Perfect for motorbike, moped, and chopper enthusiasts, this helmet suits both adult men and women who prefer an open-face design with a modern aesthetic and practical features like a sun visor. If you are looking for a reliable and lightweight helmet for city rides or casual cruising, this helmet is an excellent choice.
@@ -127,10 +127,10 @@ The **YEMA Helmet YM-627** features a durable construction manufactured by Lanxi
 
 The helmet’s integrated **sun visor** is a standout feature, allowing riders to adapt quickly to changing light conditions without the need for additional eyewear. This contributes to improved safety and convenience on the road. Additionally, the open face design provides excellent ventilation, reducing heat buildup and making it comfortable for warm weather rides. Overall, the YEMA YM-627 balances safety, comfort, and style, making it a reliable option for riders who prioritize both protection and aesthetics.
 
-## <a href="https://www.amazon.com/dp/B0792P5NK3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Glx M14 Open Face Motorcycle Helmet</a>
+## <a href="https://www.amazon.com/dp/B0792P5NK3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Glx M14 Open Face Motorcycle Helmet</a>
 
 
-<a href="https://www.amazon.com/dp/B0792P5NK3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GLX M14 Open Face Motorcycle Helmet - Matte Black, Large - DOT Approved" src="https://m.media-amazon.com/images/I/41lYOmWlYQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0792P5NK3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GLX M14 Open Face Motorcycle Helmet - Matte Black, Large - DOT Approved" src="https://m.media-amazon.com/images/I/41lYOmWlYQL._SL500_.jpg"/></a>
 
 
 The **GLX M14 Open Face Motorcycle Helmet** in **Matte Black** is ideal for riders who prioritize a balance between protection, comfort, and style. This **DOT Approved** helmet is perfect for motorcycle enthusiasts seeking a lightweight and durable option without the bulk of a full-face helmet, making it especially suitable for urban commuters and casual weekend riders.
@@ -153,10 +153,10 @@ The **GLX M14** helmet stands out with its combination of safety and comfort. It
 
 Designed for ease of use, the open face style enhances peripheral vision and airflow, keeping the rider cool and aware of their surroundings. While it lacks a built-in visor, this helmet pairs well with separate goggles or sunglasses, allowing riders to customize their level of eye protection. Overall, the **GLX M14 Open Face Motorcycle Helmet** offers a practical and stylish solution for riders who want dependable protection without sacrificing comfort or aesthetic appeal.
 
-## <a href="https://www.amazon.com/dp/B0B8RWTDL1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">German Style Motorcycle Half Helmet Open Face Adult Men Women Dot Approved Retro Helmet</a>
+## <a href="https://www.amazon.com/dp/B0B8RWTDL1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">German Style Motorcycle Half Helmet Open Face Adult Men Women Dot Approved Retro Helmet</a>
 
 
-<a href="https://www.amazon.com/dp/B0B8RWTDL1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="German Style Motorcycle Half Helmet Open Face Adult Men Women DOT Approved Retro Helmet，Matte Black (Large)" src="https://m.media-amazon.com/images/I/31Db3AcCHRL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B8RWTDL1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="German Style Motorcycle Half Helmet Open Face Adult Men Women DOT Approved Retro Helmet，Matte Black (Large)" src="https://m.media-amazon.com/images/I/31Db3AcCHRL._SL500_.jpg"/></a>
 
 
 The **German Style Motorcycle Half Helmet Open Face** is ideal for adult men and women who value both safety and style during their rides. Perfect for riders who prefer a lightweight, comfortable helmet with a retro aesthetic, this helmet suits those who often ride in urban environments or enjoy casual cruising. If you want a helmet that offers essential protection without the bulk of a full-face design, this **DOT approved** helmet is a great choice.
@@ -179,10 +179,10 @@ The **German Style Motorcycle Half Helmet** stands out for its blend of classic 
 
 Safety is a key feature with this helmet, as it meets **DOT approval** standards, ensuring it provides essential protection for everyday riding. While it lacks the full coverage of a full-face helmet, its retro design appeals to those who prioritize comfort and visibility without sacrificing safety. This helmet is particularly beneficial for urban riders and those taking leisurely rides, offering an ideal balance between protection and freedom.
 
-## <a href="https://www.amazon.com/dp/B08218M5CP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ilm Open Face Motorcycle 3/4 Half Helmet</a>
+## <a href="https://www.amazon.com/dp/B08218M5CP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ilm Open Face Motorcycle 3/4 Half Helmet</a>
 
 
-<a href="https://www.amazon.com/dp/B08218M5CP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ILM Open Face Motorcycle 3/4 Half Helmet for Dirt Bike Moped ATV UTV Motocross Cruiser Scooter DOT Model 726X (Matte Black,L)" src="https://m.media-amazon.com/images/I/41um9bqeN-S._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08218M5CP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ILM Open Face Motorcycle 3/4 Half Helmet for Dirt Bike Moped ATV UTV Motocross Cruiser Scooter DOT Model 726X (Matte Black,L)" src="https://m.media-amazon.com/images/I/41um9bqeN-S._SL500_.jpg"/></a>
 
 
 The **ILM Open Face Motorcycle 3/4 Half Helmet** is an ideal choice for **motorcycle enthusiasts** who value both **style** and **safety**. This helmet is perfect for those who frequently ride **dirt bikes**, **mopeds**, **ATVs**, **UTVs**, and **cruisers**. If you prioritize **comfort** and **aerodynamics** while riding, this helmet is tailored for you.
@@ -202,10 +202,10 @@ The **ILM Open Face Motorcycle Helmet** features a **lightweight design** that w
 
 Moreover, the helmet's **matte black finish** is not only visually appealing but also practical, as it helps in reducing glare under bright sunlight. The helmet's **open face design** provides a wide field of view, which is crucial for increased **situational awareness** on busy roads. This design makes it an excellent choice for riders who enjoy the feeling of wind on their face while maintaining a high level of protection.
 
-## <a href="https://www.amazon.com/dp/B0C5HDXCGH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yesmotor Vintage Motorcycle Half Helmet</a>
+## <a href="https://www.amazon.com/dp/B0C5HDXCGH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yesmotor Vintage Motorcycle Half Helmet</a>
 
 
-<a href="https://www.amazon.com/dp/B0C5HDXCGH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yesmotor Vintage Motorcycle Half Helmet - Lightweight Low Profile Open-Face Half-Face Helmet – DOT Approved (Matte Black, L)" src="https://m.media-amazon.com/images/I/413TIPEiUtL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C5HDXCGH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yesmotor Vintage Motorcycle Half Helmet - Lightweight Low Profile Open-Face Half-Face Helmet – DOT Approved (Matte Black, L)" src="https://m.media-amazon.com/images/I/413TIPEiUtL._SL500_.jpg"/></a>
 
 
 The **Yesmotor Vintage Motorcycle Half Helmet** is perfect for those who value a combination of **style, safety, and comfort** while riding. Ideal for vintage motorcycle enthusiasts, this helmet is designed for riders who appreciate a **classic look** with modern safety standards. Whether you're a seasoned rider or a beginner, if you prioritize a **lightweight and low-profile design**, this helmet is an excellent choice.
@@ -226,10 +226,10 @@ The **Yesmotor Vintage Motorcycle Half Helmet** stands out due to its **lightwei
 
 Being **DOT Approved**, this helmet ensures that safety is not compromised, providing peace of mind for riders who prioritize protection. The **Matte Black** color not only adds to the vintage charm but also complements a wide range of motorcycle styles and rider gear. The helmet’s open-face design is perfect for those who enjoy an unobstructed view and the feeling of the wind while riding, although it may require additional face protection accessories in certain conditions.
 
-## <a href="https://www.amazon.com/dp/B00BDJ1IHQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bell Mag-9 Open Face Motorcycle Helmet</a>
+## <a href="https://www.amazon.com/dp/B00BDJ1IHQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bell Mag-9 Open Face Motorcycle Helmet</a>
 
 
-<a href="https://www.amazon.com/dp/B00BDJ1IHQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bell Mag-9 Open Face Motorcycle Helmet (Solid Gloss Titanium, Large)" src="https://m.media-amazon.com/images/I/51LP6kh1sSL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00BDJ1IHQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bell Mag-9 Open Face Motorcycle Helmet (Solid Gloss Titanium, Large)" src="https://m.media-amazon.com/images/I/51LP6kh1sSL._SL500_.jpg"/></a>
 
 
 The **Bell Mag-9 Open Face Motorcycle Helmet** in **Solid Gloss Titanium** is ideal for riders who prioritize style, comfort, and safety in an open-face design. This helmet is perfect for motorcyclists who enjoy city cruising, vintage bike enthusiasts, and those seeking a lightweight yet durable headgear that provides excellent protection without compromising on aesthetics.
@@ -252,10 +252,10 @@ The **Bell Mag-9 Open Face Motorcycle Helmet** combines a sleek design with prac
 
 With a focus on comfort and usability, this helmet offers good ventilation to keep riders cool during warmer weather. The compact dimensions contribute to a secure and comfortable fit, while the trusted **BELL** brand ensures that safety standards are met. Overall, the Bell Mag-9 is a great choice for riders seeking a balance between style, comfort, and protection in an open-face helmet.
 
-## <a href="https://www.amazon.com/dp/B01LXAOQ4Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ilm Motorcycle Dual Visor Flip Up Modular Full Face Helmet</a>
+## <a href="https://www.amazon.com/dp/B01LXAOQ4Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ilm Motorcycle Dual Visor Flip Up Modular Full Face Helmet</a>
 
 
-<a href="https://www.amazon.com/dp/B01LXAOQ4Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ILM Motorcycle Dual Visor Flip up Modular Full Face Helmet DOT 6 Colors Model 902 (L, Matte Black)" src="https://m.media-amazon.com/images/I/51nzJKnWcfL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01LXAOQ4Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ILM Motorcycle Dual Visor Flip up Modular Full Face Helmet DOT 6 Colors Model 902 (L, Matte Black)" src="https://m.media-amazon.com/images/I/51nzJKnWcfL._SL500_.jpg"/></a>
 
 
 The **ILM Motorcycle Dual Visor Flip up Modular Full Face Helmet** in **Matte Black** is ideal for motorcyclists who seek both versatility and protection in a single helmet. Perfect for riders who commute daily or enjoy long road trips, this helmet offers the convenience of a flip-up modular design combined with the safety of a full-face helmet, making it suitable for those who want flexibility without compromising on security.

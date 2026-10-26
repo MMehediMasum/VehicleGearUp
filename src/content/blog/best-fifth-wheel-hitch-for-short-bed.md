@@ -23,10 +23,10 @@ Each hitch fits specific towing needs and truck sizes. Understanding these optio
 
 
 
-## <a href="https://www.amazon.com/dp/B0BMGRPC4Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Curt 16564 S20 Sliding 5th Wheel Hitch</a>
+## <a href="https://www.amazon.com/dp/B0BMGRPC4Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Curt 16564 S20 Sliding 5th Wheel Hitch</a>
 
 
-<a href="https://www.amazon.com/dp/B0BMGRPC4Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CURT 16564 S20 Sliding 5th Wheel Hitch for Short Bed Trucks, 20,000 lbs (Head Required)" src="https://m.media-amazon.com/images/I/413aNFmBbyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BMGRPC4Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CURT 16564 S20 Sliding 5th Wheel Hitch for Short Bed Trucks, 20,000 lbs (Head Required)" src="https://m.media-amazon.com/images/I/413aNFmBbyL._SL500_.jpg"/></a>
 
 
 The **CURT 16564 S20 Sliding 5th Wheel Hitch** is ideal for owners of **short bed trucks** who require a reliable and sturdy hitch for heavy-duty towing. This product is perfect for those who frequently haul large trailers or RVs and need a hitch that can handle significant weight while providing the flexibility to slide for tight turns and maneuvering in limited space.
@@ -48,10 +48,10 @@ The **CURT 16564 S20 Sliding 5th Wheel Hitch** is engineered to provide exceptio
 
 Constructed with high-quality materials by **CURT**, this hitch ensures long-lasting durability and reliable strength. Its compact size fits neatly into the truck bed without consuming excessive space, allowing for easier installation and removal. Overall, this hitch combines robust towing capacity with smart design features that cater specifically to the needs of short bed truck users seeking both power and flexibility in their towing setup.
 
-## <a href="https://www.amazon.com/dp/B0BMGS8DX9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Curt 16574 S25 Sliding 5th Wheel Hitch</a>
+## <a href="https://www.amazon.com/dp/B0BMGS8DX9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Curt 16574 S25 Sliding 5th Wheel Hitch</a>
 
 
-<a href="https://www.amazon.com/dp/B0BMGS8DX9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CURT 16574 S25 Sliding 5th Wheel Hitch for Short Bed Trucks, 25,000 lbs (Head Required)" src="https://m.media-amazon.com/images/I/41KCial9hZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BMGS8DX9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CURT 16574 S25 Sliding 5th Wheel Hitch for Short Bed Trucks, 25,000 lbs (Head Required)" src="https://m.media-amazon.com/images/I/41KCial9hZL._SL500_.jpg"/></a>
 
 
 The **CURT 16574 S25 Sliding 5th Wheel Hitch** is ideal for owners of **short bed trucks** who require a reliable and adjustable towing solution. If you frequently tow heavy trailers or RVs and need a hitch that can slide to provide extra cab clearance, this product is designed to meet those specific needs. Its **25,000 lbs towing capacity** makes it perfect for professional haulers and recreational users alike.
@@ -74,10 +74,10 @@ The **CURT 16574 S25 Sliding 5th Wheel Hitch** is engineered with precision to o
 
 Constructed by **CURT**, a trusted name in towing accessories, this hitch boasts robust materials and a sturdy design capable of handling up to **25,000 lbs**. Its dimensions are optimized to fit neatly within short truck beds without sacrificing strength or stability. Users will appreciate how its manageable weight facilitates easier installation and removal, making it a versatile choice for those who need dependable towing performance with flexibility.
 
-## <a href="https://www.amazon.com/dp/B005CC0K9W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Curt 16560 5th Wheel Roller For Short Bed Trucks</a>
+## <a href="https://www.amazon.com/dp/B005CC0K9W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Curt 16560 5th Wheel Roller For Short Bed Trucks</a>
 
 
-<a href="https://www.amazon.com/dp/B005CC0K9W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CURT 16560 R16 5th Wheel Roller for Short Bed Trucks, 16,000 lbs" src="https://m.media-amazon.com/images/I/416sF8VI6vL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B005CC0K9W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CURT 16560 R16 5th Wheel Roller for Short Bed Trucks, 16,000 lbs" src="https://m.media-amazon.com/images/I/416sF8VI6vL._SL500_.jpg"/></a>
 
 
 The **CURT 16560 R16 5th Wheel Roller** is ideal for truck owners who frequently tow heavy loads with their **short bed trucks**. If you're looking to improve your towing experience by reducing friction and enhancing maneuverability, this product is perfect for you. It is especially suited for those hauling trailers with a gross weight up to **16,000 lbs**, seeking a durable and reliable solution to protect their truck and trailer connection.
@@ -100,10 +100,10 @@ The **CURT 16560 R16 5th Wheel Roller** features a durable carbide black powder 
 
 Additionally, the roller's dimensions and weight are optimized to provide stability and ease of movement, which helps in tight turns and uneven terrains. By minimizing friction between the trailer and the truck bed, this roller enhances maneuverability and reduces damage to your truck's bed. Overall, it is a valuable investment for anyone who prioritizes safety, durability, and efficiency in their towing setup.
 
-## <a href="https://www.amazon.com/dp/B0051NNAQC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Curt 16550 R20 5th Wheel Roller</a>
+## <a href="https://www.amazon.com/dp/B0051NNAQC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Curt 16550 R20 5th Wheel Roller</a>
 
 
-<a href="https://www.amazon.com/dp/B0051NNAQC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CURT 16550 R20 5th Wheel Roller for Short Bed Trucks, 20,000 lbs" src="https://m.media-amazon.com/images/I/41U8Ds9dT3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0051NNAQC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CURT 16550 R20 5th Wheel Roller for Short Bed Trucks, 20,000 lbs" src="https://m.media-amazon.com/images/I/41U8Ds9dT3L._SL500_.jpg"/></a>
 
 
 The **CURT 16550 R20 5th Wheel Roller** is an excellent choice for truck owners with **short bed trucks** who need a reliable and efficient towing solution. This product is ideal for individuals who frequently transport heavy loads, such as RV enthusiasts, contractors, or anyone needing to tow up to **20,000 lbs** safely and securely.
@@ -124,10 +124,10 @@ The **CURT 16550 R20 5th Wheel Roller** stands out with its robust construction 
 
 Additionally, the **dimensions** of the roller - with a height of **7.0 inches**, width of **18.0 inches**, and length of **34.0 inches** - make it a compact yet powerful tool for short bed trucks. The roller's design facilitates smooth and easy maneuvering, which is crucial for navigating tight spots or making sharp turns. For anyone needing a reliable towing accessory, this roller offers both safety and performance benefits.
 
-## <a href="https://www.amazon.com/dp/B0BMW11X4B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Curt 16531 5th Wheel Slider Hitch</a>
+## <a href="https://www.amazon.com/dp/B0BMW11X4B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Curt 16531 5th Wheel Slider Hitch</a>
 
 
-<a href="https://www.amazon.com/dp/B0BMW11X4B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CURT 16531 A20 5th Wheel Slider Hitch for Short Bed Trucks, 20,000 lbs" src="https://m.media-amazon.com/images/I/41a0dY1t0WL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BMW11X4B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CURT 16531 A20 5th Wheel Slider Hitch for Short Bed Trucks, 20,000 lbs" src="https://m.media-amazon.com/images/I/41a0dY1t0WL._SL500_.jpg"/></a>
 
 
 The **CURT 16531 A20 5th Wheel Slider Hitch** is ideal for truck owners with **short bed trucks** who require a reliable and heavy-duty towing solution. This product is perfect for those who frequently tow large trailers or campers and need a hitch with a high weight capacity and adjustable sliding feature to enhance maneuverability and prevent cab contact during sharp turns.
@@ -150,10 +150,10 @@ The **CURT 16531 A20 5th Wheel Slider Hitch** boasts a robust design tailored fo
 
 Additionally, the precise dimensions and weight distribution contribute to its stability and strength. Users benefit from the peace of mind knowing their trailer is securely attached, reducing sway and enhancing control. While the hitch requires some effort to install and maintain, its features and durability make it a valuable investment for those who prioritize safety and performance in towing.
 
-## <a href="https://www.amazon.com/dp/B0BMW3FPDL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Curt 16511 5th Wheel Slider Hitch</a>
+## <a href="https://www.amazon.com/dp/B0BMW3FPDL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Curt 16511 5th Wheel Slider Hitch</a>
 
 
-<a href="https://www.amazon.com/dp/B0BMW3FPDL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CURT 16511 E16 5th Wheel Slider Hitch for Short Bed Trucks, 16,000 lbs" src="https://m.media-amazon.com/images/I/41Uwww7qK+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BMW3FPDL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CURT 16511 E16 5th Wheel Slider Hitch for Short Bed Trucks, 16,000 lbs" src="https://m.media-amazon.com/images/I/41Uwww7qK+L._SL500_.jpg"/></a>
 
 
 The **CURT 16511 E16 5th Wheel Slider Hitch** is ideal for owners of **short bed trucks** who require a reliable and heavy-duty towing solution. This hitch is perfect for those who frequently tow large trailers or RVs with a maximum capacity of **16,000 lbs**, offering enhanced maneuverability and safety on the road. If you need a durable, easy-to-use hitch designed specifically for tight turning radii and optimal clearance, this product is an excellent choice.
@@ -176,10 +176,10 @@ The **CURT 16511 E16 5th Wheel Slider Hitch** features a robust slider mechanism
 
 Additionally, the hitch's dimensions and weight reflect its strong construction, designed to withstand rigorous towing demands. Its compatibility with a wide range of trailers makes it a versatile choice for users who need dependable performance on long trips or daily hauling tasks. Overall, this hitch enhances the towing experience by combining strength, convenience, and adaptability tailored to short bed truck owners.
 
-## <a href="https://www.amazon.com/dp/B0BMW45TH2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Curt 16053 5th Wheel Slider Hitch With Base Rails</a>
+## <a href="https://www.amazon.com/dp/B0BMW45TH2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Curt 16053 5th Wheel Slider Hitch With Base Rails</a>
 
 
-<a href="https://www.amazon.com/dp/B0BMW45TH2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CURT 16053 A16 5th Wheel Slider Hitch with Base Rails for Short Bed Trucks, 16,000 lbs" src="https://m.media-amazon.com/images/I/410RKKC122L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BMW45TH2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CURT 16053 A16 5th Wheel Slider Hitch with Base Rails for Short Bed Trucks, 16,000 lbs" src="https://m.media-amazon.com/images/I/410RKKC122L._SL500_.jpg"/></a>
 
 
 The **CURT 16053 A16 5th Wheel Slider Hitch with Base Rails** is ideal for truck owners with **short bed trucks** who require a reliable and heavy-duty towing solution. If you frequently tow large trailers or RVs weighing up to **16,000 lbs** and need a hitch that offers flexibility and enhanced turning clearance, this product is a perfect fit. It's especially suited for those looking to maximize maneuverability without compromising on strength and stability.
@@ -202,10 +202,10 @@ The **CURT 16053 A16 5th Wheel Slider Hitch** offers a robust towing solution sp
 
 Constructed with high-quality materials and backed by the trusted **CURT** brand, this hitch ensures durability and reliable performance under heavy loads. The included base rails simplify installation and provide a secure attachment point, enhancing overall towing stability. With dimensions optimized for short bed trucks, the hitch fits securely without sacrificing bed space, making it a practical choice for serious towing enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B0BMW1YG5F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Curt 16651 5th Wheel Slider Hitch</a>
+## <a href="https://www.amazon.com/dp/B0BMW1YG5F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Curt 16651 5th Wheel Slider Hitch</a>
 
 
-<a href="https://www.amazon.com/dp/B0BMW1YG5F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CURT 16651 A25 5th Wheel Slider Hitch with Base Rails for Short Bed Trucks, 25,000 lbs" src="https://m.media-amazon.com/images/I/41j27Rsn75L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BMW1YG5F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CURT 16651 A25 5th Wheel Slider Hitch with Base Rails for Short Bed Trucks, 25,000 lbs" src="https://m.media-amazon.com/images/I/41j27Rsn75L._SL500_.jpg"/></a>
 
 
 The **CURT 16651 A25 5th Wheel Slider Hitch with Base Rails** is ideal for truck owners with **short bed trucks** who need a reliable and robust towing solution. This hitch is perfect for those who frequently tow heavy loads, such as campers, trailers, or equipment, and require a secure and adjustable connection to ensure safe transport. If you’re looking for a durable hitch that offers flexibility and strong performance, this product is a great choice.
@@ -228,10 +228,10 @@ The **CURT 16651 A25 5th Wheel Slider Hitch** stands out with its exceptional to
 
 Additionally, the inclusion of **base rails** simplifies the installation process while adding structural support to the hitch setup. The solid construction from **CURT**, a reputable manufacturer, guarantees durability and reliability on the road. Users will appreciate the combination of strength, adjustability, and compatibility that this hitch offers, making it an excellent investment for serious towing needs.
 
-## <a href="https://www.amazon.com/dp/B0BMW1V127?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Curt 16551 5th Wheel Slider Hitch</a>
+## <a href="https://www.amazon.com/dp/B0BMW1V127?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Curt 16551 5th Wheel Slider Hitch</a>
 
 
-<a href="https://www.amazon.com/dp/B0BMW1V127?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CURT 16551 A25 5th Wheel Slider Hitch for Short Bed Trucks, 25,000 lbs" src="https://m.media-amazon.com/images/I/41Un+Zk9hBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BMW1V127?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CURT 16551 A25 5th Wheel Slider Hitch for Short Bed Trucks, 25,000 lbs" src="https://m.media-amazon.com/images/I/41Un+Zk9hBL._SL500_.jpg"/></a>
 
 
 The **CURT 16551 A25 5th Wheel Slider Hitch** is ideal for truck owners who have **short bed trucks** and require a reliable, heavy-duty towing solution. If you frequently tow large trailers or RVs and need a hitch that can handle up to **25,000 lbs** while providing the flexibility to slide for tight turns, this product is designed for you. It’s perfect for both professional haulers and recreational users who prioritize durability and maneuverability.
@@ -254,10 +254,10 @@ The **CURT 16551 A25 5th Wheel Slider Hitch** offers an exceptional combination 
 
 Designed with precision, the dimensions of the hitch ensure it fits securely while maintaining a low profile. This helps in maintaining truck bed space and allows for easier installation and removal. With **CURT’s reputable manufacturing standards**, users can trust the durability and performance of this hitch for both occasional and frequent towing needs. Its combination of strength, functionality, and adaptability makes it an excellent investment for anyone looking to maximize their towing capabilities with a short bed truck.
 
-## <a href="https://www.amazon.com/dp/B000KC1WEG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Curt 16115 E16 5th Wheel Hitch</a>
+## <a href="https://www.amazon.com/dp/B000KC1WEG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Curt 16115 E16 5th Wheel Hitch</a>
 
 
-<a href="https://www.amazon.com/dp/B000KC1WEG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CURT 16115 E16 5th Wheel Hitch, 16,000 lbs" src="https://m.media-amazon.com/images/I/413DEjQausL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000KC1WEG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CURT 16115 E16 5th Wheel Hitch, 16,000 lbs" src="https://m.media-amazon.com/images/I/413DEjQausL._SL500_.jpg"/></a>
 
 
 The **CURT 16115 E16 5th Wheel Hitch** is ideal for truck owners who frequently tow heavy trailers, such as RV enthusiasts and professional haulers. If you require a reliable, high-capacity hitch with a strong weight rating, this item is designed to meet your demanding towing needs with ease and safety.

@@ -22,10 +22,10 @@ For older models, the Shinko 733 and 734 combo fits well and offers solid value.
 
 
 
-## <a href="https://www.amazon.com/dp/B088MJ44X1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shinko 733 &amp; 734 Tire Combo Kit For Honda Gl1500 Goldwing 1500</a>
+## <a href="https://www.amazon.com/dp/B088MJ44X1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shinko 733 &amp; 734 Tire Combo Kit For Honda Gl1500 Goldwing 1500</a>
 
 
-<a href="https://www.amazon.com/dp/B088MJ44X1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Shinko 733 130/70-18 front &amp; 734 160/80-16 rear tire combo kit Compatible/Replacement for 1988-2000 Honda GL1500 Goldwing 1500" src="https://m.media-amazon.com/images/I/41lFWfd7PwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B088MJ44X1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Shinko 733 130/70-18 front &amp; 734 160/80-16 rear tire combo kit Compatible/Replacement for 1988-2000 Honda GL1500 Goldwing 1500" src="https://m.media-amazon.com/images/I/41lFWfd7PwL._SL500_.jpg"/></a>
 
 
 The **Shinko 733 130/70-18 front & 734 160/80-16 rear tire combo kit** is ideal for owners of the **1988-2000 Honda GL1500 Goldwing 1500** seeking reliable and compatible tire replacements. This combo kit is perfect for riders who prioritize safety, durability, and performance without compromising on quality or fit. Whether you’re a daily commuter or a long-distance tourer, these tires offer a dependable solution tailored specifically to your bike’s specifications.
@@ -47,10 +47,10 @@ The **Shinko 733/734 tire combo kit** offers superior grip and stability, specif
 
 Additionally, the robust materials used in these tires contribute to improved wear resistance, reducing the frequency of replacements and maintenance efforts. Choosing this combo kit ensures that your motorcycle maintains optimal performance and safety standards, while the trusted **Shinko** brand guarantees quality manufacturing processes. This makes the combo kit an excellent investment for anyone looking to keep their **Honda GL1500 Goldwing 1500** running smoothly and safely on the road.
 
-## <a href="https://www.amazon.com/dp/B005J8WU88?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Bridgestone Excedra G704r Cruiser Rear Motorcycle Tire </a>
+## <a href="https://www.amazon.com/dp/B005J8WU88?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Bridgestone Excedra G704r Cruiser Rear Motorcycle Tire </a>
 
 
-<a href="https://www.amazon.com/dp/B005J8WU88?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bridgestone Excedra G704R Cruiser Rear Motorcycle Tire 180/60-16" src="https://m.media-amazon.com/images/I/41PVVlUUB6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B005J8WU88?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bridgestone Excedra G704R Cruiser Rear Motorcycle Tire 180/60-16" src="https://m.media-amazon.com/images/I/41PVVlUUB6L._SL500_.jpg"/></a>
 
 
 The **Bridgestone Excedra G704R Cruiser Rear Motorcycle Tire 180/60-16** is ideal for cruiser motorcycle riders who seek a reliable and durable tire that enhances both performance and safety. This tire is perfect for those who enjoy long rides on highways and city streets, looking for a balance between comfort and grip.
@@ -72,10 +72,10 @@ The **Bridgestone Excedra G704R** tire features a robust design tailored for cru
 
 With a weight of 19.0 pounds and a height of 7.1 inches, the tire maintains a balance between strength and maneuverability. The width of 24.5 inches enhances road contact, contributing to better control and stability. Overall, the **Bridgestone Excedra G704R** offers a combination of comfort, durability, and performance, making it a valuable investment for cruiser riders who demand quality and reliability from their motorcycle tires.
 
-## <a href="https://www.amazon.com/dp/B078WFXLB1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bridgestone G709 Exedra Touring Front Motorcycle Tire</a>
+## <a href="https://www.amazon.com/dp/B078WFXLB1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bridgestone G709 Exedra Touring Front Motorcycle Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B078WFXLB1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bridgestone G709 Exedra Touring Front Motorcycle Tire 130/70R-18 (63H) for HONDA Gold Wing GL1800 2001-2008" src="https://m.media-amazon.com/images/I/31TFGhduC5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B078WFXLB1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bridgestone G709 Exedra Touring Front Motorcycle Tire 130/70R-18 (63H) for HONDA Gold Wing GL1800 2001-2008" src="https://m.media-amazon.com/images/I/31TFGhduC5L._SL500_.jpg"/></a>
 
 
 The **Bridgestone G709 Exedra Touring Front Motorcycle Tire 130/70R-18 (63H)** is ideal for riders who own a **HONDA Gold Wing GL1800 (2001-2008)** and are seeking a reliable, high-performance tire specifically designed for touring. This tire is perfect for motorcyclists who prioritize stability, longevity, and enhanced grip during long-distance rides.
@@ -97,10 +97,10 @@ The **Bridgestone G709 Exedra Touring Front Motorcycle Tire** combines advanced 
 
 Riders will benefit from the tire’s ability to maintain stability during cornering and braking, especially on highways and winding roads. The specific sizing and load rating of **130/70R-18 (63H)** make it a perfect match for the **HONDA Gold Wing GL1800 (2001-2008)**, ensuring optimal performance and comfort. As a product from the trusted **Bridgestone** brand, this tire delivers reliable quality backed by extensive motorcycle tire expertise.
 
-## <a href="https://www.amazon.com/dp/B000GUYLG8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bridgestone Firestone G704 180/60r16</a>
+## <a href="https://www.amazon.com/dp/B000GUYLG8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bridgestone Firestone G704 180/60r16</a>
 
 
-<a href="https://www.amazon.com/dp/B000GUYLG8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bridgestone/firestone G704 180/60r16 Gl1800 Rear Honda Gl 1800 2001 Touring Pn:070627" src="https://m.media-amazon.com/images/I/41b3yFdqZFL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000GUYLG8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bridgestone/firestone G704 180/60r16 Gl1800 Rear Honda Gl 1800 2001 Touring Pn:070627" src="https://m.media-amazon.com/images/I/41b3yFdqZFL._SL500_.jpg"/></a>
 
 
 The **Bridgestone/Firestone G704 180/60R16** is the perfect choice for **Honda GL 1800** touring enthusiasts. Designed specifically for the **2001 model**, this tire is ideal for riders who prioritize **safety**, **performance**, and **comfort** on long-distance journeys. If you're someone who regularly embarks on touring adventures and seeks a reliable and durable tire, this is the product for you.
@@ -120,10 +120,10 @@ One of the standout features of the **Bridgestone G704** is its **superior grip*
 
 Additionally, this tire is engineered to provide a **smooth and comfortable ride**. The design is specifically tailored for the **Honda GL 1800**, ensuring that the motorcycle's performance is not only maintained but enhanced. Riders will appreciate the **reduced road noise** and **improved stability**, making every journey more enjoyable and less fatiguing, which is crucial for touring riders.
 
-## <a href="https://www.amazon.com/dp/B07K8R48R2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pirelli Angel St Motorcycle Tires</a>
+## <a href="https://www.amazon.com/dp/B07K8R48R2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pirelli Angel St Motorcycle Tires</a>
 
 
-<a href="https://www.amazon.com/dp/B07K8R48R2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pirelli Angel ST 120/70ZR17 (58W) Front &amp; 180/55ZR17 (73W) Rear Motorcycle Tires – High-Performance Sport Touring Tire for Enhanced Grip, Durability &amp; Stability – Fits Sport &amp; Touring Bikes" src="https://m.media-amazon.com/images/I/41SiYUGeO6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07K8R48R2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pirelli Angel ST 120/70ZR17 (58W) Front &amp; 180/55ZR17 (73W) Rear Motorcycle Tires – High-Performance Sport Touring Tire for Enhanced Grip, Durability &amp; Stability – Fits Sport &amp; Touring Bikes" src="https://m.media-amazon.com/images/I/41SiYUGeO6L._SL500_.jpg"/></a>
 
 
 The **Pirelli Angel ST 120/70ZR17 (58W) Front & 180/55ZR17 (73W) Rear Motorcycle Tires** are ideal for riders who own **sport** or **touring bikes** and seek a perfect balance between performance, durability, and stability. If you are a motorcyclist who enjoys long-distance rides, spirited cornering, and demands reliable traction in various conditions, these high-performance sport touring tires are designed specifically for you.
@@ -146,10 +146,10 @@ The **Pirelli Angel ST tires** feature an advanced tread pattern that optimizes 
 
 These tires also boast a robust carcass construction that enhances stability, especially at high speeds and during aggressive cornering maneuvers. This design not only improves rider confidence but also contributes to a smoother, more controlled ride. With dimensions tailored for sport and touring motorcycles, the Pirelli Angel ST offers a seamless fit and an upgraded riding experience for enthusiasts seeking reliability and enhanced road performance.
 
-## <a href="https://www.amazon.com/dp/B078WH42NB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bridgestone Exedra Max Front Motorcycle Tire</a>
+## <a href="https://www.amazon.com/dp/B078WH42NB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bridgestone Exedra Max Front Motorcycle Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B078WH42NB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="130/70ZR-18 (63W) Bridgestone Exedra Max Front Motorcycle Tire for Honda Gold Wing GL1800 2001-2008" src="https://m.media-amazon.com/images/I/31VEPQUgsOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B078WH42NB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="130/70ZR-18 (63W) Bridgestone Exedra Max Front Motorcycle Tire for Honda Gold Wing GL1800 2001-2008" src="https://m.media-amazon.com/images/I/31VEPQUgsOL._SL500_.jpg"/></a>
 
 
 The **130/70ZR-18 (63W) Bridgestone Exedra Max Front Motorcycle Tire** is ideal for riders of the **Honda Gold Wing GL1800 (2001-2008)** who seek a reliable, high-performance tire that offers excellent grip and durability. This tire is perfect for touring enthusiasts and daily commuters who prioritize safety, comfort, and long-lasting performance on various road conditions.
@@ -171,10 +171,10 @@ The **Bridgestone Exedra Max Front Tire** features a specialized tread pattern t
 
 Additionally, this tire is engineered specifically for the **Honda Gold Wing GL1800**, ensuring optimal compatibility and performance. The tire's construction provides superior stability during cornering and high-speed rides, which is essential for touring motorcycles that often cover long distances. Choosing this tire means investing in safety, performance, and comfort for your motorcycle adventures.
 
-## <a href="https://www.amazon.com/dp/B07CJ28R4F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop Elite 4 Rear Motorcycle Tire</a>
+## <a href="https://www.amazon.com/dp/B07CJ28R4F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop Elite 4 Rear Motorcycle Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B07CJ28R4F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="180/60R-16 (80H) Dunlop Elite 4 Rear Motorcycle Tire for Honda Gold Wing GL1800 2001-2008" src="https://m.media-amazon.com/images/I/41UDyw4GfZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07CJ28R4F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="180/60R-16 (80H) Dunlop Elite 4 Rear Motorcycle Tire for Honda Gold Wing GL1800 2001-2008" src="https://m.media-amazon.com/images/I/41UDyw4GfZL._SL500_.jpg"/></a>
 
 
 The **180/60R-16 (80H) Dunlop Elite 4 Rear Motorcycle Tire** is an excellent choice for riders of the **Honda Gold Wing GL1800 (2001-2008)** seeking enhanced performance and reliability. Ideal for touring enthusiasts who prioritize long-lasting grip and smooth handling, this tire caters to those who demand both safety and comfort on extended rides.
@@ -197,10 +197,10 @@ The **Dunlop Elite 4 Rear Tire** features advanced tread patterns that maximize 
 
 Moreover, the tire's compound is engineered to balance wear resistance with traction, ensuring consistent handling throughout its lifespan. For Honda Gold Wing GL1800 owners, this rear tire offers an ideal blend of performance and reliability, making it a smart investment for those who frequently embark on long-distance rides or enjoy spirited cornering with their touring motorcycle.
 
-## <a href="https://www.amazon.com/dp/B07CJYWJ5F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop Elite 4 Front Motorcycle Tire</a>
+## <a href="https://www.amazon.com/dp/B07CJYWJ5F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop Elite 4 Front Motorcycle Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B07CJYWJ5F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="130/70-18 (63H) Dunlop Elite 4 Front Motorcycle Tire for Honda Gold Wing GL1500SE 1990-2000" src="https://m.media-amazon.com/images/I/41wZKmi+nTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07CJYWJ5F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="130/70-18 (63H) Dunlop Elite 4 Front Motorcycle Tire for Honda Gold Wing GL1500SE 1990-2000" src="https://m.media-amazon.com/images/I/41wZKmi+nTL._SL500_.jpg"/></a>
 
 
 The **130/70-18 (63H) Dunlop Elite 4 Front Motorcycle Tire** is ideal for riders of the **Honda Gold Wing GL1500SE (1990-2000)** who seek a reliable and high-performance tire specifically designed for their motorcycle model. This tire is perfect for enthusiasts who prioritize safety, durability, and enhanced riding comfort during long-distance touring or everyday use.
@@ -223,10 +223,10 @@ The **Dunlop Elite 4 Front Motorcycle Tire** stands out for its innovative tread
 
 Additionally, the tire’s dimensions—5.5 inches in height and 25 inches in both width and length—are tailored to optimize the motorcycle’s handling dynamics. The combination of durability, performance, and design makes this tire a top choice for riders seeking to maintain their bike’s original ride quality while improving overall safety and comfort.
 
-## <a href="https://www.amazon.com/dp/B078WFX1R7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bridgestone G851 Exedra Cruiser Front Motorcycle Tire</a>
+## <a href="https://www.amazon.com/dp/B078WFX1R7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bridgestone G851 Exedra Cruiser Front Motorcycle Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B078WFX1R7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="130/70R-18 (63H) Bridgestone G851 Exedra Cruiser Front Motorcycle Tire for Honda Gold Wing F6B GL1800 2013-2016" src="https://m.media-amazon.com/images/I/41Rg0BKaSZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B078WFX1R7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="130/70R-18 (63H) Bridgestone G851 Exedra Cruiser Front Motorcycle Tire for Honda Gold Wing F6B GL1800 2013-2016" src="https://m.media-amazon.com/images/I/41Rg0BKaSZL._SL500_.jpg"/></a>
 
 
 The **130/70R-18 (63H) Bridgestone G851 Exedra Cruiser Front Motorcycle Tire** is ideal for riders who own a **Honda Gold Wing F6B GL1800 (2013-2016)** and seek a reliable, high-performance front tire. This tire is perfect for cruiser enthusiasts looking for excellent grip, stability, and durability on both city streets and long highway rides. If you prioritize safety and smooth handling on your cruiser motorcycle, this tire is a great choice.
@@ -248,10 +248,10 @@ The **Bridgestone G851 Exedra Cruiser Front Tire** features a robust design that
 
 Furthermore, the tire's compatibility with the **Honda Gold Wing F6B GL1800 (2013-2016)** ensures a perfect fit and optimized performance. Riders will benefit from improved handling characteristics, especially on long rides where stability and comfort are paramount. Trusting a reputable manufacturer like **Bridgestone** guarantees quality and safety, making this tire a smart investment for cruiser motorcycle owners.
 
-## <a href="https://www.amazon.com/dp/B00388I2U6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop D404 Front Motorcycle Tire</a>
+## <a href="https://www.amazon.com/dp/B00388I2U6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop D404 Front Motorcycle Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B00388I2U6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop D404 Front Motorcycle Tire 130/70-18 (63H) Black Wall - Fits: Honda Gold Wing Aspencade GL1500A 1991-2000" src="https://m.media-amazon.com/images/I/414vmrisYjS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00388I2U6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop D404 Front Motorcycle Tire 130/70-18 (63H) Black Wall - Fits: Honda Gold Wing Aspencade GL1500A 1991-2000" src="https://m.media-amazon.com/images/I/414vmrisYjS._SL500_.jpg"/></a>
 
 
 The **Dunlop D404 Front Motorcycle Tire 130/70-18 (63H) Black Wall** is ideal for motorcycle enthusiasts who own a **Honda Gold Wing Aspencade GL1500A (1991-2000)** and are seeking a reliable, high-performance front tire. This tire suits riders looking for enhanced grip, stability, and durability on both city roads and long highway rides.

@@ -23,10 +23,10 @@ Side zippers or laces provide easy wear and a secure fit. The boots listed here 
 
 
 
-## <a href="https://www.amazon.com/dp/B0DJM74VS6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Zeozoom Motorcycle Riding Boots</a>
+## <a href="https://www.amazon.com/dp/B0DJM74VS6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Zeozoom Motorcycle Riding Boots</a>
 
 
-<a href="https://www.amazon.com/dp/B0DJM74VS6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Zeozoom Motorcycle Riding Boots Motorcycle Leather Boots for Women and Men Protection Anti Slip Racing Sports (White, Adult, Men, 5, Numeric, US Footwear Size System, Medium)" src="https://m.media-amazon.com/images/I/41dSgNcY21L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DJM74VS6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Zeozoom Motorcycle Riding Boots Motorcycle Leather Boots for Women and Men Protection Anti Slip Racing Sports (White, Adult, Men, 5, Numeric, US Footwear Size System, Medium)" src="https://m.media-amazon.com/images/I/41dSgNcY21L._SL500_.jpg"/></a>
 
 
 The **Zeozoom Motorcycle Riding Boots** are ideal for both **men and women** who seek durable and stylish **motorcycle leather boots** for enhanced **protection** during riding. Perfect for riders who prioritize safety without compromising on comfort and design, these boots are suited for everyday commuting, racing, and sports enthusiasts looking for reliable **anti-slip** footwear in a classic **white** color.
@@ -48,10 +48,10 @@ The **Zeozoom Motorcycle Leather Boots** combine robust construction with though
 
 Beyond protection, these boots deliver comfort through their ergonomic design tailored for **medium-sized feet**. The boots' fit ensures reduced fatigue during long rides, while the sturdy build supports the ankles effectively. Whether you are engaging in high-speed racing or daily commuting, the **Zeozoom Motorcycle Riding Boots** offer a balanced mix of protection, style, and performance that appeals to a wide range of riders.
 
-## <a href="https://www.amazon.com/dp/B0CNYLXG6H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bofucn Motorcycle Leather Boots</a>
+## <a href="https://www.amazon.com/dp/B0CNYLXG6H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bofucn Motorcycle Leather Boots</a>
 
 
-<a href="https://www.amazon.com/dp/B0CNYLXG6H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bofucn Motorcycle Leather Boots,Street Riding Shoes,Anti-Slip Side Zipper Shoes for Men and Women (Black/Green, Adult, 5 Men/6 Women)" src="https://m.media-amazon.com/images/I/512xObt9ZQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CNYLXG6H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bofucn Motorcycle Leather Boots,Street Riding Shoes,Anti-Slip Side Zipper Shoes for Men and Women (Black/Green, Adult, 5 Men/6 Women)" src="https://m.media-amazon.com/images/I/512xObt9ZQL._SL500_.jpg"/></a>
 
 
 The **Bofucn Motorcycle Leather Boots** are ideal for both men and women who enjoy street riding and seek durable, stylish, and functional footwear. These boots are perfect for riders who prioritize safety with an anti-slip sole and convenience with a side zipper design, making them suitable for everyday use and extended rides. If you value a combination of comfort, protection, and modern aesthetics in your riding gear, these boots are a great choice.
@@ -74,10 +74,10 @@ The **Bofucn Motorcycle Leather Boots** combine robust materials and thoughtful 
 
 Additionally, the **side zipper feature** is a practical element that simplifies wearing and removing the boots without compromising the snug fit. The boots’ aesthetic appeal, available in **Black and Green**, caters to both men and women, making them a versatile choice for street riders who want to maintain a stylish look while ensuring their feet are well protected. Overall, these boots offer a balanced blend of safety, comfort, and style for the modern rider.
 
-## <a href="https://www.amazon.com/dp/B0C8184Y3F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Men's Motorcycle Riding Shoes</a>
+## <a href="https://www.amazon.com/dp/B0C8184Y3F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Men's Motorcycle Riding Shoes</a>
 
 
-<a href="https://www.amazon.com/dp/B0C8184Y3F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Men's Motorcycle Riding Shoes Street Riding Shoes Breathable Biker Boots Sneakers Powersports Footwear, Black Faux Leather Lace Up Boots with Ankle Support for Men, Anti-Slip Sole, Side Zipper" src="https://m.media-amazon.com/images/I/510DeKGH8cL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C8184Y3F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Men's Motorcycle Riding Shoes Street Riding Shoes Breathable Biker Boots Sneakers Powersports Footwear, Black Faux Leather Lace Up Boots with Ankle Support for Men, Anti-Slip Sole, Side Zipper" src="https://m.media-amazon.com/images/I/510DeKGH8cL._SL500_.jpg"/></a>
 
 
 These **Men's Motorcycle Riding Shoes** are ideal for riders who seek a perfect blend of style, comfort, and protection. If you are a daily commuter, a casual biker, or someone who values both safety and fashion in your footwear, these **Street Riding Shoes** with **Breathable Biker Boots** design are tailored for you. They offer essential features that enhance your riding experience while maintaining a sleek look suitable for off-bike wear.
@@ -101,10 +101,10 @@ The **Men's Motorcycle Riding Shoes** by Dream Apparel combine a robust **black 
 
 Equipped with **ankle support**, these boots help prevent injuries by stabilizing the foot and ankle, especially on uneven terrains or during sudden movements. The **anti-slip sole** further increases safety by ensuring reliable traction on wet or slippery surfaces. Overall, these shoes are designed to meet the practical needs of motorcycle enthusiasts while maintaining a stylish street-ready appearance.
 
-## <a href="https://www.amazon.com/dp/B0DL5TY8ZM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Alpinestars Smx-6 V3 High-performance Sport Motorcycle Boots</a>
+## <a href="https://www.amazon.com/dp/B0DL5TY8ZM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Alpinestars Smx-6 V3 High-performance Sport Motorcycle Boots</a>
 
 
-<a href="https://www.amazon.com/dp/B0DL5TY8ZM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Alpinestars SMX-6 V3 High-Performance Sport Motorcycle Boots, CE-Certified, Protective &amp; Comfortable Footwear, 47, Black/White/Red Graphic" src="https://m.media-amazon.com/images/I/31wK+fD9C7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DL5TY8ZM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Alpinestars SMX-6 V3 High-Performance Sport Motorcycle Boots, CE-Certified, Protective &amp; Comfortable Footwear, 47, Black/White/Red Graphic" src="https://m.media-amazon.com/images/I/31wK+fD9C7L._SL500_.jpg"/></a>
 
 
 The **Alpinestars SMX-6 V3 High-Performance Sport Motorcycle Boots** are ideal for serious riders who demand both **protection** and **comfort** during aggressive sport riding or track days. If you are looking for CE-certified footwear that offers advanced safety features without compromising style or fit, these boots are designed to meet the needs of motorcycle enthusiasts who prioritize performance and durability.
@@ -127,10 +127,10 @@ The **SMX-6 V3 boots** incorporate advanced protective features such as reinforc
 
 Beyond protection, the boots emphasize user comfort with breathable materials and a design tailored to reduce fatigue during extended rides. The lightweight nature, combined with the ergonomic shape, allows riders to maintain precise control over their motorcycle. Additionally, the bold **Black/White/Red Graphic** adds a dynamic aesthetic, making these boots a standout choice for riders who want both functionality and style.
 
-## <a href="https://www.amazon.com/dp/B0B9S6YNC8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ilm Motorcycle Shoes For Men Black Waterproof Street Riding Breathable Powersport Anti-slip Footwear With Ankle Support</a>
+## <a href="https://www.amazon.com/dp/B0B9S6YNC8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ilm Motorcycle Shoes For Men Black Waterproof Street Riding Breathable Powersport Anti-slip Footwear With Ankle Support</a>
 
 
-<a href="https://www.amazon.com/dp/B0B9S6YNC8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ILM Motorcycle Shoes for Men Black Waterproof Street Riding Breathable Powersport Anti-Slip Footwear with Ankle Support, Shift pad (Black,10)" src="https://m.media-amazon.com/images/I/413OZRaEGtL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B9S6YNC8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ILM Motorcycle Shoes for Men Black Waterproof Street Riding Breathable Powersport Anti-Slip Footwear with Ankle Support, Shift pad (Black,10)" src="https://m.media-amazon.com/images/I/413OZRaEGtL._SL500_.jpg"/></a>
 
 
 The **ILM Motorcycle Shoes for Men** are ideal for motorcycle enthusiasts who prioritize both **safety** and **comfort** during their rides. These shoes are perfect for riders who frequently encounter wet conditions and require **waterproof** footwear. Additionally, they cater to individuals who seek **breathable** and **anti-slip** features, ensuring a secure grip on their bike.
@@ -151,10 +151,10 @@ The **ILM Motorcycle Shoes** boast a robust **waterproof design**, making them a
 
 One standout feature of these shoes is their **anti-slip sole**, which offers exceptional grip and stability, especially on slippery surfaces. This feature is crucial for maintaining control and preventing accidents, particularly in challenging riding conditions. Coupled with the **ankle support**, these shoes provide both safety and comfort, making them a reliable choice for serious riders who demand the best from their riding gear.
 
-## <a href="https://www.amazon.com/dp/B0DTC2YMXR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sidi Vertigo 2 Street Motorcycle Boots</a>
+## <a href="https://www.amazon.com/dp/B0DTC2YMXR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sidi Vertigo 2 Street Motorcycle Boots</a>
 
 
-<a href="https://www.amazon.com/dp/B0DTC2YMXR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Sidi Vertigo 2 Street Motorcycle Boots" src="https://m.media-amazon.com/images/I/41B1vhQjEVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DTC2YMXR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Sidi Vertigo 2 Street Motorcycle Boots" src="https://m.media-amazon.com/images/I/41B1vhQjEVL._SL500_.jpg"/></a>
 
 
 The **Sidi Vertigo 2 Street Motorcycle Boots** are ideal for riders seeking a perfect balance between style, comfort, and protection. These boots are designed for street motorcycle enthusiasts who require durable footwear that performs well during daily commutes and casual rides. If you value both safety and a sleek appearance in your riding gear, these boots are an excellent choice.
@@ -176,10 +176,10 @@ The **Sidi Vertigo 2 Street Motorcycle Boots** feature a sturdy build with a hei
 
 Additionally, the boots’ color scheme of white and black complements a wide range of motorcycle gear, ensuring versatility. Manufactured by the reputable **Sidi** brand, these boots offer reliable quality and performance. Whether you’re commuting through the city or enjoying a weekend ride, the **Vertigo 2** boots deliver dependable protection combined with style and comfort.
 
-## <a href="https://www.amazon.com/dp/B07V6S353W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Alpinestars Men Motorbike Motorcycle Boot</a>
+## <a href="https://www.amazon.com/dp/B07V6S353W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Alpinestars Men Motorbike Motorcycle Boot</a>
 
 
-<a href="https://www.amazon.com/dp/B07V6S353W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Alpinestars Men Motorbike Motorcycle Boot, Black Rubber, 43 EU" src="https://m.media-amazon.com/images/I/31eEDlCoGJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07V6S353W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Alpinestars Men Motorbike Motorcycle Boot, Black Rubber, 43 EU" src="https://m.media-amazon.com/images/I/31eEDlCoGJL._SL500_.jpg"/></a>
 
 
 The **Alpinestars Men Motorbike Motorcycle Boot** in **Black Rubber**, size **43 EU**, is perfect for motorbike enthusiasts seeking durable and stylish footwear. Ideal for riders who prioritize protection, comfort, and a sleek design, this boot is a great choice for both casual and serious motorcyclists. Whether commuting or hitting the open road, those needing reliable footgear will find this boot well-suited to their needs.
@@ -200,10 +200,10 @@ The **Alpinestars Men Motorbike Motorcycle Boot** combines robust materials and 
 
 Additionally, the boot’s lightweight nature at just over half a pound ensures that riders can enjoy extended periods on their motorcycle without discomfort. The sleek **black rubber finish** not only enhances durability but also adds a modern and understated aesthetic, making it versatile enough to pair with different riding outfits. Overall, this boot offers a balanced combination of safety, comfort, and style for motorbike riders.
 
-## <a href="https://www.amazon.com/dp/B0CRJTK7QK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Milwaukee Leather Mbm9004wp Men's Waterproof Black Leather Motorcycle Reinforced Street Riding Shoes</a>
+## <a href="https://www.amazon.com/dp/B0CRJTK7QK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Milwaukee Leather Mbm9004wp Men's Waterproof Black Leather Motorcycle Reinforced Street Riding Shoes</a>
 
 
-<a href="https://www.amazon.com/dp/B0CRJTK7QK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Milwaukee Leather MBM9004WP Men's Waterproof Black Leather Motorcycle Reinforced Street Riding Shoes w/Ankle Support - 13" src="https://m.media-amazon.com/images/I/318Zs7NHvAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CRJTK7QK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Milwaukee Leather MBM9004WP Men's Waterproof Black Leather Motorcycle Reinforced Street Riding Shoes w/Ankle Support - 13" src="https://m.media-amazon.com/images/I/318Zs7NHvAL._SL500_.jpg"/></a>
 
 
 Ideal for **motorcycle enthusiasts** and riders seeking durable, stylish, and protective footwear, the **Milwaukee Leather MBM9004WP Men's Waterproof Black Leather Motorcycle Reinforced Street Riding Shoes** offer an excellent blend of safety and comfort. These shoes are perfect for those who prioritize both **waterproofing** and **ankle support** while cruising the streets or commuting daily.
@@ -225,10 +225,10 @@ The **Milwaukee Leather MBM9004WP** shoes feature a robust **waterproof black le
 
 Additionally, the integrated **ankle support** is a standout feature, offering enhanced stability and reducing the risk of sprains or strains during sudden maneuvers or long journeys. The shoes are designed with both safety and comfort in mind, making them an ideal choice for riders who demand reliable gear that performs well on and off the bike.
 
-## <a href="https://www.amazon.com/dp/B0B82KQWTX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Borlen Motorcycle Riding Shoes</a>
+## <a href="https://www.amazon.com/dp/B0B82KQWTX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Borlen Motorcycle Riding Shoes</a>
 
 
-<a href="https://www.amazon.com/dp/B0B82KQWTX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BORLEN Motorcycle Riding Shoes Cowhide Leather Breathable Casual Outdoor Street Motorcycle Boots for Men Brown 12.5" src="https://m.media-amazon.com/images/I/41i14l-HHVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B82KQWTX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BORLEN Motorcycle Riding Shoes Cowhide Leather Breathable Casual Outdoor Street Motorcycle Boots for Men Brown 12.5" src="https://m.media-amazon.com/images/I/41i14l-HHVL._SL500_.jpg"/></a>
 
 
 The **BORLEN Motorcycle Riding Shoes** are ideal for men who seek a combination of style, comfort, and protection during their motorcycle rides. Perfect for casual riders and outdoor enthusiasts, these shoes cater especially to those who want durable **cowhide leather** footwear that offers breathability without compromising on safety. If you are looking for reliable street motorcycle boots that complement your everyday look while providing essential riding features, these shoes are an excellent choice.
@@ -251,10 +251,10 @@ The **BORLEN Motorcycle Riding Shoes** boast a sturdy build with premium **cowhi
 
 These boots are thoughtfully crafted by the trusted **BORLENI** brand, known for manufacturing quality motorcycle gear. The reinforced sole and protective features cater specifically to the needs of motorcycle riders, offering stability and safety on the road. Their rich **brown color** adds a classic touch, making these boots a stylish and practical investment for men who demand both function and fashion in their riding gear.
 
-## <a href="https://www.amazon.com/dp/B0DL4288XD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">1storm Men &amp; Women Motorcycle Boots Micro Fiber Leather Street Bike Casual Anti-slip</a>
+## <a href="https://www.amazon.com/dp/B0DL4288XD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">1storm Men &amp; Women Motorcycle Boots Micro Fiber Leather Street Bike Casual Anti-slip</a>
 
 
-<a href="https://www.amazon.com/dp/B0DL4288XD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="1Storm Men &amp; Women Motorcycle Boots Micro Fiber Leather Street bike Casual Anti-Slip + Extra Gear Shift Boots Protector HW-009 Black Gray US 11" src="https://m.media-amazon.com/images/I/41vJIcqCtKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DL4288XD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="1Storm Men &amp; Women Motorcycle Boots Micro Fiber Leather Street bike Casual Anti-Slip + Extra Gear Shift Boots Protector HW-009 Black Gray US 11" src="https://m.media-amazon.com/images/I/41vJIcqCtKL._SL500_.jpg"/></a>
 
 
 The **1Storm Men & Women Motorcycle Boots** are perfect for avid **motorcycle riders** and **casual street bikers** who seek both **style** and **functionality** in their footwear. These boots are designed for those who value **safety features** without compromising on **comfort** and **fashion**. If you're someone who frequently rides and needs a reliable pair of boots that offer **anti-slip capabilities** and an **extra gear shift protector**, this product is an ideal choice for you.

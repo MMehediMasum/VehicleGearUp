@@ -20,10 +20,10 @@ RC trucks need batteries with strong power and capacity. LiPo batteries deliver 
 
 
 
-## <a href="https://www.amazon.com/dp/B076Z778MJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Zeee Lipo Battery</a>
+## <a href="https://www.amazon.com/dp/B076Z778MJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Zeee Lipo Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B076Z778MJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Zeee 7.4V Lipo Battery 2S 50C 5200mAh Lipos Hard Case with T Connector for RC Car Trucks 1/8 1/10 RC Vehicles(2 Packs)" src="https://m.media-amazon.com/images/I/51GujJIveCL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B076Z778MJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Zeee 7.4V Lipo Battery 2S 50C 5200mAh Lipos Hard Case with T Connector for RC Car Trucks 1/8 1/10 RC Vehicles(2 Packs)" src="https://m.media-amazon.com/images/I/51GujJIveCL._SL500_.jpg"/></a>
 
 
 The **Zeee 7.4V Lipo Battery 2S 50C 5200mAh** is ideal for RC enthusiasts who demand reliable power and long run times for their **1/8 and 1/10 scale RC cars, trucks, and vehicles**. Whether you're a hobbyist looking for an upgrade or a professional racer needing consistent performance, this battery pack offers a perfect balance of capacity, discharge rate, and durability.
@@ -47,10 +47,10 @@ The **Zeee 7.4V Lipo Battery** is engineered to deliver superior performance wit
 
 Designed with convenience in mind, the battery comes equipped with a **T Connector**, making installation straightforward for both beginners and experienced users. Its compact size and lightweight construction do not compromise on power, making it an excellent choice for various RC models. Overall, the Zeee battery provides a reliable and efficient power source that enhances the performance and enjoyment of your RC vehicles.
 
-## <a href="https://www.amazon.com/dp/B0BYNSH6Q7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Zeee 3s Lipo Battery Shorty Pack With Xt60 Plug</a>
+## <a href="https://www.amazon.com/dp/B0BYNSH6Q7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Zeee 3s Lipo Battery Shorty Pack With Xt60 Plug</a>
 
 
-<a href="https://www.amazon.com/dp/B0BYNSH6Q7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Zeee 3S Lipo Battery 2200mAh 11.1V 50C Shorty Pack Battery with XT60 Plug for RC Car Truck RC Vehicles Boat Drone RC Airplane Quadcopter Helicopter FPV Racing Hobby Models(2 Pack)" src="https://m.media-amazon.com/images/I/51YG8ydR3CL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BYNSH6Q7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Zeee 3S Lipo Battery 2200mAh 11.1V 50C Shorty Pack Battery with XT60 Plug for RC Car Truck RC Vehicles Boat Drone RC Airplane Quadcopter Helicopter FPV Racing Hobby Models(2 Pack)" src="https://m.media-amazon.com/images/I/51YG8ydR3CL._SL500_.jpg"/></a>
 
 
 The **Zeee 3S Lipo Battery 2200mAh 11.1V 50C Shorty Pack Battery** is ideal for RC enthusiasts who need a reliable, high-performance power source for their **RC cars, trucks, boats, drones, airplanes, quadcopters, helicopters, and FPV racing models**. Whether you are a hobbyist or a competitive racer, this battery pack offers the perfect balance of power, size, and durability for demanding applications.
@@ -73,10 +73,10 @@ The **Zeee 3S Lipo Battery** boasts a capacity of **2200mAh** combined with an i
 
 Beyond raw power, the lightweight design at just over **0.3 pounds** helps maintain the agility and speed of your RC vehicles, contributing to better handling and longer flight or run times. The battery’s build quality from **Zeee Power** ensures durability and reliability, making it a trustworthy companion for both casual hobbyists and competitive racers who demand consistent performance and quick bursts of acceleration without worrying about battery failure.
 
-## <a href="https://www.amazon.com/dp/B07V5FZV2M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hoovo 7.4v Lipo Battery Hard Case With Tracxas Plug</a>
+## <a href="https://www.amazon.com/dp/B07V5FZV2M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hoovo 7.4v Lipo Battery Hard Case With Tracxas Plug</a>
 
 
-<a href="https://www.amazon.com/dp/B07V5FZV2M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="HOOVO 7.4V 70C 6200mAh 2S Lipo Battery Hard Case with Tracxas Plug for RC Car RC Helicopter RC Truck RC Truggy Airplane Quadcopter UAV Drone FPV (2 Packs" src="https://m.media-amazon.com/images/I/51ePu36-HvL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07V5FZV2M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="HOOVO 7.4V 70C 6200mAh 2S Lipo Battery Hard Case with Tracxas Plug for RC Car RC Helicopter RC Truck RC Truggy Airplane Quadcopter UAV Drone FPV (2 Packs" src="https://m.media-amazon.com/images/I/51ePu36-HvL._SL500_.jpg"/></a>
 
 
 The **HOOVO 7.4V 70C 6200mAh 2S Lipo Battery** is ideal for RC enthusiasts who demand reliable and high-performance power sources for their vehicles. Whether you own an **RC Car**, **Helicopter**, **Truck**, **Truggy**, **Airplane**, **Quadcopter**, or even a **UAV Drone**, this battery pack is designed to deliver consistent power and long runtime. It's perfect for hobbyists looking to upgrade their existing batteries or those starting out with high-quality packs that ensure safety and durability.
@@ -100,10 +100,10 @@ The **HOOVO 7.4V 70C 6200mAh Lipo Battery** stands out with its impressive speci
 
 The inclusion of a durable **hard case** enhances the battery's lifespan by protecting it from physical damage and impacts, which is crucial during intense RC activities. Additionally, the **Tracxas plug** compatibility simplifies installation, reducing setup time and allowing users to quickly swap batteries during extended sessions. Whether you are flying a drone or racing an RC truck, these features combine to offer a dependable and efficient energy solution that enhances your user experience.
 
-## <a href="https://www.amazon.com/dp/B0CF172WNL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tekkpow 2s Lipo Battery</a>
+## <a href="https://www.amazon.com/dp/B0CF172WNL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tekkpow 2s Lipo Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B0CF172WNL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="TEKKPOW 2S Lipo Battery 80C 5200mAh 7.4V LiPo Battery RC Hard Case for RC Car Evader BX Car 1/8 1/10 RC Truck Truggy RC Vehicles - 2 Pack" src="https://m.media-amazon.com/images/I/51blko6FfpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CF172WNL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="TEKKPOW 2S Lipo Battery 80C 5200mAh 7.4V LiPo Battery RC Hard Case for RC Car Evader BX Car 1/8 1/10 RC Truck Truggy RC Vehicles - 2 Pack" src="https://m.media-amazon.com/images/I/51blko6FfpL._SL500_.jpg"/></a>
 
 
 The **TEKKPOW 2S Lipo Battery** is ideal for **RC enthusiasts** who are looking for a reliable and powerful battery to enhance the performance of their **RC cars**, **trucks**, or **truggies**. This product is specifically designed for those who demand high power and long-lasting performance from their **remote-controlled vehicles**. Whether you're a hobbyist or a competitive racer, this battery pack provides the power you need to keep your RC vehicles running at their best.
@@ -124,10 +124,10 @@ The **TEKKPOW 2S Lipo Battery** offers a substantial **5200mAh capacity**, ensur
 
 Additionally, the battery's **durable hard case** is designed to withstand the rigors of off-road driving, protecting the cells from impact and ensuring longevity. This feature is particularly beneficial for those who use their RC vehicles in rough terrains or competitive environments where crashes are more likely. Despite its robust design, users should ensure that their RC models can accommodate the battery's dimensions to avoid fitting issues. Overall, the TEKKPOW 2S Lipo Battery is a powerful and reliable choice for serious RC enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B091XXKZYK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hoovo 11.1v 3s Lipo Battery</a>
+## <a href="https://www.amazon.com/dp/B091XXKZYK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hoovo 11.1v 3s Lipo Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B091XXKZYK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="HOOVO 11.1V 3S LiPo Battery 5200mAh 60C with Tr Plug for RC Car RC Truck Airplane Helicopter Boat Car Racing RC Hobby (2 Packs" src="https://m.media-amazon.com/images/I/51FpyQ6dZ2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B091XXKZYK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="HOOVO 11.1V 3S LiPo Battery 5200mAh 60C with Tr Plug for RC Car RC Truck Airplane Helicopter Boat Car Racing RC Hobby (2 Packs" src="https://m.media-amazon.com/images/I/51FpyQ6dZ2L._SL500_.jpg"/></a>
 
 
 The **HOOVO 11.1V 3S LiPo Battery 5200mAh 60C** is ideal for hobbyists and enthusiasts who demand reliable and powerful energy sources for their **RC cars, trucks, airplanes, helicopters, and boats**. If you are looking for a high-capacity battery pack that ensures long run times and consistent performance during intense racing or flying sessions, this product is designed for you. It is especially suitable for users who require durable batteries with a sturdy connector like the **Tr Plug** for easy installation and compatibility.
@@ -150,10 +150,10 @@ The **HOOVO 11.1V 3S LiPo Battery** packs significant power in a compact form fa
 
 Additionally, the battery's capacity of 5200mAh provides longer run times compared to lower-capacity packs, reducing downtime between sessions. For RC enthusiasts who engage in extended hobby activities, having two packs included means you can swap batteries quickly and continue enjoying your favorite models without interruption. However, users should be mindful of proper **LiPo battery handling** techniques to maintain safety and maximize the battery's lifespan. Overall, this battery offers a balanced combination of power, capacity, and convenience tailored for serious RC hobbyists.
 
-## <a href="https://www.amazon.com/dp/B0924MM61Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Urgenex 7.4v Lipo Battery 2s 35c 1800mah Rechargeable Rc Battery Pack</a>
+## <a href="https://www.amazon.com/dp/B0924MM61Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Urgenex 7.4v Lipo Battery 2s 35c 1800mah Rechargeable Rc Battery Pack</a>
 
 
-<a href="https://www.amazon.com/dp/B0924MM61Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="URGENEX 7.4V Lipo Battery 2S 35C 1800mAh Rechargeable RC Battery Pack with Deans T Plug Campatibal with Most 1/10, 1/16 Scale RC Cars Trucks and 7.4V 1to2 USB Lipo Battery Charger" src="https://m.media-amazon.com/images/I/51Pz-4CVINL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0924MM61Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="URGENEX 7.4V Lipo Battery 2S 35C 1800mAh Rechargeable RC Battery Pack with Deans T Plug Campatibal with Most 1/10, 1/16 Scale RC Cars Trucks and 7.4V 1to2 USB Lipo Battery Charger" src="https://m.media-amazon.com/images/I/51Pz-4CVINL._SL500_.jpg"/></a>
 
 
 The **URGENEX 7.4V Lipo Battery 2S 35C 1800mAh** is ideal for hobbyists and enthusiasts who own **1/10 or 1/16 scale RC cars and trucks** and are looking for a reliable, rechargeable power source. This battery pack is perfect for users who need a lightweight yet high-performance battery that delivers consistent power and is compatible with a wide range of RC vehicles. If you want extended run times and quick recharging capabilities, this product is designed to meet those needs efficiently.
@@ -177,10 +177,10 @@ The **URGENEX 7.4V Lipo Battery** stands out for its excellent balance of power 
 
 Additionally, the battery's compatibility with most **1/10 and 1/16 scale** models, combined with the secure **Deans T plug connection**, simplifies installation and ensures a reliable power link. The included **USB Lipo battery charger** offers the convenience of charging the battery from a variety of USB power sources, making it easy to keep your battery ready wherever you are. Overall, this battery pack is a dependable choice for anyone seeking to enhance their RC vehicle's performance with a high-quality power solution.
 
-## <a href="https://www.amazon.com/dp/B0CDLLLXM1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ovonic 3s Lipo Battery</a>
+## <a href="https://www.amazon.com/dp/B0CDLLLXM1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ovonic 3s Lipo Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B0CDLLLXM1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OVONIC 3S LiPo Battery 11.1V 5000mAh 120C with XT60 and TRA Plug Perfect Match RC Car RC Truck Airplane Helicopter Boat Car Racing RC Hobby [6.18''D x 1.81" src="https://m.media-amazon.com/images/I/51EXSzK4LuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CDLLLXM1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OVONIC 3S LiPo Battery 11.1V 5000mAh 120C with XT60 and TRA Plug Perfect Match RC Car RC Truck Airplane Helicopter Boat Car Racing RC Hobby [6.18''D x 1.81" src="https://m.media-amazon.com/images/I/51EXSzK4LuL._SL500_.jpg"/></a>
 
 
 The **OVONIC 3S LiPo Battery 11.1V 5000mAh 120C** is ideal for RC enthusiasts who demand high performance and reliability in their remote-controlled cars, trucks, airplanes, helicopters, and boats. Whether you are a hobbyist or a competitive racer, this battery pack offers the power and endurance needed to enhance your RC experience.
@@ -202,10 +202,10 @@ The **OVONIC 3S LiPo Battery** is engineered to deliver a robust 11.1V power sup
 
 Thanks to its compact size and lightweight design, this battery fits snugly into most RC models without adding unnecessary bulk or weight. The dual pack option also provides convenience and value, ensuring that you have a backup power source ready for extended play. Overall, this battery pack balances power, capacity, and compatibility to meet the needs of serious RC hobbyists looking to maximize performance and enjoyment.
 
-## <a href="https://www.amazon.com/dp/B08696WZMK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Zeee Lipo Battery</a>
+## <a href="https://www.amazon.com/dp/B08696WZMK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Zeee Lipo Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B08696WZMK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Zeee 11.1V 80C 5200mAh 3S Lipo Battery with EC5 Connector Hardcase Battery for 1/5 1/8 1/10 RC Car RC Truck Racing Models(2 Packs)" src="https://m.media-amazon.com/images/I/519MfLHSsGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08696WZMK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Zeee 11.1V 80C 5200mAh 3S Lipo Battery with EC5 Connector Hardcase Battery for 1/5 1/8 1/10 RC Car RC Truck Racing Models(2 Packs)" src="https://m.media-amazon.com/images/I/519MfLHSsGL._SL500_.jpg"/></a>
 
 
 The **Zeee 11.1V 80C 5200mAh 3S Lipo Battery with EC5 Connector Hardcase Battery** is ideal for RC enthusiasts who demand high performance and reliability for their **1/5, 1/8, and 1/10 scale RC cars and trucks**. Whether you are a competitive racer or a hobbyist looking for long-lasting power, this battery pack is designed to meet the intense energy needs of fast, high-torque models. Its robust build and high discharge rate make it perfect for users seeking consistent power delivery in demanding racing environments.
@@ -228,10 +228,10 @@ The **Zeee 11.1V 80C 5200mAh 3S Lipo Battery** stands out for its balance betwee
 
 Additionally, the battery's **hardcase construction** safeguards the internal cells against shocks and vibrations, enhancing its lifespan and reliability during rough usage. The inclusion of the **EC5 connector** simplifies installation and ensures a secure connection to the vehicle's electronics. Overall, this battery pack by Zeee Power offers a high-performance solution tailored for serious RC hobbyists and racers seeking consistency, power, and durability in their electric power source.
 
-## <a href="https://www.amazon.com/dp/B0CSKF63FB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tosiicop 7.4v 1000mah Li-ion Battery - 2 Pack</a>
+## <a href="https://www.amazon.com/dp/B0CSKF63FB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tosiicop 7.4v 1000mah Li-ion Battery - 2 Pack</a>
 
 
-<a href="https://www.amazon.com/dp/B0CSKF63FB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Tosiicop 7.4V 1000mAh Li-ion Battery - 2 Pack 2S 30C Batteries with T Plug for RC Truck Brushless Racing Car HBX 16889 16890A and XLH Q901 Q902 Q903 1/16 Scale with Rechargeable 2 USB Chargers" src="https://m.media-amazon.com/images/I/41OVBfNecXL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CSKF63FB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Tosiicop 7.4V 1000mAh Li-ion Battery - 2 Pack 2S 30C Batteries with T Plug for RC Truck Brushless Racing Car HBX 16889 16890A and XLH Q901 Q902 Q903 1/16 Scale with Rechargeable 2 USB Chargers" src="https://m.media-amazon.com/images/I/41OVBfNecXL._SL500_.jpg"/></a>
 
 
 The **Tosiicop 7.4V 1000mAh Li-ion Battery - 2 Pack** is ideal for RC enthusiasts who own **1/16 scale RC trucks and brushless racing cars** such as the HBX 16889, 16890A, and XLH Q901, Q902, Q903 models. If you are looking for a reliable, rechargeable power source with convenient USB charging options to enhance your RC vehicle's performance, this battery pack is designed for you.
@@ -255,10 +255,10 @@ The **Tosiicop 7.4V 1000mAh Li-ion Battery** pack offers excellent power deliver
 
 An outstanding feature is the inclusion of **2 USB chargers**, which simplifies the recharging process. Users can conveniently recharge both batteries simultaneously using standard USB power sources, eliminating downtime during races or play sessions. This makes the pack not only powerful but also user-friendly and efficient, perfect for those who value both performance and convenience in their RC experience.
 
-## <a href="https://www.amazon.com/dp/B07CVBQW5T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ovonic 2s Lipo Battery</a>
+## <a href="https://www.amazon.com/dp/B07CVBQW5T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ovonic 2s Lipo Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B07CVBQW5T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OVONIC 2s Lipo Battery 50C 5200mAh 7.4V Lipo Battery with Dean-Style T Connector for Car Truck Boat Vehicles" src="https://m.media-amazon.com/images/I/51b92XWneqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07CVBQW5T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OVONIC 2s Lipo Battery 50C 5200mAh 7.4V Lipo Battery with Dean-Style T Connector for Car Truck Boat Vehicles" src="https://m.media-amazon.com/images/I/51b92XWneqL._SL500_.jpg"/></a>
 
 
 The **OVONIC 2s Lipo Battery 50C 5200mAh 7.4V** is ideal for hobbyists and enthusiasts who require a reliable and high-performance power source for their **car, truck, boat, or vehicle models**. Whether you're a professional racer or a casual user looking for consistent power and long-lasting battery life, this battery meets the demands of various RC applications. Its compact size and strong output make it perfect for users who want both portability and power.

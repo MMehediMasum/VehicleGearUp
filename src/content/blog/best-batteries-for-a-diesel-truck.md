@@ -23,10 +23,10 @@ Sizes like BCI Group 94R and 48 fit most diesel trucks, offering the right power
 
 
 
-## <a href="https://www.amazon.com/dp/B0CBQ4GR6T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Weize Platinum Agm Battery</a>
+## <a href="https://www.amazon.com/dp/B0CBQ4GR6T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Weize Platinum Agm Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B0CBQ4GR6T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Weize Platinum AGM Battery BCI Group 94R - 12v 80ah H7 Size 94R Automotive Battery, 140RC, 850CCA, 36 Months Warranty, Dimensions 12.4" src="https://m.media-amazon.com/images/I/41e2HbZV1CL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CBQ4GR6T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Weize Platinum AGM Battery BCI Group 94R - 12v 80ah H7 Size 94R Automotive Battery, 140RC, 850CCA, 36 Months Warranty, Dimensions 12.4" src="https://m.media-amazon.com/images/I/41e2HbZV1CL._SL500_.jpg"/></a>
 
 
 The **Weize Platinum AGM Battery BCI Group 94R** is ideal for vehicle owners who demand reliable power and long-lasting performance. If you are looking for a high-quality **12v 80ah automotive battery** with excellent cold cranking amps for smooth starts in any weather, this battery is perfect for you. It is especially suited for drivers who need a durable battery with a robust warranty and compact dimensions to fit a variety of vehicle models.
@@ -49,10 +49,10 @@ The **Weize Platinum AGM Battery** uses advanced Absorbent Glass Mat (AGM) techn
 
 Thanks to its compact size and precise dimensions of **12.4 inches in length, 6.89 inches in width, and 7.48 inches in height**, this battery easily fits in vehicles designed for Group 94R batteries. The 140 Reserve Capacity (RC) offers extended power availability, which is helpful during unexpected power demands or when the alternator is not functioning optimally. Backed by a robust 36-month warranty, the **Weize Platinum AGM Battery** provides excellent value and dependability for everyday drivers and automotive enthusiasts alike.
 
-## <a href="https://www.amazon.com/dp/B006N91C2M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Acdelco Gold 94ragm Battery</a>
+## <a href="https://www.amazon.com/dp/B006N91C2M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Acdelco Gold 94ragm Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B006N91C2M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ACDelco Gold 94RAGM (88864542) 36 Month Warranty AGM BCI Group 94R Battery" src="https://m.media-amazon.com/images/I/41SxFovMY+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B006N91C2M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ACDelco Gold 94RAGM (88864542) 36 Month Warranty AGM BCI Group 94R Battery" src="https://m.media-amazon.com/images/I/41SxFovMY+L._SL500_.jpg"/></a>
 
 
 The **ACDelco Gold 94RAGM (88864542) 36 Month Warranty AGM BCI Group 94R Battery** is ideal for vehicle owners who demand reliable performance and long-lasting power. This battery is perfect for drivers with modern cars requiring high electrical loads, especially those who need a maintenance-free, durable solution that can withstand extreme weather conditions and frequent use. If you want a battery with advanced technology that ensures your vehicle starts smoothly every time, this product is a great choice.
@@ -74,10 +74,10 @@ The **ACDelco Gold 94RAGM Battery** features state-of-the-art AGM technology tha
 
 Additionally, the battery's compact size and robust build make it a versatile choice for many vehicles, while the 36-month warranty underscores the manufacturer's confidence in its durability. Users benefit from dependable starts even in harsh weather, ensuring their vehicle remains operational without interruption. Overall, this battery combines advanced features with user-friendly benefits, making it a smart investment for those seeking long-term automotive power solutions.
 
-## <a href="https://www.amazon.com/dp/B00075OSC4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Optima Batteries High Performance 34/78 Redtop Sealed Agm Car, Truck, And Suv Starting Battery</a>
+## <a href="https://www.amazon.com/dp/B00075OSC4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Optima Batteries High Performance 34/78 Redtop Sealed Agm Car, Truck, And Suv Starting Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B00075OSC4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OPTIMA Batteries High Performance 34/78 RedTop Sealed AGM Car, Truck, and SUV Starting Battery, 800 CCA, Dual SAE and GM Terminals, Maintenance Free, Versitile Mounting" src="https://m.media-amazon.com/images/I/41e0A86BLoL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00075OSC4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OPTIMA Batteries High Performance 34/78 RedTop Sealed AGM Car, Truck, and SUV Starting Battery, 800 CCA, Dual SAE and GM Terminals, Maintenance Free, Versitile Mounting" src="https://m.media-amazon.com/images/I/41e0A86BLoL._SL500_.jpg"/></a>
 
 
 The **OPTIMA Batteries High Performance 34/78 RedTop Sealed AGM Battery** is ideal for vehicle owners who demand reliable starting power for their **cars, trucks, and SUVs**. If you need a battery that delivers consistent performance under extreme conditions and requires minimal maintenance, this **maintenance-free, sealed AGM battery** is designed for you. It suits drivers looking for a robust and versatile power source with easy installation options.
@@ -100,10 +100,10 @@ The **OPTIMA RedTop 34/78 battery** features advanced **Absorbent Glass Mat (AGM
 
 With its **dual SAE and GM terminals**, the battery offers flexible mounting options, making it compatible with a wide variety of vehicle models. Its compact size and robust construction allow for easy installation without compromising on power. The high Cold Cranking Amps rating ensures you can start your engine quickly in cold climates, providing peace of mind during winter months. Overall, this battery combines durability, versatility, and high performance, making it a smart choice for drivers who want dependable starting power without constant maintenance.
 
-## <a href="https://www.amazon.com/dp/B0C81FT86S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Uplus Bci Group 48 Car Battery</a>
+## <a href="https://www.amazon.com/dp/B0C81FT86S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Uplus Bci Group 48 Car Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B0C81FT86S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="UPLUS BCI Group 48 Car Battery, AGM-L70-M Maintenance Free 12V 70Ah Premium AGM Batteries H6 L3 Automotive Battery, 760CCA, 80RC" src="https://m.media-amazon.com/images/I/41zlQcs-SSL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C81FT86S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="UPLUS BCI Group 48 Car Battery, AGM-L70-M Maintenance Free 12V 70Ah Premium AGM Batteries H6 L3 Automotive Battery, 760CCA, 80RC" src="https://m.media-amazon.com/images/I/41zlQcs-SSL._SL500_.jpg"/></a>
 
 
 The **UPLUS BCI Group 48 Car Battery** is an ideal choice for car owners who value **reliability** and **performance**. This battery is perfect for individuals who have high demands on their vehicle's electrical system, such as those who use numerous electronic accessories or live in colder climates where a powerful start is critical. If you're looking for a maintenance-free solution that provides consistent power, this battery is designed for you.
@@ -123,10 +123,10 @@ The **UPLUS BCI Group 48 Car Battery** stands out with its **Advanced Glass Mat 
 
 Another significant advantage is the battery's impressive **Cold Cranking Amps (CCA) of 760**, which ensures that your vehicle starts without a hitch even in the harshest winter conditions. Coupled with an **80-minute Reserve Capacity (RC)**, it offers extended power support, essential for those who rely heavily on electronic gadgets during long drives. These features make it a reliable companion for daily commutes and long road trips alike.
 
-## <a href="https://www.amazon.com/dp/B0D9QLXH3K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Autodepot Bci Group 94r Car Battery</a>
+## <a href="https://www.amazon.com/dp/B0D9QLXH3K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Autodepot Bci Group 94r Car Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B0D9QLXH3K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="1AUTODEPOT BCI Group 94R Car Battery, 12V 80Ah Size H7 Automotive Battery Premium Maintenance Free AGM Batteries, 850CCA, 140RC" src="https://m.media-amazon.com/images/I/412dKLCqyhL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D9QLXH3K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="1AUTODEPOT BCI Group 94R Car Battery, 12V 80Ah Size H7 Automotive Battery Premium Maintenance Free AGM Batteries, 850CCA, 140RC" src="https://m.media-amazon.com/images/I/412dKLCqyhL._SL500_.jpg"/></a>
 
 
 The **1AUTODEPOT BCI Group 94R Car Battery** is ideal for car owners and automotive enthusiasts seeking a reliable, high-performance battery that offers long-lasting power and maintenance-free convenience. This battery is perfect for those who demand superior starting power in various weather conditions and want a hassle-free replacement that fits standard automotive sizes.
@@ -148,10 +148,10 @@ The **1AUTODEPOT BCI Group 94R Car Battery** is manufactured by **GUANGDONG TONG
 
 With an impressive **850 CCA rating**, this battery delivers powerful cold starts, reducing the risk of engine failure in harsh weather. The **maintenance-free** feature means no need to check water levels or perform regular upkeep, saving time and effort for busy car owners. Additionally, its **140 reserve capacity** allows for longer power supply during emergencies, ensuring your vehicle’s electronics stay operational even if the alternator fails temporarily.
 
-## <a href="https://www.amazon.com/dp/B00075OSBK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Optima Batteries High Performance 75/25 Redtop Sealed Agm Car, Truck, And Suv Starting Battery</a>
+## <a href="https://www.amazon.com/dp/B00075OSBK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Optima Batteries High Performance 75/25 Redtop Sealed Agm Car, Truck, And Suv Starting Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B00075OSBK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OPTIMA Batteries High Performance 75/25 RedTop Sealed AGM Car, Truck, and SUV Starting Battery, 720 CCA, Dual SAE and GM Terminals, Maintenance Free, Versitile Mounting" src="https://m.media-amazon.com/images/I/41HGLgpGJGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00075OSBK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OPTIMA Batteries High Performance 75/25 RedTop Sealed AGM Car, Truck, and SUV Starting Battery, 720 CCA, Dual SAE and GM Terminals, Maintenance Free, Versitile Mounting" src="https://m.media-amazon.com/images/I/41HGLgpGJGL._SL500_.jpg"/></a>
 
 
 The **OPTIMA Batteries High Performance 75/25 RedTop Sealed AGM Battery** is ideal for vehicle owners who demand reliable starting power and durability. Perfect for drivers of **cars, trucks, and SUVs** looking for a maintenance-free, high-performance battery that can handle tough conditions. If you need a battery with strong cold-cranking amps and versatile mounting options, this battery is a great choice.
@@ -173,10 +173,10 @@ The **OPTIMA RedTop Battery** utilizes advanced **Absorbent Glass Mat (AGM) tech
 
 With its **720 CCA rating**, this battery delivers reliable starting power even in cold weather, ensuring your vehicle starts quickly and efficiently. The dual terminal design increases installation flexibility, fitting a wide range of vehicles without modification. Overall, the OPTIMA RedTop battery provides a combination of high performance, durability, and ease of use, making it a valuable investment for anyone seeking dependable automotive power.
 
-## <a href="https://www.amazon.com/dp/B000MS9VZK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Optima Batteries High Performance 35 Redtop</a>
+## <a href="https://www.amazon.com/dp/B000MS9VZK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Optima Batteries High Performance 35 Redtop</a>
 
 
-<a href="https://www.amazon.com/dp/B000MS9VZK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OPTIMA Batteries High Performance 35 RedTop Sealed AGM Car, Truck and SUV Starting Battery, 720 CCA, SAE Terminal, Maintenance Free, Versitile Mounting" src="https://m.media-amazon.com/images/I/41x+2mKieWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000MS9VZK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OPTIMA Batteries High Performance 35 RedTop Sealed AGM Car, Truck and SUV Starting Battery, 720 CCA, SAE Terminal, Maintenance Free, Versitile Mounting" src="https://m.media-amazon.com/images/I/41x+2mKieWL._SL500_.jpg"/></a>
 
 
 The **OPTIMA Batteries High Performance 35 RedTop Sealed AGM Car, Truck and SUV Starting Battery** is ideal for vehicle owners who demand reliable starting power and durability in harsh conditions. If you drive a **car, truck, or SUV** and need a maintenance-free battery that can deliver high cranking power, this battery is designed to meet those needs. It is perfect for those who prioritize a long-lasting, versatile, and robust battery solution that requires minimal upkeep.
@@ -199,10 +199,10 @@ The **OPTIMA RedTop 35 Battery** features advanced **Absorbent Glass Mat (AGM) t
 
 With a compact size of **7.6 inches in height, 6.8 inches in width, and 9.3 inches in length**, combined with a moderate weight of **31.7 pounds**, the battery is easy to install in tight engine compartments. The **versatile mounting options** provide flexibility, allowing it to fit a wide range of vehicles. Additionally, the **720 Cold Cranking Amps (CCA)** rating guarantees dependable starting power, especially in cold climates, ensuring your vehicle starts without hassle regardless of weather conditions.
 
-## <a href="https://www.amazon.com/dp/B000MSBUA4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Optima Batteries High Performance D34/78 Yellowtop Dual Purpose Sealed Agm Car, Truck And Suv Battery</a>
+## <a href="https://www.amazon.com/dp/B000MSBUA4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Optima Batteries High Performance D34/78 Yellowtop Dual Purpose Sealed Agm Car, Truck And Suv Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B000MSBUA4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OPTIMA Batteries High Performance D34/78 YellowTop Dual Purpose Sealed AGM Car, Truck and SUV Battery, 750 CCA, Dual Terminal, Maintenance Free, Versitile Mounting" src="https://m.media-amazon.com/images/I/41gIURpJ6IL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000MSBUA4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OPTIMA Batteries High Performance D34/78 YellowTop Dual Purpose Sealed AGM Car, Truck and SUV Battery, 750 CCA, Dual Terminal, Maintenance Free, Versitile Mounting" src="https://m.media-amazon.com/images/I/41gIURpJ6IL._SL500_.jpg"/></a>
 
 
 The **OPTIMA Batteries High Performance D34/78 YellowTop Dual Purpose Sealed AGM Battery** is ideal for vehicle owners who demand reliable power for their **cars, trucks, and SUVs**. If you need a maintenance-free battery with strong cold cranking amps (CCA) and versatile mounting options, this battery is perfect for you. It is especially suited for those who require a durable and high-performing battery capable of handling both starting power and deep cycling capabilities.
@@ -224,10 +224,10 @@ The **OPTIMA YellowTop D34/78** features advanced **Absorbent Glass Mat (AGM) te
 
 Additionally, the **dual terminal** configuration offers versatile mounting options, accommodating various vehicle setups and making replacement easier. The battery’s robust construction includes vibration resistance, enhancing durability and longevity in demanding driving environments. Overall, this battery delivers powerful performance with minimal maintenance, making it a smart investment for those seeking dependable energy for their vehicles.
 
-## <a href="https://www.amazon.com/dp/B000MSBU9U?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Optima Batteries High Performance 25 Redtop</a>
+## <a href="https://www.amazon.com/dp/B000MSBU9U?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Optima Batteries High Performance 25 Redtop</a>
 
 
-<a href="https://www.amazon.com/dp/B000MSBU9U?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OPTIMA Batteries High Performance 25 RedTop Sealed AGM Car, Truck, and SUV Starting Battery, 720 CCA, SAE Terminal, Maintenance Free, Versitile Mounting" src="https://m.media-amazon.com/images/I/41OZLZSF4VL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000MSBU9U?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OPTIMA Batteries High Performance 25 RedTop Sealed AGM Car, Truck, and SUV Starting Battery, 720 CCA, SAE Terminal, Maintenance Free, Versitile Mounting" src="https://m.media-amazon.com/images/I/41OZLZSF4VL._SL500_.jpg"/></a>
 
 
 The **OPTIMA Batteries High Performance 25 RedTop Sealed AGM Car, Truck, and SUV Starting Battery** is ideal for vehicle owners seeking a reliable, maintenance-free power source that delivers exceptional starting power. Whether you drive a car, truck, or SUV, and require a battery that can withstand harsh conditions and provide consistent performance, this battery is designed to meet those needs. It is especially suitable for those who prefer a durable battery with versatile mounting options and a compact design.
@@ -250,10 +250,10 @@ The **OPTIMA RedTop battery** utilizes advanced **Absorbent Glass Mat (AGM) tech
 
 Additionally, the battery’s **high 720 Cold Cranking Amps (CCA)** rating ensures your vehicle will start quickly even in extremely cold climates, offering peace of mind during winter months. The versatile mounting options and compact dimensions make it compatible with a wide range of cars, trucks, and SUVs. Overall, the OPTIMA RedTop battery combines powerful performance with convenience and longevity, making it a smart investment for vehicle owners seeking dependable starting power.
 
-## <a href="https://www.amazon.com/dp/B0CRHBQSJW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Marxon Group 94r H7 L4 Start And Stop Car Battery</a>
+## <a href="https://www.amazon.com/dp/B0CRHBQSJW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Marxon Group 94r H7 L4 Start And Stop Car Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B0CRHBQSJW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MARXON Group 94R H7 L4 Start and Stop Car Battery 12v 80AH 850CCA AGM BCI94R Maintenance Free Automotive Replacement Batteries 36 Months Warranty" src="https://m.media-amazon.com/images/I/41alqoM3fhL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CRHBQSJW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MARXON Group 94R H7 L4 Start and Stop Car Battery 12v 80AH 850CCA AGM BCI94R Maintenance Free Automotive Replacement Batteries 36 Months Warranty" src="https://m.media-amazon.com/images/I/41alqoM3fhL._SL500_.jpg"/></a>
 
 
 The **MARXON Group 94R H7 L4 Start and Stop Car Battery** is ideal for vehicle owners seeking a reliable and maintenance-free power source. This battery is perfect for those who require consistent performance in start-stop driving conditions and want a durable replacement with a solid warranty. If you drive a car equipped with advanced start-stop technology or need a dependable 12V battery with high cold cranking amps, this model is an excellent choice.

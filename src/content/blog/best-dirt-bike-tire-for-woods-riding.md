@@ -23,10 +23,10 @@ Some popular options include the Tusk EMEX T-45 for intermediate to hard terrain
 
 
 
-## <a href="https://www.amazon.com/dp/B09SVNBSV9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tusk Emex T-45® Front Tire</a>
+## <a href="https://www.amazon.com/dp/B09SVNBSV9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tusk Emex T-45® Front Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B09SVNBSV9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tusk EMEX T-45® Front Tire 80/100x21 – Intermediate/Hard Terrain Knobby Dirt Bike Tire for Motocross, Trail, and Off-Road Riding" src="https://m.media-amazon.com/images/I/41t-T37ytvL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09SVNBSV9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tusk EMEX T-45® Front Tire 80/100x21 – Intermediate/Hard Terrain Knobby Dirt Bike Tire for Motocross, Trail, and Off-Road Riding" src="https://m.media-amazon.com/images/I/41t-T37ytvL._SL500_.jpg"/></a>
 
 
 The **Tusk EMEX T-45® Front Tire 80/100x21** is ideal for riders who enjoy **motocross**, **trail**, and **off-road riding** on intermediate to hard terrain. If you are looking for a reliable and durable **knobby dirt bike tire** that can handle rough and challenging surfaces, this tire is designed to meet your needs. Whether you are a seasoned rider or an enthusiast seeking improved traction and control, the **Tusk EMEX T-45®** offers the performance required for demanding outdoor adventures.
@@ -49,10 +49,10 @@ The **Tusk EMEX T-45® Front Tire** features an aggressive knobby tread design t
 
 One of the key benefits of this tire is its balance between durability and performance. The tread pattern not only improves traction but also helps channel mud and debris away from the tire, maintaining grip even in challenging conditions. Manufactured by **TUSK**, a reputable name in the industry, the EMEX T-45® ensures riders get a quality product that enhances their riding experience on demanding terrain. This makes it a dependable option for those seeking a tire that can handle tough trails without compromising control or safety.
 
-## <a href="https://www.amazon.com/dp/B08KBMYDYY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wig Racing Scoop36 110/100-18 Sand Mud Dirt Bike Tire</a>
+## <a href="https://www.amazon.com/dp/B08KBMYDYY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wig Racing Scoop36 110/100-18 Sand Mud Dirt Bike Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B08KBMYDYY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WIG Racing Scoop36 110/100-18 Sand Mud Dirt Bike Tire with Heavy Duty 2.5mm Inner Tube" src="https://m.media-amazon.com/images/I/41OQ+x2czbL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08KBMYDYY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WIG Racing Scoop36 110/100-18 Sand Mud Dirt Bike Tire with Heavy Duty 2.5mm Inner Tube" src="https://m.media-amazon.com/images/I/41OQ+x2czbL._SL500_.jpg"/></a>
 
 
 The **WIG Racing Scoop36 110/100-18 Sand Mud Dirt Bike Tire** with a heavy-duty 2.5mm inner tube is ideal for off-road enthusiasts who demand durability and superior traction in challenging terrains. This tire is perfect for riders who frequently tackle sand, mud, and dirt trails and need a reliable, high-performance tire that can withstand harsh conditions. Whether you are a professional racer or an adventurous hobbyist, this tire offers the strength and grip necessary for optimal performance.
@@ -73,10 +73,10 @@ The **WIG Racing Scoop36** tire features a specialized tread pattern optimized f
 
 Additionally, the tire’s dimensions, including an 18-inch height and 4.3-inch width, provide enhanced stability and control, improving overall handling on rough terrain. Built by the reputable **WIG Racing** manufacturer, this tire offers a perfect balance between durability and performance, making it a top choice for dirt bike riders who require reliability and long-lasting quality in their equipment.
 
-## <a href="https://www.amazon.com/dp/B09NX387TQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tusk Emex T-35® Soft/intermediate Terrain Dirt Bike Front And Rear Tire Set</a>
+## <a href="https://www.amazon.com/dp/B09NX387TQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tusk Emex T-35® Soft/intermediate Terrain Dirt Bike Front And Rear Tire Set</a>
 
 
-<a href="https://www.amazon.com/dp/B09NX387TQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tusk EMEX T-35® Soft/Intermediate Terrain Dirt Bike Front and Rear Tire Set (60/100x14 &amp; 80/100x12)" src="https://m.media-amazon.com/images/I/41g85LzKpHL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09NX387TQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tusk EMEX T-35® Soft/Intermediate Terrain Dirt Bike Front and Rear Tire Set (60/100x14 &amp; 80/100x12)" src="https://m.media-amazon.com/images/I/41g85LzKpHL._SL500_.jpg"/></a>
 
 
 The **Tusk EMEX T-35® Soft/Intermediate Terrain Dirt Bike Front and Rear Tire Set** (60/100x14 & 80/100x12) is ideal for riders who frequently navigate mixed terrain conditions, including soft dirt and intermediate trails. This tire set is perfect for dirt bike enthusiasts looking to enhance their bike's traction, stability, and overall performance on varied off-road surfaces. Whether you're a casual trail rider or a competitive motocross participant, these tires provide the grip and durability needed for an improved riding experience.
@@ -98,10 +98,10 @@ The **Tusk EMEX T-35® tire set** features a specialized tread pattern designed 
 
 Built with durable materials, these tires offer resilience against wear and tear, making them a cost-effective choice for riders who demand consistent performance over multiple rides. The **TUSK brand** reputation adds confidence that this tire set meets quality standards for off-road biking enthusiasts. Overall, the Tusk EMEX T-35® set is a reliable upgrade for dirt bike riders aiming to conquer soft and intermediate terrain with confidence and enhanced control.
 
-## <a href="https://www.amazon.com/dp/B0DTJX3SNG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">80/100-12 Dirt Bike Tires Set</a>
+## <a href="https://www.amazon.com/dp/B0DTJX3SNG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">80/100-12 Dirt Bike Tires Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0DTJX3SNG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="80/100-12 Dirt Bike Tires Set, 3.0-12 Tire and 80/100-12 Dirt Bike Tube with Bent Valve, Tire Replacement 12 Inch Rear for Pit Bike Motocross E-Scooter Off Road Motorcycle" src="https://m.media-amazon.com/images/I/41bzDkBBVuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DTJX3SNG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="80/100-12 Dirt Bike Tires Set, 3.0-12 Tire and 80/100-12 Dirt Bike Tube with Bent Valve, Tire Replacement 12 Inch Rear for Pit Bike Motocross E-Scooter Off Road Motorcycle" src="https://m.media-amazon.com/images/I/41bzDkBBVuL._SL500_.jpg"/></a>
 
 
 The **80/100-12 Dirt Bike Tires Set** is an ideal purchase for **enthusiasts of off-road adventures**, including those who own **pit bikes**, **motocross bikes**, or **E-Scooters**. Designed specifically for the rugged terrains, this tire set is perfect for riders looking to replace their worn-out tires with something more reliable and performance-oriented. If you're someone who enjoys traversing through challenging landscapes or requires a dependable tire for your daily off-road commute, this tire set is crafted for you.
@@ -121,10 +121,10 @@ The **80/100-12 Dirt Bike Tires Set** features a robust **design** that enhances
 
 Another significant advantage is its **versatile compatibility**. Whether you own a **pit bike, motocross bike, or an E-Scooter**, this tire set is engineered to fit a wide range of models, offering flexibility and convenience for various riders. The tire's **grip-enhancing technology** not only improves performance on off-road trails but also provides a smoother ride on urban roads, making it a versatile choice for those who enjoy both adventure and daily commutes.
 
-## <a href="https://www.amazon.com/dp/B0D5VCF5RY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Dirt Bike Front/rear Tire And Inner Tubes Compatible With 110/100-18 80/100-21 Off Road Pit Bike/motorcycle Tires </a>
+## <a href="https://www.amazon.com/dp/B0D5VCF5RY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Dirt Bike Front/rear Tire And Inner Tubes Compatible With 110/100-18 80/100-21 Off Road Pit Bike/motorcycle Tires </a>
 
 
-<a href="https://www.amazon.com/dp/B0D5VCF5RY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="110/100-18 (4PR TT) 64M and 80/100-21 (4PR TT) 51M Dirt Bike Front/Rear Tire and Inner Tubes Compatible with 110/100-18 80/100-21 Off Road Pit Bike/Motorcycle Tires (P-2006+P-262)" src="https://m.media-amazon.com/images/I/51no+CXbgRL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D5VCF5RY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="110/100-18 (4PR TT) 64M and 80/100-21 (4PR TT) 51M Dirt Bike Front/Rear Tire and Inner Tubes Compatible with 110/100-18 80/100-21 Off Road Pit Bike/Motorcycle Tires (P-2006+P-262)" src="https://m.media-amazon.com/images/I/51no+CXbgRL._SL500_.jpg"/></a>
 
 
 The **110/100-18 (4PR TT) 64M and 80/100-21 (4PR TT) Dirt Bike Front/Rear Tire and Inner Tubes** set is ideal for dirt bike enthusiasts and off-road riders looking to upgrade or replace their tires with reliable and compatible options. This product is perfect for those who own off-road pit bikes or motorcycles that require durable, high-performance tires specifically sized for 110/100-18 and 80/100-21 fits. Riders who prioritize traction, durability, and ease of maintenance will find this tire and inner tube combo well-suited to their needs.
@@ -147,10 +147,10 @@ The **PaoWin 110/100-18 and 80/100-21 dirt bike tires** feature a robust 4PR TT 
 
 Additionally, these tires improve the overall handling and performance of your dirt bike by maintaining consistent traction and stability. Their compatibility with common off-road pit bike sizes means riders can easily upgrade or replace their worn-out tires without hassle. With the **PaoWin** brand backing this product, users can expect quality materials and construction, contributing to a safer and more enjoyable off-road riding experience.
 
-## <a href="https://www.amazon.com/dp/B09NP93ZRN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tusk Emex T-45® Intermediate/hard Terrain Dirt Bike Tire Set</a>
+## <a href="https://www.amazon.com/dp/B09NP93ZRN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tusk Emex T-45® Intermediate/hard Terrain Dirt Bike Tire Set</a>
 
 
-<a href="https://www.amazon.com/dp/B09NP93ZRN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tusk EMEX T-45® Intermediate/Hard Terrain Front &amp; Rear Dirt Bike Tire Set 80/100x21 &amp; 100/100x18 – Motocross, Trail, Enduro, Off-Road Knobby Tires" src="https://m.media-amazon.com/images/I/41YDA7Wj7nL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09NP93ZRN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tusk EMEX T-45® Intermediate/Hard Terrain Front &amp; Rear Dirt Bike Tire Set 80/100x21 &amp; 100/100x18 – Motocross, Trail, Enduro, Off-Road Knobby Tires" src="https://m.media-amazon.com/images/I/41YDA7Wj7nL._SL500_.jpg"/></a>
 
 
 The **Tusk EMEX T-45® Intermediate/Hard Terrain Front & Rear Dirt Bike Tire Set** is ideal for riders who frequently tackle a variety of challenging terrains such as motocross tracks, trails, enduro courses, and off-road environments. This tire set is perfect for dirt bike enthusiasts looking for reliable performance on both intermediate and hard terrain surfaces, ensuring optimal grip and durability for aggressive riding styles.
@@ -172,10 +172,10 @@ The **Tusk EMEX T-45® tire set** features a rugged knobby tread pattern that ex
 
 Constructed with durable materials, these tires resist wear and punctures, making them a dependable choice for riders who push their bikes hard in challenging off-road conditions. Additionally, the TUSK brand assures users of quality manufacturing standards, which means this tire set will provide consistent performance and longevity. Whether you are a seasoned off-road racer or a trail rider looking to upgrade, the Tusk EMEX T-45® tire set delivers excellent value with its versatile and robust design.
 
-## <a href="https://www.amazon.com/dp/B09LRT4XR1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wig Racing Off Road Dirt Bike Motocross Front Tire And Tube Combo</a>
+## <a href="https://www.amazon.com/dp/B09LRT4XR1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wig Racing Off Road Dirt Bike Motocross Front Tire And Tube Combo</a>
 
 
-<a href="https://www.amazon.com/dp/B09LRT4XR1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WIG Racing 90/90-21 Off Road Dirt Bike Motocross Front Tire and Tube Combo" src="https://m.media-amazon.com/images/I/41sbJ4DH87L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09LRT4XR1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WIG Racing 90/90-21 Off Road Dirt Bike Motocross Front Tire and Tube Combo" src="https://m.media-amazon.com/images/I/41sbJ4DH87L._SL500_.jpg"/></a>
 
 
 The **WIG Racing 90/90-21 Off Road Dirt Bike Motocross Front Tire and Tube Combo** is ideal for motocross enthusiasts and off-road riders who demand reliable performance and durability. If you own a dirt bike and frequently tackle rugged terrains, this tire combo is designed to enhance your riding experience by providing superior traction and stability.
@@ -198,10 +198,10 @@ The **WIG Racing Off Road Front Tire and Tube Combo** is crafted to deliver exce
 
 By combining both the tire and tube in one package, this combo simplifies maintenance and replacement for dirt bike owners. The lightweight design at 17 pounds helps reduce the overall weight on the front end of the bike, which can enhance steering responsiveness and reduce rider fatigue during long rides. Overall, this product is a practical choice for riders seeking durability, reliability, and improved off-road performance.
 
-## <a href="https://www.amazon.com/dp/B01N0KM1MV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dr.roc Tire Spoons Lever Motorcycle Dirt Bike Lawn Mower Tire Changing Tools</a>
+## <a href="https://www.amazon.com/dp/B01N0KM1MV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dr.roc Tire Spoons Lever Motorcycle Dirt Bike Lawn Mower Tire Changing Tools</a>
 
 
-<a href="https://www.amazon.com/dp/B01N0KM1MV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dr.Roc Tire Spoons Lever Motorcycle Dirt Bike Lawn Mower Tire Changing Tools with Bag 1x14.5 inch 2x11 inch Tire Irons 2X Rim Protectors 1x Valve Stems Set TR412 TR413" src="https://m.media-amazon.com/images/I/41J3PfR2FKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01N0KM1MV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dr.Roc Tire Spoons Lever Motorcycle Dirt Bike Lawn Mower Tire Changing Tools with Bag 1x14.5 inch 2x11 inch Tire Irons 2X Rim Protectors 1x Valve Stems Set TR412 TR413" src="https://m.media-amazon.com/images/I/41J3PfR2FKL._SL500_.jpg"/></a>
 
 
 The **Dr.Roc Tire Spoons Lever** set is ideal for motorcycle enthusiasts, dirt bike riders, and lawn mower owners who frequently need to change or repair tires. If you are someone who values having a reliable and comprehensive tire changing tool kit that is portable and easy to use, this product is designed for you. It caters to both professionals and hobbyists who want to perform maintenance efficiently without damaging rims or tires.
@@ -223,10 +223,10 @@ The **Dr.Roc Tire Spoons Lever** kit is thoughtfully designed to offer a complet
 
 Additionally, the lightweight construction combined with a convenient carrying bag ensures that users can transport their tools effortlessly to wherever they need to perform maintenance. The valve stems set adds value by enabling quick replacements without the need for additional purchases. Overall, this kit enhances the tire changing experience by combining durability, portability, and comprehensive functionality, making it a valuable asset for anyone involved in tire upkeep.
 
-## <a href="https://www.amazon.com/dp/B08JZG1SF4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wig Racing Motocross Tire Set</a>
+## <a href="https://www.amazon.com/dp/B08JZG1SF4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wig Racing Motocross Tire Set</a>
 
 
-<a href="https://www.amazon.com/dp/B08JZG1SF4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WIG Racing 2.75-10 and 2.5-10 Motocross Tire Set 2.75x10, 2.5x10 Dirt Bike Tire Combo CRF50, XR50, PW50, TTR50" src="https://m.media-amazon.com/images/I/41qNZRwoH7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08JZG1SF4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WIG Racing 2.75-10 and 2.5-10 Motocross Tire Set 2.75x10, 2.5x10 Dirt Bike Tire Combo CRF50, XR50, PW50, TTR50" src="https://m.media-amazon.com/images/I/41qNZRwoH7L._SL500_.jpg"/></a>
 
 
 The **WIG Racing 2.75-10 and 2.5-10 Motocross Tire Set** is ideal for riders who own smaller dirt bikes such as the **CRF50, XR50, PW50, and TTR50**. If you are looking to upgrade your bike’s tires for better performance on motocross tracks or off-road trails, this combo set offers a perfect fit and reliable traction. It is especially suitable for beginners and young riders who need durable tires that can handle rough terrain with ease.
@@ -248,10 +248,10 @@ The **WIG Racing Motocross Tire Set** features robust construction with precise 
 
 Additionally, the lightweight design of this tire combo, weighing only **8.0 pounds**, ensures that the bike maintains agility without adding unnecessary bulk. This helps younger or less experienced riders maintain better control, reducing fatigue during extended rides. Overall, the **WIG Racing tire set** offers a balanced combination of durability, performance, and ease of use, making it an excellent upgrade for dirt bike enthusiasts focused on quality and reliability.
 
-## <a href="https://www.amazon.com/dp/B08LC9DN25?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Off-road Tire And Inner Tube Set</a>
+## <a href="https://www.amazon.com/dp/B08LC9DN25?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Off-road Tire And Inner Tube Set</a>
 
 
-<a href="https://www.amazon.com/dp/B08LC9DN25?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="(2 Set) 2.5-10" src="https://m.media-amazon.com/images/I/41aHKY5qfjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08LC9DN25?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="(2 Set) 2.5-10" src="https://m.media-amazon.com/images/I/41aHKY5qfjL._SL500_.jpg"/></a>
 
 
 The **(2 Set) 2.5-10" Off-Road Tire and Inner Tube Set** by **AR-PRO** is ideal for dirt bike enthusiasts who own models like the **Honda CRF50**, **XR50**, **Suzuki DRZ70**, **JR50**, and **Yamaha PW50**. This set is perfect for riders seeking reliable, heavy-duty tires and tubes that offer enhanced durability and performance on rugged off-road terrains. Whether you are a beginner or an experienced rider looking to replace worn-out tires, this product caters to your needs with its compatibility and robust design.

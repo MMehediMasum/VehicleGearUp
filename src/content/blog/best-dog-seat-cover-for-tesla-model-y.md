@@ -23,10 +23,10 @@ Some include door protectors and hard bottoms for added comfort and durability. 
 
 
 
-## <a href="https://www.amazon.com/dp/B098B234P8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Meginc Dog Seat Covers For Tesla Model Y</a>
+## <a href="https://www.amazon.com/dp/B098B234P8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Meginc Dog Seat Covers For Tesla Model Y</a>
 
 
-<a href="https://www.amazon.com/dp/B098B234P8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Meginc Dog Seat Covers for Tesla Model Y, Car Hammock for Tesla Model Y 2022-2025 with Side Flaps, 100% Waterproof Pet Car Seat Cover with Mesh Window &amp; Headrest Protector Easy Clean up Pet Liner" src="https://m.media-amazon.com/images/I/41Iuk1-6Y6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B098B234P8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Meginc Dog Seat Covers for Tesla Model Y, Car Hammock for Tesla Model Y 2022-2025 with Side Flaps, 100% Waterproof Pet Car Seat Cover with Mesh Window &amp; Headrest Protector Easy Clean up Pet Liner" src="https://m.media-amazon.com/images/I/41Iuk1-6Y6L._SL500_.jpg"/></a>
 
 
 The **Meginc Dog Seat Covers for Tesla Model Y** are perfect for Tesla owners who frequently travel with their pets and want to protect their car’s interior. Ideal for pet parents who prioritize both functionality and style, this **car hammock** is designed specifically for the **Tesla Model Y 2022-2025** models. If you are looking for a durable, easy-to-clean, and waterproof solution to keep your car seats safe from dirt, scratches, and pet hair, this product is the right choice.
@@ -49,10 +49,10 @@ The **Meginc Dog Seat Covers** boast a highly durable and fully waterproof fabri
 
 Additionally, this seat cover’s **headrest protector** secures the liner firmly in place, preventing unwanted slips or bunching. Its easy-to-clean surface simplifies maintenance, making it ideal for pet owners who want a hassle-free solution to keep their vehicle pristine. Overall, the Meginc Dog Seat Cover is a smart investment for Tesla Model Y owners who want to combine pet comfort with vehicle protection.
 
-## <a href="https://www.amazon.com/dp/B0DQD8Z25Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Peticon Dog Seat Covers For Tesla Model 3 &amp; Y Back Seat</a>
+## <a href="https://www.amazon.com/dp/B0DQD8Z25Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Peticon Dog Seat Covers For Tesla Model 3 &amp; Y Back Seat</a>
 
 
-<a href="https://www.amazon.com/dp/B0DQD8Z25Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PETICON Dog Seat Covers for Tesla Model 3 &amp; Y Back Seat with 2 Pack Door Protectors, 100% Waterproof Dog Hammock for Tesla with Mesh Window &amp; Headrest Protection Prevents Scratches and Scuffs" src="https://m.media-amazon.com/images/I/51oUTjti3ML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DQD8Z25Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PETICON Dog Seat Covers for Tesla Model 3 &amp; Y Back Seat with 2 Pack Door Protectors, 100% Waterproof Dog Hammock for Tesla with Mesh Window &amp; Headrest Protection Prevents Scratches and Scuffs" src="https://m.media-amazon.com/images/I/51oUTjti3ML._SL500_.jpg"/></a>
 
 
 The **PETICON Dog Seat Covers for Tesla Model 3 & Y Back Seat** are perfect for Tesla owners who frequently travel with their dogs and want to protect their car’s interior from dirt, scratches, and pet hair. Ideal for pet lovers who value both style and functionality, this product is designed specifically to fit the Tesla Model 3 and Model Y, making it an excellent choice for those seeking a custom solution to keep their vehicle clean and damage-free.
@@ -74,10 +74,10 @@ The **PETICON Dog Seat Covers** boast a durable and fully waterproof design, ens
 
 Additionally, the seat covers feature reinforced headrest protection to safeguard the upholstery from sharp claws and general wear and tear. The custom fit for Tesla Model 3 and Y means installation is straightforward and the cover stays securely in place during travel. This product combines practical protection with thoughtful design, making it an excellent investment for Tesla owners who want to maintain their vehicle’s pristine condition while enjoying pet-friendly rides.
 
-## <a href="https://www.amazon.com/dp/B08MLCYT8T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ibuddy Dog Seat Cover For Tesla Model 3</a>
+## <a href="https://www.amazon.com/dp/B08MLCYT8T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ibuddy Dog Seat Cover For Tesla Model 3</a>
 
 
-<a href="https://www.amazon.com/dp/B08MLCYT8T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="iBuddy Dog Seat Cover for Tesla Model 3 Waterproof Car Seat Protector with Mesh Window Dog Car Hammock Against Dirt and Fur Anti-Scratch Nonslip Machine Washable Back Seat Cover for Model Y" src="https://m.media-amazon.com/images/I/51Mj7VJqxBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08MLCYT8T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="iBuddy Dog Seat Cover for Tesla Model 3 Waterproof Car Seat Protector with Mesh Window Dog Car Hammock Against Dirt and Fur Anti-Scratch Nonslip Machine Washable Back Seat Cover for Model Y" src="https://m.media-amazon.com/images/I/51Mj7VJqxBL._SL500_.jpg"/></a>
 
 
 The **iBuddy Dog Seat Cover for Tesla Model 3** is ideal for pet owners who frequently travel with their dogs and want to keep their car seats clean and protected. Specifically designed for the **Tesla Model 3** and compatible with Model Y, this seat cover is perfect for those seeking a durable, waterproof, and easy-to-maintain solution to guard their vehicle’s interior against dirt, fur, and scratches. If you value convenience, cleanliness, and your dog's comfort during car rides, this product is an excellent choice.
@@ -102,10 +102,10 @@ The **iBuddy Dog Seat Cover** offers a tailored fit for Tesla Model 3 and Model 
 
 Designed with durability in mind, this seat cover’s anti-scratch surface guards against pet claws, while the nonslip backing prevents unwanted movement, ensuring your pet’s safety on bumpy roads. Its versatility as a hammock-style cover adds an extra layer of security and comfort, reducing the chance of your dog slipping into the footwell. Plus, the machine washable fabric makes cleanup effortless, letting you maintain a fresh and hygienic car interior with minimal effort.
 
-## <a href="https://www.amazon.com/dp/B0F1SRY4WV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dog Seat Cover For Tesla Model Y Bench Seat Cover</a>
+## <a href="https://www.amazon.com/dp/B0F1SRY4WV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dog Seat Cover For Tesla Model Y Bench Seat Cover</a>
 
 
-<a href="https://www.amazon.com/dp/B0F1SRY4WV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Dog Seat Cover For Tesla Model Y Bench Seat Cover Easy to Install Rear Seat Protector for Kids Protects Car Seat from Hair Mud Scratches No Chemical Smell Pet Seat Protector for 2020-2025 Model Y" src="https://m.media-amazon.com/images/I/41ViD-O5rJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F1SRY4WV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Dog Seat Cover For Tesla Model Y Bench Seat Cover Easy to Install Rear Seat Protector for Kids Protects Car Seat from Hair Mud Scratches No Chemical Smell Pet Seat Protector for 2020-2025 Model Y" src="https://m.media-amazon.com/images/I/41ViD-O5rJL._SL500_.jpg"/></a>
 
 
 The **Dog Seat Cover For Tesla Model Y** is a must-have for **Tesla Model Y** owners who frequently travel with their furry friends or young children. If you are someone who values keeping your car interior pristine while enjoying the company of your pets or children, this product is designed specifically for you. With its easy installation and robust protection, it's ideal for dog owners and parents who want to maintain the cleanliness and appearance of their car's back seat.
@@ -125,10 +125,10 @@ The **Dog Seat Cover For Tesla Model Y** by **iBuddy** is designed with convenie
 
 One of the standout features of this seat cover is its ability to protect against common messes caused by pets and kids, such as hair, mud, and scratches. This feature is particularly beneficial for pet owners and parents who want to keep their car seats in top condition. Additionally, the absence of a chemical smell ensures that your car's interior remains fresh and welcoming, making every ride more enjoyable for both passengers and pets.
 
-## <a href="https://www.amazon.com/dp/B0DPHQ9SYX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Urpower Dog Back Seat Extender For Tesla Model Y</a>
+## <a href="https://www.amazon.com/dp/B0DPHQ9SYX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Urpower Dog Back Seat Extender For Tesla Model Y</a>
 
 
-<a href="https://www.amazon.com/dp/B0DPHQ9SYX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="URPOWER Dog Back Seat Extender for Tesla Model Y, Hard Bottom Dog Car Seat Cover Holds 400 lbs, Waterproof Dogs Hammock for Car Pet Backseat &amp; Door Protector Dogs Car Bed for Model Y 2025-2020" src="https://m.media-amazon.com/images/I/518nTS0x-mL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DPHQ9SYX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="URPOWER Dog Back Seat Extender for Tesla Model Y, Hard Bottom Dog Car Seat Cover Holds 400 lbs, Waterproof Dogs Hammock for Car Pet Backseat &amp; Door Protector Dogs Car Bed for Model Y 2025-2020" src="https://m.media-amazon.com/images/I/518nTS0x-mL._SL500_.jpg"/></a>
 
 
 The **URPOWER Dog Back Seat Extender** for **Tesla Model Y** is ideal for pet owners who frequently travel with their dogs and want to ensure safety, comfort, and cleanliness during car rides. If you own a **Tesla Model Y (2020-2025)** and want to provide a secure space for your dog while protecting your car’s interior, this product is a perfect choice. It is especially useful for those with medium to large dogs, given its robust design and weight capacity.
@@ -150,10 +150,10 @@ The **URPOWER Dog Back Seat Extender** is crafted with a **hard bottom** and dur
 
 Additionally, the extender doubles as a **dog hammock**, which not only keeps your pet secure but also adds an extra layer of protection to the car doors. This feature is particularly beneficial for active dogs who tend to scratch or lean against the doors while traveling. The product’s compatibility with the **Tesla Model Y** ensures a snug fit, so you can trust that it will stay in place without shifting during the drive, enhancing both pet safety and driver focus.
 
-## <a href="https://www.amazon.com/dp/B0DNJ47PXZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lassie Dog Hammock For Car</a>
+## <a href="https://www.amazon.com/dp/B0DNJ47PXZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lassie Dog Hammock For Car</a>
 
 
-<a href="https://www.amazon.com/dp/B0DNJ47PXZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Lassie Dog Hammock for Car, Compatible with 2020-2025 Tesla Model Y Dog Seat Covers,Dog Car Seat Cover for Back Seat with 4 Headrests and 2 Seat Belts, 100% Waterproof Pet Seat Protector for Dogs" src="https://m.media-amazon.com/images/I/41uyWVHxr1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DNJ47PXZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Lassie Dog Hammock for Car, Compatible with 2020-2025 Tesla Model Y Dog Seat Covers,Dog Car Seat Cover for Back Seat with 4 Headrests and 2 Seat Belts, 100% Waterproof Pet Seat Protector for Dogs" src="https://m.media-amazon.com/images/I/41uyWVHxr1L._SL500_.jpg"/></a>
 
 
 The **Lassie Dog Hammock for Car** is an ideal choice for Tesla Model Y owners from 2020 to 2025 who want to keep their vehicle's back seat clean and protected while ensuring their pet's comfort and safety during car rides. Pet owners looking for a durable, waterproof, and easy-to-install dog seat cover will find this product especially useful.
@@ -175,10 +175,10 @@ The **Lassie Dog Hammock for Car** boasts a tailored design that fits seamlessly
 
 Made with **100% waterproof** material, this pet seat protector guards against accidents, muddy paws, and shedding, preserving the pristine condition of your car's upholstery. Its durable construction promises long-lasting use, while the sleek black color complements the interior aesthetics of the Tesla. Cleaning is hassle-free, making it an excellent investment for pet owners who frequently travel with their dogs.
 
-## <a href="https://www.amazon.com/dp/B0DFTZJ7CS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Evmods Upgraded For Tesla Dog Car Seat Cover Protector Rear Seat Covers</a>
+## <a href="https://www.amazon.com/dp/B0DFTZJ7CS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Evmods Upgraded For Tesla Dog Car Seat Cover Protector Rear Seat Covers</a>
 
 
-<a href="https://www.amazon.com/dp/B0DFTZJ7CS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="EVMODS 2024 Upgraded for Tesla Dog Car Seat Cover Protector Rear Seat Covers for Back Seat Wear-Resistant Kick Seatback Mats for Tesla Model Y/3 Accessories" src="https://m.media-amazon.com/images/I/51js-7pGfwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DFTZJ7CS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="EVMODS 2024 Upgraded for Tesla Dog Car Seat Cover Protector Rear Seat Covers for Back Seat Wear-Resistant Kick Seatback Mats for Tesla Model Y/3 Accessories" src="https://m.media-amazon.com/images/I/51js-7pGfwL._SL500_.jpg"/></a>
 
 
 The **EVMODS 2024 Upgraded Tesla Dog Car Seat Cover Protector** is ideal for Tesla Model Y and Model 3 owners who frequently travel with their pets. If you want to keep your car’s rear seats clean, protected, and free from scratches or wear caused by pets, this durable accessory is a perfect choice. Pet owners looking for a reliable, wear-resistant solution to safeguard their Tesla’s interior will find this product especially beneficial.
@@ -200,10 +200,10 @@ The **EVMODS 2024 Upgraded Dog Car Seat Cover Protector** offers premium protect
 
 Besides durability, this seat cover is also designed with convenience in mind. It can be easily installed and removed, allowing you to maintain a clean and pet-friendly car interior effortlessly. The sleek black color not only matches the Tesla’s interior aesthetic but also helps conceal everyday dirt and pet-related messes. Overall, this accessory delivers both protection and style, making it an excellent investment for pet owners who want to keep their Tesla’s interior in pristine condition.
 
-## <a href="https://www.amazon.com/dp/B0DK13CL95?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Furtime Dog Car Seat Cover For Back Seat</a>
+## <a href="https://www.amazon.com/dp/B0DK13CL95?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Furtime Dog Car Seat Cover For Back Seat</a>
 
 
-<a href="https://www.amazon.com/dp/B0DK13CL95?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="FURTIME Dog Car Seat Cover for Back Seat, Upgraded PU Leather Back Seat Extender with Hard Bottom Holds 400LBS, Waterproof Anti-Scratch, Large Space Back Seat Cover for Car, SUV, Small Truck" src="https://m.media-amazon.com/images/I/41my3mK0+1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DK13CL95?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="FURTIME Dog Car Seat Cover for Back Seat, Upgraded PU Leather Back Seat Extender with Hard Bottom Holds 400LBS, Waterproof Anti-Scratch, Large Space Back Seat Cover for Car, SUV, Small Truck" src="https://m.media-amazon.com/images/I/41my3mK0+1L._SL500_.jpg"/></a>
 
 
 The **FURTIME Dog Car Seat Cover for Back Seat** is ideal for pet owners who frequently travel with their dogs and want to protect their car’s interior from scratches, dirt, and spills. This product is perfect for those who drive **cars, SUVs, or small trucks** and need a durable, waterproof, and spacious seat cover that can also serve as a comfortable space for their pets during trips.
@@ -224,10 +224,10 @@ The **FURTIME Dog Car Seat Cover** stands out with its upgraded **PU leather** c
 
 Additionally, the large space created by the back seat extender offers more room for pets to move around or lie down during trips, improving their comfort and safety. The cover’s design is compatible with a variety of vehicles such as cars, SUVs, and small trucks, making it a versatile choice for many pet owners. With easy maintenance and durable materials, this seat cover not only protects your vehicle but also enhances the overall travel experience for both you and your furry companion.
 
-## <a href="https://www.amazon.com/dp/B0DGVRR3TB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Arcoche Dog Seat Covers For Tesla Model Y/3/s</a>
+## <a href="https://www.amazon.com/dp/B0DGVRR3TB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Arcoche Dog Seat Covers For Tesla Model Y/3/s</a>
 
 
-<a href="https://www.amazon.com/dp/B0DGVRR3TB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Arcoche Dog Seat Covers for Tesla Model Y/3/S - Breathable Quilted Fleece Pet Liner Waterproof and Scratchproof Back Seat Protector Model Y Accessories with Hammock Design" src="https://m.media-amazon.com/images/I/419kblXdjWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DGVRR3TB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Arcoche Dog Seat Covers for Tesla Model Y/3/S - Breathable Quilted Fleece Pet Liner Waterproof and Scratchproof Back Seat Protector Model Y Accessories with Hammock Design" src="https://m.media-amazon.com/images/I/419kblXdjWL._SL500_.jpg"/></a>
 
 
 The **Arcoche Dog Seat Covers for Tesla Model Y/3/S** are perfect for pet owners who frequently travel with their dogs and want to keep their car interiors clean and protected. Ideal for Tesla Model Y, 3, and S owners, this seat cover is designed to fit perfectly and provide maximum comfort and safety for pets during rides. If you are looking for a durable, waterproof, and scratchproof solution to safeguard your back seat while ensuring your dog’s comfort, this product is an excellent choice.
@@ -249,10 +249,10 @@ The **Arcoche Dog Seat Cover** features a breathable quilted fleece surface that
 
 Designed exclusively for Tesla Model Y, 3, and S, this seat cover fits seamlessly into your vehicle’s interior without interfering with seat belts or airbags. Installation is straightforward, making it easy to switch between pet transport and everyday use. With the Arcoche seat cover, you get a blend of style, functionality, and protection that enhances both your and your pet’s travel experience.
 
-## <a href="https://www.amazon.com/dp/B0CJRY1PSF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tesbeauty Dog Seat Cover For Tesla Model Y Tesla Model 3 Tesla Model S</a>
+## <a href="https://www.amazon.com/dp/B0CJRY1PSF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tesbeauty Dog Seat Cover For Tesla Model Y Tesla Model 3 Tesla Model S</a>
 
 
-<a href="https://www.amazon.com/dp/B0CJRY1PSF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="TESBEAUTY Dog Seat Cover for Tesla Model Y Tesla Model 3 Tesla Model S Back Seat Cover for Pets Custom-Designed Each inch Protected Waterproof All Protected Anti Scratch" src="https://m.media-amazon.com/images/I/51qpINjUJzL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CJRY1PSF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="TESBEAUTY Dog Seat Cover for Tesla Model Y Tesla Model 3 Tesla Model S Back Seat Cover for Pets Custom-Designed Each inch Protected Waterproof All Protected Anti Scratch" src="https://m.media-amazon.com/images/I/51qpINjUJzL._SL500_.jpg"/></a>
 
 
 The **TESBEAUTY Dog Seat Cover** is ideal for Tesla owners who frequently travel with their pets, especially those with a **Tesla Model Y**, **Model 3**, or **Model S**. If you want to keep your car’s back seat clean and protected while ensuring your furry friend's comfort and safety during rides, this custom-designed seat cover is a perfect choice. It’s especially suited for pet owners who value durability, waterproof materials, and scratch resistance.

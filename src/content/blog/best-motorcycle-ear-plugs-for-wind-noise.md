@@ -23,10 +23,10 @@ Removable ear pads from Milisten and POPETPOP add extra comfort and warmth in co
 
 
 
-## <a href="https://www.amazon.com/dp/B096745ZKZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Earasers Noise Cancelling Earplugs</a>
+## <a href="https://www.amazon.com/dp/B096745ZKZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Earasers Noise Cancelling Earplugs</a>
 
 
-<a href="https://www.amazon.com/dp/B096745ZKZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EARasers Noise Cancelling Earplugs - Reusable Soft Silicone Noise Reduction Motorsports Standard Ear Plugs for Motorcycles, Bikers – Full Helmet – 19dB Peak Reduction (Large)" src="https://m.media-amazon.com/images/I/31qKJbHAeuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B096745ZKZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EARasers Noise Cancelling Earplugs - Reusable Soft Silicone Noise Reduction Motorsports Standard Ear Plugs for Motorcycles, Bikers – Full Helmet – 19dB Peak Reduction (Large)" src="https://m.media-amazon.com/images/I/31qKJbHAeuL._SL500_.jpg"/></a>
 
 
 The **EARasers Noise Cancelling Earplugs** are ideal for individuals who require effective noise reduction while maintaining comfort during high-noise activities. This product is perfect for **motorcycle riders**, **motorsports enthusiasts**, and anyone who needs to protect their hearing under a **full helmet** without sacrificing sound clarity or comfort. Users seeking a **reusable** and **soft silicone** earplug with reliable noise cancellation will find this item particularly beneficial.
@@ -48,10 +48,10 @@ The **EARasers Noise Cancelling Earplugs** feature a high-grade **soft silicone*
 
 Additionally, the earplugs’ **transparent** and low-profile design makes them nearly invisible, allowing users to wear them discreetly under helmets or in other noisy environments. Their lightweight and compact size makes them easy to carry, while the reusable nature means they offer an eco-friendly and cost-effective solution to noise protection. Overall, these earplugs balance performance, comfort, and convenience, making them an excellent choice for bikers and motorsports enthusiasts seeking effective noise reduction.
 
-## <a href="https://www.amazon.com/dp/B0DFSL4R57?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Moto4u Skirt Helmet Motorcycle Helmet</a>
+## <a href="https://www.amazon.com/dp/B0DFSL4R57?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Moto4u Skirt Helmet Motorcycle Helmet</a>
 
 
-<a href="https://www.amazon.com/dp/B0DFSL4R57?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MOTO4U Skirt Helmet Motorcycle Helmet,Motorcycle Helmet Wind Noise Silencer,Wind Curtain,Reduce Noise,Easy Install,fits All Full Face Helmets Long Type" src="https://m.media-amazon.com/images/I/31YnPYr9ygL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DFSL4R57?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MOTO4U Skirt Helmet Motorcycle Helmet,Motorcycle Helmet Wind Noise Silencer,Wind Curtain,Reduce Noise,Easy Install,fits All Full Face Helmets Long Type" src="https://m.media-amazon.com/images/I/31YnPYr9ygL._SL500_.jpg"/></a>
 
 
 The **MOTO4U Skirt Helmet Motorcycle Helmet** is ideal for motorcyclists who seek to enhance their riding experience by reducing wind noise and improving helmet comfort. This product is perfect for riders using full-face helmets who want an easy-to-install accessory that fits all long-type helmets and helps create a quieter, more enjoyable ride.
@@ -73,10 +73,10 @@ The **MOTO4U Skirt Helmet Motorcycle Helmet** features a specialized wind noise 
 
 Additionally, the product’s easy installation process means riders can quickly attach or remove the noise silencer without professional assistance. Its precise dimensions make it a versatile accessory that fits most long-type full-face helmets, enhancing the overall riding experience. By investing in this helmet skirt, users benefit from a quieter, more comfortable ride, which can reduce fatigue and increase concentration on the road.
 
-## <a href="https://www.amazon.com/dp/B0FF2ZDKHJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gririw 4pcs Removable Helmet Ear Covers</a>
+## <a href="https://www.amazon.com/dp/B0FF2ZDKHJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gririw 4pcs Removable Helmet Ear Covers</a>
 
 
-<a href="https://www.amazon.com/dp/B0FF2ZDKHJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GRIRIW 4Pcs Removable Helmet Ear Covers Wind Blocker Noise Reduction Pads for Winter Riding Biking and Electric Scooters Versatile Ears Protection for Outdoor Activities" src="https://m.media-amazon.com/images/I/31c6yhqjknL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FF2ZDKHJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GRIRIW 4Pcs Removable Helmet Ear Covers Wind Blocker Noise Reduction Pads for Winter Riding Biking and Electric Scooters Versatile Ears Protection for Outdoor Activities" src="https://m.media-amazon.com/images/I/31c6yhqjknL._SL500_.jpg"/></a>
 
 
 The **GRIRIW 4Pcs Removable Helmet Ear Covers** are perfect for riders who frequently brave the cold, windy conditions during winter. Ideal for motorcyclists, bikers, and electric scooter users seeking enhanced comfort and protection, these ear covers help block wind and reduce noise, making outdoor riding more enjoyable and safer. If you want to safeguard your ears from harsh weather while maintaining clear hearing, this product is designed for you.
@@ -99,10 +99,10 @@ Featuring a smart and ergonomic design by **GRIRIW**, these ear covers fit comfo
 
 Additionally, the **removable** nature of these ear covers offers easy maintenance and adaptability. Riders can quickly detach the pads to clean or replace them, ensuring hygiene and longevity. Their versatility extends beyond motorbiking to other outdoor activities like cycling or electric scooter riding, making them a practical accessory for anyone exposed to cold and noisy environments. Overall, these ear covers enhance riding comfort and safety, making winter rides more pleasant.
 
-## <a href="https://www.amazon.com/dp/B0FDWZ2ZBW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Milisten Helmet Ear Covers</a>
+## <a href="https://www.amazon.com/dp/B0FDWZ2ZBW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Milisten Helmet Ear Covers</a>
 
 
-<a href="https://www.amazon.com/dp/B0FDWZ2ZBW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Milisten 4pcs Helmet Ear Covers Removable Ear Pads for Wind Protection Noise Reduction and Comfort Winter Riding Biking and Electric Scooters" src="https://m.media-amazon.com/images/I/31MFzINOW8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FDWZ2ZBW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Milisten 4pcs Helmet Ear Covers Removable Ear Pads for Wind Protection Noise Reduction and Comfort Winter Riding Biking and Electric Scooters" src="https://m.media-amazon.com/images/I/31MFzINOW8L._SL500_.jpg"/></a>
 
 
 The **Milisten 4pcs Helmet Ear Covers** are ideal for riders who frequently face cold, windy conditions while biking, winter riding, or using electric scooters. If you are someone looking for enhanced **wind protection**, **noise reduction**, and added **comfort** during your rides, these ear pads are designed to meet your needs effectively.
@@ -124,10 +124,10 @@ The **Milisten Helmet Ear Covers** measure **6.69 inches in length**, **4.47 inc
 
 Crafted by **Milisten**, these ear pads are made with quality materials that balance durability with comfort. Riders will appreciate how the pads enhance the overall riding experience by reducing distractions caused by wind and noise while keeping ears warm during chilly rides. This makes them a valuable accessory for anyone who regularly rides in colder climates or noisy environments.
 
-## <a href="https://www.amazon.com/dp/B0FDWXWM6M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Popetpop Helmet Ear Covers</a>
+## <a href="https://www.amazon.com/dp/B0FDWXWM6M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Popetpop Helmet Ear Covers</a>
 
 
-<a href="https://www.amazon.com/dp/B0FDWXWM6M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="POPETPOP 4pcs Detachable Helmet Ear Covers Windproof Protection Pads for Cycling Helmets Ear Muffs Noise Reduction for Cold Weather Riding" src="https://m.media-amazon.com/images/I/31hTB5VQiCL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FDWXWM6M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="POPETPOP 4pcs Detachable Helmet Ear Covers Windproof Protection Pads for Cycling Helmets Ear Muffs Noise Reduction for Cold Weather Riding" src="https://m.media-amazon.com/images/I/31hTB5VQiCL._SL500_.jpg"/></a>
 
 
 The **POPETPOP 4pcs Detachable Helmet Ear Covers** are perfect for **cyclists** who often ride in **cold weather** and are looking for a way to keep their ears **warm** and **protected**. If you're someone who values **comfort** and **noise reduction** while cycling, especially during the winter months, these ear covers are an ideal addition to your gear.
@@ -148,10 +148,10 @@ The **detachable design** of these ear covers allows users to easily attach and 
 
 Another standout feature is the **noise reduction** capability. By minimizing the ambient noise, these ear covers help cyclists stay more **focused** on the road, thus enhancing **safety**. The **lightweight** and **compact** nature of the product makes it easy to carry and store when not in use, adding to its practicality. Overall, the **POPETPOP 4pcs Detachable Helmet Ear Covers** are a valuable accessory for any cyclist facing the challenges of **cold weather** riding.
 
-## <a href="https://www.amazon.com/dp/B0F4PPSXT2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cabilock Detachable Helmet Ear Pads</a>
+## <a href="https://www.amazon.com/dp/B0F4PPSXT2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cabilock Detachable Helmet Ear Pads</a>
 
 
-<a href="https://www.amazon.com/dp/B0F4PPSXT2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Cabilock Detachable Helmet Ear Pads for Motorcycle Helmets Soft Ear Covers Pads Fit for Cyclists" src="https://m.media-amazon.com/images/I/31HbR-adSbL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F4PPSXT2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Cabilock Detachable Helmet Ear Pads for Motorcycle Helmets Soft Ear Covers Pads Fit for Cyclists" src="https://m.media-amazon.com/images/I/31HbR-adSbL._SL500_.jpg"/></a>
 
 
 The **Cabilock Detachable Helmet Ear Pads** are ideal for **motorcycle riders** and **cyclists** seeking enhanced comfort and noise reduction during their rides. These **soft ear covers** are perfect for those who want to upgrade their existing helmets for a more comfortable and quieter experience, especially in colder weather or longer trips.

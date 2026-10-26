@@ -23,10 +23,10 @@ Lightweight frames prevent fatigue while wearing helmets. Sunglasses with wrap-a
 
 
 
-## <a href="https://www.amazon.com/dp/B098FMQ2GP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Birdz Eyewear Ladybird Women's Padded Motorcycle Sunglasses</a>
+## <a href="https://www.amazon.com/dp/B098FMQ2GP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Birdz Eyewear Ladybird Women's Padded Motorcycle Sunglasses</a>
 
 
-<a href="https://www.amazon.com/dp/B098FMQ2GP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Birdz Eyewear LadyBird Women's Padded Motorcycle Sunglasses 3 Pairs Rhinestone Black Frames" src="https://m.media-amazon.com/images/I/41DxmGZHjqS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B098FMQ2GP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Birdz Eyewear LadyBird Women's Padded Motorcycle Sunglasses 3 Pairs Rhinestone Black Frames" src="https://m.media-amazon.com/images/I/41DxmGZHjqS._SL500_.jpg"/></a>
 
 
 The **Birdz Eyewear LadyBird Women's Padded Motorcycle Sunglasses** are perfect for women who enjoy the thrill of motorcycle riding and want to maintain a stylish appearance while ensuring their eyes are protected. These sunglasses are ideal for female riders looking for a blend of **style**, **comfort**, and **protection** during their journeys.
@@ -47,10 +47,10 @@ The **rhinestone black frames** of these sunglasses not only offer a chic look b
 
 With both **clear** and **smoke-colored lenses**, these sunglasses provide versatility for varying light conditions. Clear lenses are perfect for night rides or overcast days, while smoke-colored lenses offer protection against bright sunlight. The combination of style, comfort, and practicality makes these sunglasses a valuable accessory for any female motorcyclist. Whether you're cruising down the highway or navigating through city streets, the Birdz Eyewear LadyBird Sunglasses ensure you do so in style and comfort.
 
-## <a href="https://www.amazon.com/dp/B0CXQ3ZHRS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rodeo Queen Angel Plus Padded Motorcycle Sunglasses</a>
+## <a href="https://www.amazon.com/dp/B0CXQ3ZHRS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rodeo Queen Angel Plus Padded Motorcycle Sunglasses</a>
 
 
-<a href="https://www.amazon.com/dp/B0CXQ3ZHRS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rodeo Queen Angel Plus Padded Motorcycle Sunglasses Womens 2 Pair Black Frame Rhinestone Sunglasses w/Silver Wing Accent Clear &amp; Gradient Smoke Lenses" src="https://m.media-amazon.com/images/I/41UQyXaITML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CXQ3ZHRS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rodeo Queen Angel Plus Padded Motorcycle Sunglasses Womens 2 Pair Black Frame Rhinestone Sunglasses w/Silver Wing Accent Clear &amp; Gradient Smoke Lenses" src="https://m.media-amazon.com/images/I/41UQyXaITML._SL500_.jpg"/></a>
 
 
 These **Rodeo Queen Angel Plus Padded Motorcycle Sunglasses** are perfect for women who love stylish and functional eyewear while riding. Ideal for female motorcyclists seeking both eye protection and a fashionable look, these sunglasses combine comfort and durability with unique design elements like rhinestones and silver wing accents. If you want to enhance your riding experience with a pair of sunglasses that offer both clear and gradient smoke lenses, this product is tailored for you.
@@ -73,10 +73,10 @@ The **Rodeo Queen Angel Plus Padded Motorcycle Sunglasses** stand out with their
 
 In addition to their practical features, these sunglasses offer a distinctive and feminine aesthetic with rhinestone detailing and silver wing accents. This combination of function and fashion makes them an excellent choice for women riders who want to express their personal style while benefiting from high-quality eye protection. Manufactured by Global Vision under the trusted Rodeo Queen brand, these sunglasses ensure durability and performance for everyday riding needs.
 
-## <a href="https://www.amazon.com/dp/B0021OFH9W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Global Vision Eyewear Marilyn 3 Womens Motorcycle Sunglasses</a>
+## <a href="https://www.amazon.com/dp/B0021OFH9W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Global Vision Eyewear Marilyn 3 Womens Motorcycle Sunglasses</a>
 
 
-<a href="https://www.amazon.com/dp/B0021OFH9W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Global Vision Eyewear Marilyn 3 Womens Motorcycle Sunglasses with EVA Foam Padding Bling" src="https://m.media-amazon.com/images/I/31bDFLx9X6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0021OFH9W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Global Vision Eyewear Marilyn 3 Womens Motorcycle Sunglasses with EVA Foam Padding Bling" src="https://m.media-amazon.com/images/I/31bDFLx9X6L._SL500_.jpg"/></a>
 
 
 The **Global Vision Eyewear Marilyn 3 Womens Motorcycle Sunglasses** with **EVA Foam Padding** and **Bling** are perfect for female motorcycle enthusiasts who prioritize both style and protection. These sunglasses are ideal for riders seeking durable, comfortable eyewear that offers excellent coverage and a fashionable edge on the road.
@@ -98,10 +98,10 @@ The **Global Vision Eyewear Marilyn 3** sunglasses feature a perfectly contoured
 
 Additionally, the lightweight construction makes these sunglasses ideal for long journeys, preventing discomfort and pressure around the temples. The subtle yet eye-catching bling detailing adds a stylish flair, allowing riders to express their personal style while enjoying functional benefits. Overall, these sunglasses offer a balanced blend of protection, comfort, and aesthetics tailored specifically for women motorcyclists.
 
-## <a href="https://www.amazon.com/dp/B00I7M4JLY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Global Vision Eyewear Hawkeye Motorcycle Riding Sunglasses For Women</a>
+## <a href="https://www.amazon.com/dp/B00I7M4JLY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Global Vision Eyewear Hawkeye Motorcycle Riding Sunglasses For Women</a>
 
 
-<a href="https://www.amazon.com/dp/B00I7M4JLY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Global Vision Eyewear Hawkeye Motorcycle Riding Sunglasses for Women Black Pink Frame w/Smoke Lenses" src="https://m.media-amazon.com/images/I/31HKRCgD1iL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00I7M4JLY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Global Vision Eyewear Hawkeye Motorcycle Riding Sunglasses for Women Black Pink Frame w/Smoke Lenses" src="https://m.media-amazon.com/images/I/31HKRCgD1iL._SL500_.jpg"/></a>
 
 
 The **Global Vision Eyewear Hawkeye Motorcycle Riding Sunglasses** with a sleek **Black Pink Frame** and **Smoke Lenses** are perfect for women who are passionate about motorcycling and outdoor activities. These sunglasses are ideal for riders seeking both style and functionality, offering eye protection without compromising on comfort or design. If you want durable, lightweight eyewear specifically tailored for motorcycle riding, these sunglasses are an excellent choice.
@@ -124,10 +124,10 @@ These **Global Vision Hawkeye Motorcycle Sunglasses** combine lightweight materi
 
 The ergonomic frame design ensures a snug fit, minimizing slippage even during intense or bumpy rides. With the **Global Vision Eyewear Corp** reputation backing this product, users can expect durability and long-term performance. Overall, these sunglasses offer a practical and fashionable solution for women motorcyclists looking to protect their eyes while riding in various lighting conditions.
 
-## <a href="https://www.amazon.com/dp/B07CSG6PQ5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wynd Blocker Polarized Motorcycle Riding Sunglasses</a>
+## <a href="https://www.amazon.com/dp/B07CSG6PQ5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wynd Blocker Polarized Motorcycle Riding Sunglasses</a>
 
 
-<a href="https://www.amazon.com/dp/B07CSG6PQ5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WYND Blocker Polarized Motorcycle Riding Sunglasses Sports Wrap Glasses, Black, Polarized Smoke" src="https://m.media-amazon.com/images/I/51cHPvat01L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07CSG6PQ5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WYND Blocker Polarized Motorcycle Riding Sunglasses Sports Wrap Glasses, Black, Polarized Smoke" src="https://m.media-amazon.com/images/I/51cHPvat01L._SL500_.jpg"/></a>
 
 
 These **WYND Blocker Polarized Motorcycle Riding Sunglasses** are ideal for motorcycle enthusiasts and outdoor sports lovers who require both style and protection. If you often ride in bright sunlight and want to reduce glare while maintaining clear vision, these **sports wrap glasses** are designed to enhance your riding experience.
@@ -148,10 +148,10 @@ The **WYND Blocker Polarized Motorcycle Riding Sunglasses** feature advanced pol
 
 Designed with sports enthusiasts in mind, these glasses boast a lightweight yet sturdy construction, weighing just under **0.2 pounds**. This ensures they stay comfortable on your face without causing fatigue. The wrap-around design provides superior protection against wind, dust, and debris, which is crucial for high-speed motorcycle riding. Overall, these glasses combine functionality and comfort, making them an excellent choice for riders seeking reliable eye protection.
 
-## <a href="https://www.amazon.com/dp/B0DKJ914KS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rodeo Queen Motorcycle Womens Sunglasses</a>
+## <a href="https://www.amazon.com/dp/B0DKJ914KS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rodeo Queen Motorcycle Womens Sunglasses</a>
 
 
-<a href="https://www.amazon.com/dp/B0DKJ914KS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rodeo Queen Motorcycle Womens Sunglasses Gloss Black Frame with Bling Rhinestones &amp; Smoke Gradient Lens" src="https://m.media-amazon.com/images/I/31sfnQ+EihL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DKJ914KS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rodeo Queen Motorcycle Womens Sunglasses Gloss Black Frame with Bling Rhinestones &amp; Smoke Gradient Lens" src="https://m.media-amazon.com/images/I/31sfnQ+EihL._SL500_.jpg"/></a>
 
 
 The **Rodeo Queen Motorcycle Womens Sunglasses** with a **Gloss Black Frame** adorned with **Bling Rhinestones** and featuring **Smoke Gradient Lenses** are perfect for women motorcyclists who want to combine style with protection. These sunglasses are ideal for riders seeking a bold, fashionable look while ensuring eye comfort and safety during rides.
@@ -172,10 +172,10 @@ These **Rodeo Queen motorcycle sunglasses** feature a bold and elegant design th
 
 Crafted by **Global Vision**, the glasses combine durability and style, ensuring they withstand the rigors of motorcycle riding. The comfortable fit and secure frame design keep the sunglasses in place even during high-speed rides, allowing riders to focus on the road ahead without distraction.
 
-## <a href="https://www.amazon.com/dp/B0083DE232?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gv Padded Women Lady Motorcycle Sunglasses Glasses</a>
+## <a href="https://www.amazon.com/dp/B0083DE232?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gv Padded Women Lady Motorcycle Sunglasses Glasses</a>
 
 
-<a href="https://www.amazon.com/dp/B0083DE232?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GV Padded Women Lady Motorcycle Sunglasses Glasses Pink and Chrome With Storage Bag" src="https://m.media-amazon.com/images/I/41goTXjqXpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0083DE232?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GV Padded Women Lady Motorcycle Sunglasses Glasses Pink and Chrome With Storage Bag" src="https://m.media-amazon.com/images/I/41goTXjqXpL._SL500_.jpg"/></a>
 
 
 The **GV Padded Women Lady Motorcycle Sunglasses Glasses Pink and Chrome** with Storage Bag are ideal for female motorcycle enthusiasts who prioritize both style and eye protection while riding. These sunglasses cater specifically to women seeking a combination of comfort, durability, and a fashionable look on the road. If you're a rider looking for eyewear that offers excellent glare reduction and a snug fit, this product is tailored for you.
@@ -198,10 +198,10 @@ The **GV Padded Women Lady Motorcycle Sunglasses** feature a stylish **flash mir
 
 Another significant benefit is the included **storage bag**, which protects the glasses from scratches and damage when not in use, making it convenient to carry around. Overall, these sunglasses combine practicality with aesthetics, making them a smart choice for female motorcyclists who want reliable eye protection that complements their riding gear.
 
-## <a href="https://www.amazon.com/dp/B0DVH8FNMG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wynd Blocker Polarized Dry Eye Wind Resistant Sunglasses</a>
+## <a href="https://www.amazon.com/dp/B0DVH8FNMG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wynd Blocker Polarized Dry Eye Wind Resistant Sunglasses</a>
 
 
-<a href="https://www.amazon.com/dp/B0DVH8FNMG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WYND Blocker Polarized Dry Eye Wind Resistant Sunglasses Motorcycle Glasses (Model 335 - Black Matte, PZ Smoke)" src="https://m.media-amazon.com/images/I/41wMMu7GCFL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DVH8FNMG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WYND Blocker Polarized Dry Eye Wind Resistant Sunglasses Motorcycle Glasses (Model 335 - Black Matte, PZ Smoke)" src="https://m.media-amazon.com/images/I/41wMMu7GCFL._SL500_.jpg"/></a>
 
 
 The **WYND Blocker Polarized Dry Eye Wind Resistant Sunglasses Motorcycle Glasses (Model 335 - Black Matte, PZ Smoke)** are ideal for outdoor enthusiasts, especially motorcyclists and cyclists who seek protection from wind and glare. These sunglasses are perfect for individuals who suffer from dry eyes or need effective eye protection during high-speed rides in various weather conditions.
@@ -224,10 +224,10 @@ The **WYND Blocker Sunglasses** feature **polarized lenses** that effectively re
 
 Additionally, the **smoke-colored lenses** enhance contrast and reduce eye strain, providing riders with clear vision and better focus on the road. The stylish black matte finish complements the practical features, making these glasses not only functional but also visually appealing. Whether you are a daily commuter or a weekend adventurer, these glasses offer a balanced combination of protection, comfort, and style for your outdoor activities.
 
-## <a href="https://www.amazon.com/dp/B00I7M4LVM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Global Vision Eyewear Marilyn 11 Ladies Motorcycle Sunglasses</a>
+## <a href="https://www.amazon.com/dp/B00I7M4LVM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Global Vision Eyewear Marilyn 11 Ladies Motorcycle Sunglasses</a>
 
 
-<a href="https://www.amazon.com/dp/B00I7M4LVM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Global Vision Eyewear Marilyn 11 Ladies Motorcycle Sunglasses Riding Glasses with Flash Mirror Lenses Bling" src="https://m.media-amazon.com/images/I/41jBaYiMDeL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00I7M4LVM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Global Vision Eyewear Marilyn 11 Ladies Motorcycle Sunglasses Riding Glasses with Flash Mirror Lenses Bling" src="https://m.media-amazon.com/images/I/41jBaYiMDeL._SL500_.jpg"/></a>
 
 
 The **Global Vision Eyewear Marilyn 11 Ladies Motorcycle Sunglasses** with **Flash Mirror Lenses Bling** are perfect for female motorcycle enthusiasts who seek both style and functionality in their riding gear. Ideal for women who want to protect their eyes from wind, dust, and glare while maintaining a fashionable appearance on the road. These sunglasses are also great for anyone looking for lightweight and durable eyewear with a bold red color accent.
@@ -248,10 +248,10 @@ The **Global Vision Marilyn 11 sunglasses** feature **flash mirror lenses** that
 
 Manufactured by the reputable **Global Vision Eyewear Corp**, these sunglasses are designed with both style and durability in mind. The compact weight and robust materials make them ideal for withstanding the demands of outdoor riding conditions. Whether commuting or cruising, these glasses offer reliable eye protection while complementing the rider’s look with their bling mirror finish.
 
-## <a href="https://www.amazon.com/dp/B0CXQ5YGFB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rodeo Queen Angel Padded Motorcycle Bling Sunglasses For Women</a>
+## <a href="https://www.amazon.com/dp/B0CXQ5YGFB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rodeo Queen Angel Padded Motorcycle Bling Sunglasses For Women</a>
 
 
-<a href="https://www.amazon.com/dp/B0CXQ5YGFB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rodeo Queen Angel Padded Motorcycle Bling Sunglasses for Women Black Frame w/Bling Rhinestones &amp; Smoke Gradient Lens" src="https://m.media-amazon.com/images/I/31mJERPZVEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CXQ5YGFB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rodeo Queen Angel Padded Motorcycle Bling Sunglasses for Women Black Frame w/Bling Rhinestones &amp; Smoke Gradient Lens" src="https://m.media-amazon.com/images/I/31mJERPZVEL._SL500_.jpg"/></a>
 
 
 The **Rodeo Queen Angel Padded Motorcycle Bling Sunglasses** are ideal for **women** who love riding motorcycles and want to combine **fashion** with **functionality**. These sunglasses are perfect for those who appreciate a touch of **glamour** while ensuring their **eyes** are protected from the harsh **elements** encountered on the road. Whether you're a casual rider or a seasoned enthusiast, these sunglasses add a stylish edge to your riding gear.

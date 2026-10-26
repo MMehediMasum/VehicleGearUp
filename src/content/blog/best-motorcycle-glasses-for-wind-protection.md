@@ -23,10 +23,10 @@ Many models feature foam padding for a snug fit and extra comfort. Some come wit
 
 
 
-## <a href="https://www.amazon.com/dp/B07D3J77KP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">3 Pair Motorcycle Riding Glasses</a>
+## <a href="https://www.amazon.com/dp/B07D3J77KP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">3 Pair Motorcycle Riding Glasses</a>
 
 
-<a href="https://www.amazon.com/dp/B07D3J77KP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="3 Pair Motorcycle Riding Glasses Padding Goggles UV Protection Dustproof Windproof Motorcycle Sunglasses with Clear Smoke Yellow Lens for Outdoor Sports Actives" src="https://m.media-amazon.com/images/I/41fl2elN21L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07D3J77KP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="3 Pair Motorcycle Riding Glasses Padding Goggles UV Protection Dustproof Windproof Motorcycle Sunglasses with Clear Smoke Yellow Lens for Outdoor Sports Actives" src="https://m.media-amazon.com/images/I/41fl2elN21L._SL500_.jpg"/></a>
 
 
 These **3 Pair Motorcycle Riding Glasses** are ideal for motorcycle enthusiasts and outdoor sports lovers who require reliable eye protection against environmental elements. If you frequently ride in varying weather conditions or enjoy outdoor activities, these **padding goggles** with **UV protection** and multiple lens options provide the versatility and comfort you need for a safer experience.
@@ -48,10 +48,10 @@ The **surpassme** brand, manufactured by **Modi Fly**, offers a set of versatile
 
 Additionally, the goggles' **dustproof and windproof** features protect against airborne debris and gusts that can distract or harm riders. The lightweight construction combined with comfortable padding ensures long-lasting wear without irritation. Overall, these glasses provide a practical, multi-functional solution for outdoor sports enthusiasts seeking reliable eye protection with the convenience of multiple lens options.
 
-## <a href="https://www.amazon.com/dp/B0D6WH6KVY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yisugooc Motorcycle Glasses</a>
+## <a href="https://www.amazon.com/dp/B0D6WH6KVY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yisugooc Motorcycle Glasses</a>
 
 
-<a href="https://www.amazon.com/dp/B0D6WH6KVY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="YISUGOOC 4 Pair Motorcycle Glasses Riding Glasses UV Protection Windproof And Dustproof Motorcycle Goggles Foam Cushion Eyeglasses Suitable For Outdoor Sports Motorcycle Riding" src="https://m.media-amazon.com/images/I/41CimTQ6fBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D6WH6KVY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="YISUGOOC 4 Pair Motorcycle Glasses Riding Glasses UV Protection Windproof And Dustproof Motorcycle Goggles Foam Cushion Eyeglasses Suitable For Outdoor Sports Motorcycle Riding" src="https://m.media-amazon.com/images/I/41CimTQ6fBL._SL500_.jpg"/></a>
 
 
 The **YISUGOOC 4 Pair Motorcycle Glasses** are ideal for avid **motorcycle riders** and outdoor sports enthusiasts who seek reliable **UV protection**, **windproof**, and **dustproof** eyewear. These glasses are perfect for those who want durable and comfortable goggles to enhance their riding experience while protecting their eyes from harsh environmental elements.
@@ -74,10 +74,10 @@ The **YISUGOOC Motorcycle Glasses** stand out with their multi-color set, allowi
 
 The combination of **UV protection**, **windproof**, and **dustproof** features ensures comprehensive eye protection, crucial for outdoor sports and motorcycle riding. These glasses not only shield the eyes from harmful rays and debris but also help maintain clear vision, which is vital for rider safety. Overall, the **YISUGOOC 4 Pair Motorcycle Glasses** offer an effective and comfortable solution for riders seeking dependable eye protection.
 
-## <a href="https://www.amazon.com/dp/B0BX573Z48?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Motorcycle Riding Glasses Foam Padded Eyewear Goggles</a>
+## <a href="https://www.amazon.com/dp/B0BX573Z48?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Motorcycle Riding Glasses Foam Padded Eyewear Goggles</a>
 
 
-<a href="https://www.amazon.com/dp/B0BX573Z48?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="(3 PCS) Motorcycle Riding Glasses Foam Padded Eyewear Goggles UV Protection Anti-Wind Dustproof Motorcycle Sunglasses for Outdoor Activities Sports-Clear Yellow Smoke.1" src="https://m.media-amazon.com/images/I/414q-rKf3kL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BX573Z48?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="(3 PCS) Motorcycle Riding Glasses Foam Padded Eyewear Goggles UV Protection Anti-Wind Dustproof Motorcycle Sunglasses for Outdoor Activities Sports-Clear Yellow Smoke.1" src="https://m.media-amazon.com/images/I/414q-rKf3kL._SL500_.jpg"/></a>
 
 
 These **Motorcycle Riding Glasses** are ideal for outdoor enthusiasts and motorcyclists who seek reliable eye protection during rides and various sports activities. If you want to safeguard your eyes from **UV rays**, wind, and dust while enjoying clear vision, this set of three foam padded eyewear goggles is perfect for you.
@@ -99,10 +99,10 @@ The **(3 PCS) Motorcycle Riding Glasses** feature foam padding around the frame,
 
 Constructed to be lightweight with precise dimensions, these goggles provide excellent protection without adding bulk or discomfort. Their anti-wind and dustproof properties make them suitable for motorcycle enthusiasts and outdoor sports participants who demand both functionality and comfort from their eyewear. Overall, these goggles offer a practical and versatile solution for enhanced eye safety during outdoor adventures.
 
-## <a href="https://www.amazon.com/dp/B07CSHZ9WK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wynd Blocker Motorcycle Riding Glasses</a>
+## <a href="https://www.amazon.com/dp/B07CSHZ9WK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wynd Blocker Motorcycle Riding Glasses</a>
 
 
-<a href="https://www.amazon.com/dp/B07CSHZ9WK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WYND Blocker Motorcycle Riding Glasses Extreme Sports Wrap Sunglasses, Black, Clear" src="https://m.media-amazon.com/images/I/41Q792QwdzL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07CSHZ9WK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WYND Blocker Motorcycle Riding Glasses Extreme Sports Wrap Sunglasses, Black, Clear" src="https://m.media-amazon.com/images/I/41Q792QwdzL._SL500_.jpg"/></a>
 
 
 Ideal for **motorcycle enthusiasts** and **extreme sports lovers**, the **WYND Blocker Motorcycle Riding Glasses Extreme Sports Wrap Sunglasses** in **Black with Clear lenses** offer a perfect blend of style and functionality. These glasses are designed for individuals who require **durable eye protection** without compromising on comfort during high-speed activities.
@@ -125,10 +125,10 @@ The **WYND Blocker Motorcycle Riding Glasses** feature a sleek, **black frame** 
 
 Equipped with **clear lenses**, these sunglasses enhance visibility by providing a crisp, unobstructed view of your surroundings. This makes them especially useful during low-light or overcast conditions, ensuring that your vision remains sharp and clear. The combination of durable build quality and protective features makes these glasses an essential accessory for anyone serious about safety and performance in extreme sports or motorcycle riding.
 
-## <a href="https://www.amazon.com/dp/B07CSG6PQ5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wynd Blocker Polarized Motorcycle Riding Sunglasses</a>
+## <a href="https://www.amazon.com/dp/B07CSG6PQ5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wynd Blocker Polarized Motorcycle Riding Sunglasses</a>
 
 
-<a href="https://www.amazon.com/dp/B07CSG6PQ5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WYND Blocker Polarized Motorcycle Riding Sunglasses Sports Wrap Glasses, Black, Polarized Smoke" src="https://m.media-amazon.com/images/I/51cHPvat01L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07CSG6PQ5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WYND Blocker Polarized Motorcycle Riding Sunglasses Sports Wrap Glasses, Black, Polarized Smoke" src="https://m.media-amazon.com/images/I/51cHPvat01L._SL500_.jpg"/></a>
 
 
 The **WYND Blocker Polarized Motorcycle Riding Sunglasses** are perfect for motorcycle enthusiasts and outdoor sports lovers who prioritize both style and functionality. If you're someone who spends a significant amount of time in the sun and needs reliable eye protection without compromising on aesthetics, these sunglasses are ideal for you.
@@ -148,10 +148,10 @@ The **WYND Blocker Polarized Motorcycle Riding Sunglasses** boast a **polarized 
 
 Additionally, the **sports wrap design** of these sunglasses ensures that they stay firmly in place, even during vigorous activities. This is a crucial feature for riders and athletes alike, as it prevents the glasses from slipping off, thus maintaining constant protection. The **lightweight construction** further enhances comfort, allowing users to wear them for extended periods without discomfort. For those who demand both performance and style, these sunglasses deliver on both fronts.
 
-## <a href="https://www.amazon.com/dp/B0BX5612V6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Driving Motorcycle Riding Glasses</a>
+## <a href="https://www.amazon.com/dp/B0BX5612V6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Driving Motorcycle Riding Glasses</a>
 
 
-<a href="https://www.amazon.com/dp/B0BX5612V6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Driving Motorcycle Riding Glasses Foam Padded Eyeglass Motocross Goggles Waterproof Anti-Wind Dustproof UV Protection Bicycle Motorcycle Sunglasses for Outdoor Activities Sports Eyewear(Clear Lens)" src="https://m.media-amazon.com/images/I/41KJXr0VVGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BX5612V6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Driving Motorcycle Riding Glasses Foam Padded Eyeglass Motocross Goggles Waterproof Anti-Wind Dustproof UV Protection Bicycle Motorcycle Sunglasses for Outdoor Activities Sports Eyewear(Clear Lens)" src="https://m.media-amazon.com/images/I/41KJXr0VVGL._SL500_.jpg"/></a>
 
 
 These **Driving Motorcycle Riding Glasses** with foam padding and a clear lens are ideal for outdoor enthusiasts who frequently engage in **motorcycling**, **motocross**, or **bicycle riding**. If you need reliable **eyewear** that offers **waterproof**, **anti-wind**, **dustproof**, and **UV protection** features, this product is designed for you. Riders looking for comfort during long rides and protection against the elements will find these glasses highly beneficial.
@@ -174,10 +174,10 @@ The **Driving Motorcycle Riding Glasses** stand out with their thoughtful combin
 
 With a clear lens that provides unobstructed vision and robust **UV protection**, these glasses are well-suited for various outdoor sports and activities beyond motorcycling. Their lightweight and compact dimensions make them easy to wear and carry, while the generic brand and manufacturer Allhave offer a practical choice for riders seeking reliable, affordable eyewear to enhance their riding experience.
 
-## <a href="https://www.amazon.com/dp/B000NOKNKA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Global Vision Outfitter Motorcycle Safety Sunglasses</a>
+## <a href="https://www.amazon.com/dp/B000NOKNKA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Global Vision Outfitter Motorcycle Safety Sunglasses</a>
 
 
-<a href="https://www.amazon.com/dp/B000NOKNKA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Global Vision Outfitter Padded Fit-Over Motorcycle Safety Sunglasses" src="https://m.media-amazon.com/images/I/31S+PGxCdAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000NOKNKA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Global Vision Outfitter Padded Fit-Over Motorcycle Safety Sunglasses" src="https://m.media-amazon.com/images/I/31S+PGxCdAL._SL500_.jpg"/></a>
 
 
 The **Global Vision Outfitter Padded Fit-Over Motorcycle Safety Sunglasses** are ideal for motorcyclists who wear prescription glasses and need reliable eye protection. These sunglasses are perfect for riders seeking a comfortable, secure fit that easily fits over their everyday eyewear, providing enhanced safety and clear vision on the road.
@@ -199,10 +199,10 @@ The **Global Vision Outfitter Padded Fit-Over Motorcycle Safety Sunglasses** fea
 
 With dimensions tailored to fit over most prescription glasses, these sunglasses offer a practical solution for riders who require vision correction without compromising on eye protection. Their lightweight design ensures that they remain comfortable during long periods of wear, while the durable materials from **Global Vision** provide reliable protection against wind, dust, and debris.
 
-## <a href="https://www.amazon.com/dp/B0D2WTZM5G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Driving Motorcycle Glasses</a>
+## <a href="https://www.amazon.com/dp/B0D2WTZM5G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Driving Motorcycle Glasses</a>
 
 
-<a href="https://www.amazon.com/dp/B0D2WTZM5G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="3 Pair Driving Motorcycle Glasses Riding Glasses Foam Padded Motocross Eyeglasses UV Protection Anti-Wind Dustproof Motorcycle Goggles Eyewear Sunglasses Suitable for Outdoor Sports Motorcycle Riding" src="https://m.media-amazon.com/images/I/41cYKYcpSjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D2WTZM5G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="3 Pair Driving Motorcycle Glasses Riding Glasses Foam Padded Motocross Eyeglasses UV Protection Anti-Wind Dustproof Motorcycle Goggles Eyewear Sunglasses Suitable for Outdoor Sports Motorcycle Riding" src="https://m.media-amazon.com/images/I/41cYKYcpSjL._SL500_.jpg"/></a>
 
 
 These **3 Pair Driving Motorcycle Glasses** are ideal for motorcycle enthusiasts and outdoor sports lovers who seek reliable **UV protection** and comprehensive defense against wind and dust. Perfect for riders who prioritize eye safety and comfort during long rides, these **foam padded motocross eyeglasses** offer an excellent balance of style, functionality, and durability.
@@ -225,10 +225,10 @@ The **Kofdwno brand** driving motorcycle glasses feature a thoughtfully designed
 
 Measuring 1.77 inches in height, 2.55 inches in width, and 5.51 inches in length, these glasses are lightweight at just 0.21125 pounds, making them unobtrusive and easy to wear with any motorcycle helmet. Manufactured by **Miaojian Hu**, the glasses promise consistent quality and durability. Overall, these motorcycle goggles offer excellent value for riders seeking versatile, comfortable, and protective eyewear suitable for multiple outdoor activities.
 
-## <a href="https://www.amazon.com/dp/B07K521B4L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Belinous Polarized Motorcycle Riding Glasses</a>
+## <a href="https://www.amazon.com/dp/B07K521B4L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Belinous Polarized Motorcycle Riding Glasses</a>
 
 
-<a href="https://www.amazon.com/dp/B07K521B4L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BELINOUS Polarized Motorcycle Riding Glasses Goggles for Men Foam Padding, Windproof Anti-dust Sunglasses w/ 4 Interchangeable Lens Kit &amp; Case, Protective Eyewear for Driving Biking Day and Night" src="https://m.media-amazon.com/images/I/41YIXCkPfDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07K521B4L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BELINOUS Polarized Motorcycle Riding Glasses Goggles for Men Foam Padding, Windproof Anti-dust Sunglasses w/ 4 Interchangeable Lens Kit &amp; Case, Protective Eyewear for Driving Biking Day and Night" src="https://m.media-amazon.com/images/I/41YIXCkPfDL._SL500_.jpg"/></a>
 
 
 The **BELINOUS Polarized Motorcycle Riding Glasses Goggles for Men** are perfect for avid motorcyclists and outdoor enthusiasts who prioritize eye protection and comfort during their rides. Ideal for those who frequently ride in varying weather conditions and lighting, these goggles offer enhanced visibility and safety with their versatile lens options. Whether you're a daily commuter or a weekend biker, these glasses cater to your need for reliable, windproof, and anti-dust eyewear.
@@ -250,10 +250,10 @@ The **BELINOUS Motorcycle Riding Glasses** feature a robust design with dimensio
 
 Additionally, the foam padding around the goggles enhances comfort while creating an effective seal against wind and dust, crucial for maintaining clear vision and eye safety. The polarized lenses significantly reduce glare from reflective surfaces, improving overall visual acuity and reducing eye strain. Combined with the convenient carrying case, these glasses are a comprehensive protective eyewear solution designed to meet the demanding needs of motorcycle riders.
 
-## <a href="https://www.amazon.com/dp/B0DFY5HLXQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jeemeele Motorcycle Goggles</a>
+## <a href="https://www.amazon.com/dp/B0DFY5HLXQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jeemeele Motorcycle Goggles</a>
 
 
-<a href="https://www.amazon.com/dp/B0DFY5HLXQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Jeemeele Motorcycle Goggles 2PCS Motorcycle Riding Glasses Riding Goggles Motorcycle Sunglasses UV Protection Dustproof (Black+Clear)" src="https://m.media-amazon.com/images/I/31UoGjyspWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DFY5HLXQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Jeemeele Motorcycle Goggles 2PCS Motorcycle Riding Glasses Riding Goggles Motorcycle Sunglasses UV Protection Dustproof (Black+Clear)" src="https://m.media-amazon.com/images/I/31UoGjyspWL._SL500_.jpg"/></a>
 
 
 The **Jeemeele Motorcycle Goggles** are perfect for motorcycle enthusiasts who value both **style** and **safety**. Whether you're a professional rider or a weekend warrior, these goggles are designed for anyone who needs reliable **eye protection** from dust, debris, and harmful UV rays while riding. With a combination of **black** and **clear** lenses, these goggles are versatile for both day and night use.

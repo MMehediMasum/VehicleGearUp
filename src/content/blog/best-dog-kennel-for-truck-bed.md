@@ -23,10 +23,10 @@ Covers like the kefit Dog Crate Cover help protect dogs from weather. For larger
 
 
 
-## <a href="https://www.amazon.com/dp/B07LBLVSXX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"> Dakota283 G3 Portable And High Security Polyethylene Framed Door Dog Kennel </a>
+## <a href="https://www.amazon.com/dp/B07LBLVSXX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"> Dakota283 G3 Portable And High Security Polyethylene Framed Door Dog Kennel </a>
 
 
-<a href="https://www.amazon.com/dp/B07LBLVSXX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Dakota283 G3 Portable and High Security Polyethylene Framed Door Dog Kennel with Keyed Paddle Latching Door, Medium, Dark Granite" src="https://m.media-amazon.com/images/I/414cYgBVY1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07LBLVSXX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Dakota283 G3 Portable and High Security Polyethylene Framed Door Dog Kennel with Keyed Paddle Latching Door, Medium, Dark Granite" src="https://m.media-amazon.com/images/I/414cYgBVY1L._SL500_.jpg"/></a>
 
 
 The **Dakota283 G3 Portable and High Security Polyethylene Framed Door Dog Kennel** is an ideal choice for pet owners who prioritize safety, portability, and durability. This medium-sized kennel is perfect for dog owners who need a secure and easy-to-transport solution for their pets, whether for travel, outdoor activities, or temporary containment at home. If you are looking for a sturdy kennel that offers peace of mind with its high-security features, this product is designed specifically for you.
@@ -49,10 +49,10 @@ The **Dakota283 G3 Portable Dog Kennel** features a robust **polyethylene frame*
 
 In addition to security, the kennel’s medium size and thoughtful dimensions accommodate a wide range of dog breeds comfortably. The **dark granite color** not only adds a stylish touch but also helps hide dirt and scratches, maintaining its appearance over time. Its relatively lightweight design allows for convenient handling and storage, making it a practical choice for pet owners who value both function and aesthetics in a kennel.
 
-## <a href="https://www.amazon.com/dp/B0DQXL2V48?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dakota 283 Crate</a>
+## <a href="https://www.amazon.com/dp/B0DQXL2V48?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dakota 283 Crate</a>
 
 
-<a href="https://www.amazon.com/dp/B0DQXL2V48?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Dakota 283 Crate - Canine Rough and Tough Economy Kennel (Sandstone, Intermediate)" src="https://m.media-amazon.com/images/I/41o59nqMr+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DQXL2V48?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Dakota 283 Crate - Canine Rough and Tough Economy Kennel (Sandstone, Intermediate)" src="https://m.media-amazon.com/images/I/41o59nqMr+L._SL500_.jpg"/></a>
 
 
 The **Dakota 283 Crate - Canine Rough and Tough Economy Kennel (Sandstone, Intermediate)** is ideal for pet owners looking for a durable and reliable crate that offers both comfort and security for their medium-sized dogs. This crate is perfect for those who need a sturdy solution for travel, training, or home use, especially for active or rough-and-tumble canines.
@@ -75,10 +75,10 @@ The **Dakota 283 Crate** features rugged and robust construction designed to wit
 
 Additionally, the crate's lightweight design and practical dimensions make it easy to move and store while still offering enough room for your dog to stretch and rest comfortably. The neutral **Sandstone finish** adds an aesthetic appeal that complements any living environment. Overall, the Dakota 283 Crate combines durability, functionality, and style, making it a smart investment for pet owners seeking a dependable kennel solution.
 
-## <a href="https://www.amazon.com/dp/B0722L46DF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Amazon Basics Dog Crate</a>
+## <a href="https://www.amazon.com/dp/B0722L46DF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Amazon Basics Dog Crate</a>
 
 
-<a href="https://www.amazon.com/dp/B0722L46DF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Amazon Basics Dog Crate, Travel Dog Kennel Double Door Collapsible, Lightweight Soft-Sided Folding, Portable Dog Cage, XL 42" src="https://m.media-amazon.com/images/I/413QrcfIQoL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0722L46DF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Amazon Basics Dog Crate, Travel Dog Kennel Double Door Collapsible, Lightweight Soft-Sided Folding, Portable Dog Cage, XL 42" src="https://m.media-amazon.com/images/I/413QrcfIQoL._SL500_.jpg"/></a>
 
 
 The **Amazon Basics Dog Crate** is ideal for pet owners who need a reliable, portable, and comfortable space for their dogs during travel or at home. This product is perfect for those seeking a lightweight yet sturdy solution for their medium to large-sized dogs, especially active families or frequent travelers who prioritize convenience and durability.
@@ -101,10 +101,10 @@ The **Amazon Basics Dog Crate** features a lightweight yet durable soft-sided de
 
 With generous dimensions of **42 inches in length, 31 inches in width, and 31 inches in height**, this crate suits larger breeds, giving them ample room to relax during travel or downtime. The collapsible structure allows pet owners to pack it flat, making it an excellent choice for trips, visits, or everyday home use. Overall, this dog kennel balances functionality, comfort, and portability, catering to the needs of both pets and their owners.
 
-## <a href="https://www.amazon.com/dp/B0B11SLCVM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Kefit Dog Crate Cover</a>
+## <a href="https://www.amazon.com/dp/B0B11SLCVM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Kefit Dog Crate Cover</a>
 
 
-<a href="https://www.amazon.com/dp/B0B11SLCVM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="kefit Dog Crate Cover 48 inch, Kennel Cover for Dog Cage, Black" src="https://m.media-amazon.com/images/I/51RAflK8pfL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B11SLCVM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="kefit Dog Crate Cover 48 inch, Kennel Cover for Dog Cage, Black" src="https://m.media-amazon.com/images/I/51RAflK8pfL._SL500_.jpg"/></a>
 
 
 The **kefit Dog Crate Cover 48 inch** is perfect for pet owners who prioritize their dog's comfort and security. This product is ideal for those who own a **48-inch dog crate** and are looking for a way to create a cozy and private environment for their pet. Whether you have an anxious dog who feels more secure in a den-like setting or simply want to enhance your pet's resting experience, this cover is a practical choice.
@@ -125,10 +125,10 @@ The **kefit Dog Crate Cover** is designed with practicality in mind. Its **durab
 
 This crate cover is particularly beneficial for dogs that suffer from anxiety or stress. By providing a **private space**, it helps to create a soothing environment, akin to a den, which is naturally calming for dogs. Additionally, its **lightweight** design makes it easy to transport, so whether you're at home or on the go, your pet can always have a familiar and comforting space. Despite a few limitations, the overall functionality and benefits of this product make it a valuable addition to any pet owner's arsenal.
 
-## <a href="https://www.amazon.com/dp/B0F7RTM1SB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mammoth Guardian Dog Kennel</a>
+## <a href="https://www.amazon.com/dp/B0F7RTM1SB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mammoth Guardian Dog Kennel</a>
 
 
-<a href="https://www.amazon.com/dp/B0F7RTM1SB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mammoth Guardian Dog Kennel - Gunmetal Gray" src="https://m.media-amazon.com/images/I/41kz6TvPr2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F7RTM1SB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mammoth Guardian Dog Kennel - Gunmetal Gray" src="https://m.media-amazon.com/images/I/41kz6TvPr2L._SL500_.jpg"/></a>
 
 
 The **Mammoth Guardian Dog Kennel - Gunmetal Gray** is ideal for pet owners seeking a durable, secure, and comfortable outdoor shelter for their medium to large dogs. If you prioritize your dog's safety and need a kennel that can withstand various weather conditions while providing ample space, this product is designed for you. It’s perfect for those who want a reliable, stylish, and functional kennel that blends well with outdoor environments.
@@ -149,10 +149,10 @@ The **Mammoth Guardian Dog Kennel** boasts a sturdy construction tailored to wit
 
 Additionally, the kennel’s dimensions are thoughtfully designed to accommodate growing dogs or multiple pets comfortably. The use of high-quality materials from **Mammoth Pet Products** guarantees long-lasting performance, ensuring that your furry friend has a secure place to rest and relax for years to come. This kennel combines functionality with style, making it a practical and attractive choice for outdoor pet housing.
 
-## <a href="https://www.amazon.com/dp/B0CWKFDG21?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Double Transport Box With Double Doors</a>
+## <a href="https://www.amazon.com/dp/B0CWKFDG21?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Double Transport Box With Double Doors</a>
 
 
-<a href="https://www.amazon.com/dp/B0CWKFDG21?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Double Transport Box with Double Doors Doors Cage Aluminium Puppy Travel Crate Box Trapezoidal Kennel Dog Cat Carrier Cage" src="https://m.media-amazon.com/images/I/41dcnTLKaFL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CWKFDG21?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Double Transport Box with Double Doors Doors Cage Aluminium Puppy Travel Crate Box Trapezoidal Kennel Dog Cat Carrier Cage" src="https://m.media-amazon.com/images/I/41dcnTLKaFL._SL500_.jpg"/></a>
 
 
 The **Double Transport Box with Double Doors** is ideal for pet owners who frequently travel with their dogs or cats and require a sturdy, spacious, and secure carrier. Whether you have one or two pets, this **aluminium puppy travel crate** offers excellent convenience and protection, making it perfect for road trips, vet visits, or outdoor adventures.
@@ -174,10 +174,10 @@ The **Double Transport Box** from **MATONELL** features a robust aluminium build
 
 Designed with both functionality and style in mind, this travel crate’s silver and black color options blend seamlessly with modern vehicles and outdoor gear. Its spacious interior and sturdy construction ensure safety and comfort, reducing stress for pets during transit. Overall, the **MATONELL Double Transport Box** is a reliable and practical choice for pet owners who prioritize convenience, security, and quality in their pet travel accessories.
 
-## <a href="https://www.amazon.com/dp/B001P2GVPU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Uws Db-4848n Bright Aluminum Double-door Dog Box</a>
+## <a href="https://www.amazon.com/dp/B001P2GVPU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Uws Db-4848n Bright Aluminum Double-door Dog Box</a>
 
 
-<a href="https://www.amazon.com/dp/B001P2GVPU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="UWS DB-4848N Bright Aluminum 48" src="https://m.media-amazon.com/images/I/51LzbKEpQWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B001P2GVPU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="UWS DB-4848N Bright Aluminum 48" src="https://m.media-amazon.com/images/I/51LzbKEpQWL._SL500_.jpg"/></a>
 
 
 The **UWS DB-4848N Bright Aluminum 48" x 48" Double-Door Dog Box with Full Enclosure & Storage** is ideal for pet owners who need a durable and spacious containment solution for their dogs during travel or outdoor activities. This product is perfect for individuals who prioritize both security and convenience, such as truck owners, outdoor enthusiasts, and professional dog trainers who require a reliable and weather-resistant dog box.
@@ -201,10 +201,10 @@ The **UWS DB-4848N dog box** stands out for its robust construction and practica
 
 In addition to security, the storage compartment integrated into the design offers a significant benefit for users who want to keep leashes, food, and other pet essentials organized and within reach. The compact yet spacious dimensions make it suitable for a wide range of vehicles without sacrificing comfort for the pet. Overall, this dog box combines strength, functionality, and ease of use, making it a valuable investment for anyone seeking a premium pet containment solution.
 
-## <a href="https://www.amazon.com/dp/B07LBNLFJ6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dakota 283 G3 Framed Door Kennel</a>
+## <a href="https://www.amazon.com/dp/B07LBNLFJ6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dakota 283 G3 Framed Door Kennel</a>
 
 
-<a href="https://www.amazon.com/dp/B07LBNLFJ6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="dakota283 Dakota 283 G3 Framed Door Kennel - Large - Dark Granite" src="https://m.media-amazon.com/images/I/41MLLbnhE6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07LBNLFJ6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="dakota283 Dakota 283 G3 Framed Door Kennel - Large - Dark Granite" src="https://m.media-amazon.com/images/I/41MLLbnhE6L._SL500_.jpg"/></a>
 
 
 The **dakota283 Dakota 283 G3 Framed Door Kennel - Large - Dark Granite** is an excellent choice for pet owners who need a durable and secure outdoor shelter for their dogs. Ideal for those with medium to large breeds, this kennel provides a sturdy and weather-resistant space, perfect for keeping pets safe and comfortable in various weather conditions. If you're looking for a reliable and easy-to-maintain kennel that offers both protection and style, this item is tailored for you.
@@ -226,10 +226,10 @@ The **dakota283 Dakota 283 G3 Framed Door Kennel** combines robust construction 
 
 Moreover, the kennel’s spacious dimensions allow large dogs ample room to move and rest comfortably without feeling confined. The weight of 46.0 pounds ensures the kennel remains steady, preventing unwanted tipping or displacement. Finished in an attractive dark granite color, it complements various outdoor settings while resisting visible dirt and wear, making maintenance easier for pet owners.
 
-## <a href="https://www.amazon.com/dp/B0BMQWP1YP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lucky Dog Kennel</a>
+## <a href="https://www.amazon.com/dp/B0BMQWP1YP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lucky Dog Kennel</a>
 
 
-<a href="https://www.amazon.com/dp/B0BMQWP1YP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Lucky Dog Kennel, Durable Crash Tested Portable Dog Crates, Large" src="https://m.media-amazon.com/images/I/41FGJ2yR1tL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BMQWP1YP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Lucky Dog Kennel, Durable Crash Tested Portable Dog Crates, Large" src="https://m.media-amazon.com/images/I/41FGJ2yR1tL._SL500_.jpg"/></a>
 
 
 The **Lucky Dog Kennel** is perfect for dog owners who prioritize safety and durability in a portable crate. Ideal for those who frequently travel with their pets or need a reliable, crash-tested solution for secure transportation, this crate offers peace of mind for all journeys. Whether you have a large dog or are looking for a tough, long-lasting kennel, this product meets high standards for protection and convenience.
@@ -252,10 +252,10 @@ The **Lucky Dog Kennel** stands out with its **crash-tested** certification, ens
 
 Additionally, the kennel’s **portable design** balances durability with convenience, allowing easy transport without compromising on safety features. Its weather-resistant **storm grey color** and solid construction make it suitable for various environments and conditions. This crate is a great investment for dog owners who travel frequently or want a reliable, long-lasting kennel that prioritizes their pet’s well-being.
 
-## <a href="https://www.amazon.com/dp/B008AGV6M2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Petmate Ruffmaxx Camouflage Dog Kennel Pet Carrier &amp; Crate 36"</a>
+## <a href="https://www.amazon.com/dp/B008AGV6M2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Petmate Ruffmaxx Camouflage Dog Kennel Pet Carrier &amp; Crate 36"</a>
 
 
-<a href="https://www.amazon.com/dp/B008AGV6M2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Petmate Ruffmaxx Camouflage Dog Kennel Pet Carrier &amp; Crate 36" src="https://m.media-amazon.com/images/I/51BDq2VEppL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B008AGV6M2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Petmate Ruffmaxx Camouflage Dog Kennel Pet Carrier &amp; Crate 36" src="https://m.media-amazon.com/images/I/51BDq2VEppL._SL500_.jpg"/></a>
 
 
 The **Petmate Ruffmaxx Camouflage Dog Kennel Pet Carrier & Crate 36"** is ideal for pet owners who need a durable and versatile solution for transporting or housing their dogs. Whether you have a **large, medium, or small dog** weighing between 50-70 lbs, this crate is perfect for both **outdoor and indoor** use. Environmentally conscious buyers will also appreciate that it is **made from recycled materials** and manufactured in the **USA**.

@@ -23,10 +23,10 @@ Boots like NORTIV 8 Military Tactical and Alpinestars SMX-6 V3 provide comfort a
 
 
 
-## <a href="https://www.amazon.com/dp/B0CQ4RFGLG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nortiv 8 Men's Military Tactical Boot</a>
+## <a href="https://www.amazon.com/dp/B0CQ4RFGLG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nortiv 8 Men's Military Tactical Boot</a>
 
 
-<a href="https://www.amazon.com/dp/B0CQ4RFGLG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NORTIV 8 Men's Military Tactical Boot Lightweight Comfortable Boots for Work All Day Side Zipper Motorcycle Combat Hiking Boots Metrostrike(8-9 Inches),Size 10,Black" src="https://m.media-amazon.com/images/I/41VeUb5PPmL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CQ4RFGLG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NORTIV 8 Men's Military Tactical Boot Lightweight Comfortable Boots for Work All Day Side Zipper Motorcycle Combat Hiking Boots Metrostrike(8-9 Inches),Size 10,Black" src="https://m.media-amazon.com/images/I/41VeUb5PPmL._SL500_.jpg"/></a>
 
 
 The **NORTIV 8 Men's Military Tactical Boot** is ideal for individuals who require durable, comfortable, and versatile footwear for demanding environments. Whether you are a military personnel, outdoor enthusiast, motorcyclist, or someone who works long hours on their feet, these boots provide the perfect combination of support and functionality.
@@ -49,10 +49,10 @@ The **NORTIV 8 Men's Military Tactical Boot** features a robust yet lightweight 
 
 Additionally, the boots are designed to handle various terrains and conditions, from rugged hiking trails to motorcycle rides. The breathable materials promote ventilation, reducing sweat and discomfort during long hours of wear. Overall, these boots offer a versatile solution that balances performance, comfort, and style for active users who demand the best from their footwear.
 
-## <a href="https://www.amazon.com/dp/B0DL5TY8ZM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Alpinestars Smx-6 V3 High-performance Sport Motorcycle Boots</a>
+## <a href="https://www.amazon.com/dp/B0DL5TY8ZM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Alpinestars Smx-6 V3 High-performance Sport Motorcycle Boots</a>
 
 
-<a href="https://www.amazon.com/dp/B0DL5TY8ZM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Alpinestars SMX-6 V3 High-Performance Sport Motorcycle Boots, CE-Certified, Protective &amp; Comfortable Footwear, 47, Black/White/Red Graphic" src="https://m.media-amazon.com/images/I/31wK+fD9C7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DL5TY8ZM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Alpinestars SMX-6 V3 High-Performance Sport Motorcycle Boots, CE-Certified, Protective &amp; Comfortable Footwear, 47, Black/White/Red Graphic" src="https://m.media-amazon.com/images/I/31wK+fD9C7L._SL500_.jpg"/></a>
 
 
 The **Alpinestars SMX-6 V3 High-Performance Sport Motorcycle Boots** are ideal for serious motorcycle enthusiasts and sport riders who demand top-tier protection without sacrificing comfort. These boots are perfect for those who ride aggressively on the track or street and need reliable, CE-certified safety gear to safeguard their feet during high-speed maneuvers and potential impacts.
@@ -74,10 +74,10 @@ The **SMX-6 V3** boots feature advanced materials and ergonomic design tailored 
 
 Moreover, the boots boast a sleek and aggressive **Black/White/Red Graphic** look that complements sport riding gear and motorcycles. Alpinestars integrates ventilation features to keep feet cool, which is crucial for maintaining comfort during intense riding sessions. Overall, these boots combine cutting-edge safety technology with rider-focused comfort and style, making them an excellent choice for performance motorcycle riders.
 
-## <a href="https://www.amazon.com/dp/B0DNSTJDFF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rockrooster Sap130 Mantua 8" Zipper Motorcycle Boots</a>
+## <a href="https://www.amazon.com/dp/B0DNSTJDFF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rockrooster Sap130 Mantua 8" Zipper Motorcycle Boots</a>
 
 
-<a href="https://www.amazon.com/dp/B0DNSTJDFF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ROCKROOSTER SAP130 Mantua 8" src="https://m.media-amazon.com/images/I/31czhW+g98L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DNSTJDFF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ROCKROOSTER SAP130 Mantua 8" src="https://m.media-amazon.com/images/I/31czhW+g98L._SL500_.jpg"/></a>
 
 
 The **ROCKROOSTER SAP130 Mantua 8" Zipper Motorcycle Boots** are ideal for motorcycle enthusiasts, casual wearers, and professionals seeking durable, stylish, and comfortable footwear. These boots are perfect for those who need reliable protection on the road while maintaining a fashionable appearance for everyday use. If you value **quality leather**, slip resistance, and a versatile design, these boots are an excellent choice.
@@ -100,10 +100,10 @@ Crafted from **oiled crazy horse leather**, these boots provide both strength an
 
 The **slip-resistant rubber sole** adds an essential layer of safety, especially for motorcyclists who often deal with slick or uneven surfaces. Additionally, the medium width ensures a comfortable fit for many users, reducing foot fatigue during long rides or extended wear. Overall, the combination of style, comfort, and functionality makes these boots a versatile addition to any wardrobe.
 
-## <a href="https://www.amazon.com/dp/B096VN5CM7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chocho Track Real Leather Motorbike Shoes</a>
+## <a href="https://www.amazon.com/dp/B096VN5CM7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chocho Track Real Leather Motorbike Shoes</a>
 
 
-<a href="https://www.amazon.com/dp/B096VN5CM7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ChoCho Track Real Leather Motorbike Shoes High Tech Men's Short Motorcycle Racing Sports Boot (numeric_10)" src="https://m.media-amazon.com/images/I/415IPTa5FYL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B096VN5CM7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ChoCho Track Real Leather Motorbike Shoes High Tech Men's Short Motorcycle Racing Sports Boot (numeric_10)" src="https://m.media-amazon.com/images/I/415IPTa5FYL._SL500_.jpg"/></a>
 
 
 The **ChoCho Track Real Leather Motorbike Shoes High Tech Men's Short Motorcycle Racing Sports Boot** is ideal for avid motorcyclists and racing enthusiasts who demand both style and performance from their footwear. If you seek durable protection combined with sleek design for your riding adventures, these boots are a perfect match. They cater especially to riders who value comfort and safety without compromising on a modern, sporty look.
@@ -126,10 +126,10 @@ Featuring a **real leather construction**, these boots deliver exceptional resis
 
 Additionally, the sleek black finish not only complements a wide range of riding gear but also helps conceal dirt and scuff marks, keeping the boots looking fresh for longer. The carefully considered dimensions ensure a snug yet comfortable fit, supporting the foot and ankle without restricting movement. Overall, these boots provide a balanced blend of safety, style, and functionality tailored for the demands of motorcycle enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B0BVFNGXXH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rockbros Men's Motorcycle Shoes</a>
+## <a href="https://www.amazon.com/dp/B0BVFNGXXH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rockbros Men's Motorcycle Shoes</a>
 
 
-<a href="https://www.amazon.com/dp/B0BVFNGXXH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ROCKBROS Men's Motorcycle Shoes Reinforced Leather Anti-slip Breathable Riding Boots Size 9 (US) Black" src="https://m.media-amazon.com/images/I/41u+qFun-xL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BVFNGXXH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ROCKBROS Men's Motorcycle Shoes Reinforced Leather Anti-slip Breathable Riding Boots Size 9 (US) Black" src="https://m.media-amazon.com/images/I/41u+qFun-xL._SL500_.jpg"/></a>
 
 
 The **ROCKBROS Men's Motorcycle Shoes** are an ideal choice for motorcycle enthusiasts who are looking for a blend of **style**, **comfort**, and **safety**. These **reinforced leather boots** are designed for riders who value both **durability** and **breathability**, making them a perfect fit for those who frequently embark on long rides or commute daily on their motorcycles. If you're a rider who prioritizes protection without compromising on **aesthetic appeal**, these boots are tailored for you.
@@ -150,10 +150,10 @@ The **ROCKBROS Men's Motorcycle Shoes** are crafted with **reinforced leather**,
 
 The **breathable design** of these boots ensures that your feet remain comfortable even during extended periods of wear. This is especially advantageous for riders who spend long hours on the road, as it helps prevent overheating and discomfort. Furthermore, their **stylish black appearance** makes them versatile enough to transition seamlessly from riding gear to casual attire, making them a practical addition to any rider’s wardrobe.
 
-## <a href="https://www.amazon.com/dp/B0D4CK6RRT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mens Black High Top Leather Motorcycle Boots</a>
+## <a href="https://www.amazon.com/dp/B0D4CK6RRT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mens Black High Top Leather Motorcycle Boots</a>
 
 
-<a href="https://www.amazon.com/dp/B0D4CK6RRT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mens Black Cool Style Eye Catching Buckle Closure High Top Leather Motorcycle Boots Waterproof Non Slip Wear Resistant Durable Stitching Shoes Body Lightweight And Soft Shoes Size 10 Length 280mm" src="https://m.media-amazon.com/images/I/41zvm-+YusL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D4CK6RRT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mens Black Cool Style Eye Catching Buckle Closure High Top Leather Motorcycle Boots Waterproof Non Slip Wear Resistant Durable Stitching Shoes Body Lightweight And Soft Shoes Size 10 Length 280mm" src="https://m.media-amazon.com/images/I/41zvm-+YusL._SL500_.jpg"/></a>
 
 
 These **Mens Black Cool Style Eye Catching Buckle Closure High Top Leather Motorcycle Boots** are ideal for motorcycle enthusiasts and individuals seeking durable, stylish, and functional footwear. Perfect for riders who prioritize safety, comfort, and a rugged look, these boots offer excellent protection and performance on and off the bike.
@@ -175,10 +175,10 @@ The **PEILEG brand** boots combine robust **leather construction** with a sleek 
 
 These boots feature a **waterproof and non-slip sole** that guarantees stability on various terrains, while the **wear resistant** and **durable stitching** reinforce the boots against daily wear and tear. Despite their rugged build, the boots remain **lightweight and soft**, offering all-day comfort without compromising on protection. With a size 10 and a length of 280mm, they cater to riders needing a reliable and stylish footwear option that performs exceptionally in different weather conditions.
 
-## <a href="https://www.amazon.com/dp/B0CNYLXG6H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bofucn Motorcycle Leather Boots</a>
+## <a href="https://www.amazon.com/dp/B0CNYLXG6H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bofucn Motorcycle Leather Boots</a>
 
 
-<a href="https://www.amazon.com/dp/B0CNYLXG6H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bofucn Motorcycle Leather Boots,Street Riding Shoes,Anti-Slip Side Zipper Shoes for Men and Women (Black/Green, Adult, 5 Men/6 Women)" src="https://m.media-amazon.com/images/I/512xObt9ZQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CNYLXG6H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bofucn Motorcycle Leather Boots,Street Riding Shoes,Anti-Slip Side Zipper Shoes for Men and Women (Black/Green, Adult, 5 Men/6 Women)" src="https://m.media-amazon.com/images/I/512xObt9ZQL._SL500_.jpg"/></a>
 
 
 The **Bofucn Motorcycle Leather Boots** are ideal for both men and women who are passionate about street riding and seek reliable, stylish footwear. These boots are perfect for riders looking for a combination of safety, comfort, and a modern design that works well both on and off the bike. Whether you're a daily commuter or a weekend adventurer, these boots cater to those who value durability and anti-slip features in their riding shoes.
@@ -201,10 +201,10 @@ The **Bofucn Motorcycle Leather Boots** feature high-quality leather that not on
 
 Beyond safety and functionality, these boots deliver comfort for extended wear. The leather material adapts to the shape of your feet over time, reducing discomfort during long rides. The color choices of **Black and Green** add a contemporary touch that complements various riding gear and casual outfits. Overall, the **Bofucn Motorcycle Leather Boots** strike a balance between protection, convenience, and style, making them a great choice for motorcycle enthusiasts looking for dependable street riding shoes.
 
-## <a href="https://www.amazon.com/dp/B0C81CMTM2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Men's Motorcycle Riding Shoes</a>
+## <a href="https://www.amazon.com/dp/B0C81CMTM2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Men's Motorcycle Riding Shoes</a>
 
 
-<a href="https://www.amazon.com/dp/B0C81CMTM2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Men's Motorcycle Riding Shoes Street Riding Shoes Breathable Biker Boots Sneakers Powersports Footwear, Black Faux Leather Lace Up Boots with Ankle Support for Men, Anti-Slip Sole, Side Zipper" src="https://m.media-amazon.com/images/I/41Hz88fY4fL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C81CMTM2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Men's Motorcycle Riding Shoes Street Riding Shoes Breathable Biker Boots Sneakers Powersports Footwear, Black Faux Leather Lace Up Boots with Ankle Support for Men, Anti-Slip Sole, Side Zipper" src="https://m.media-amazon.com/images/I/41Hz88fY4fL._SL500_.jpg"/></a>
 
 
 The **Men's Motorcycle Riding Shoes Street Riding Shoes** are ideal for men who are passionate about motorcycling and seek a combination of style, comfort, and safety. These **breathable biker boots** are perfect for riders who need reliable footwear for daily rides or long-distance journeys, offering both protection and flexibility. If you prioritize ankle support, anti-slip features, and a sleek look, these shoes are designed specifically for you.
@@ -227,10 +227,10 @@ These **powersports footwear** from **Dream Apparel** combine functionality and 
 
 With an emphasis on safety, the **ankle support** feature provides additional protection against injuries, while the **anti-slip sole** ensures better traction on wet or uneven surfaces. These boots are not only suitable for motorcycle riding but also versatile enough for street wear, making them a valuable addition to any biker’s wardrobe. Overall, these shoes offer a perfect balance of durability, comfort, and safety for men who take their riding seriously.
 
-## <a href="https://www.amazon.com/dp/B0DFY9QBH7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Idifu Black Knee High Riding Boots Women</a>
+## <a href="https://www.amazon.com/dp/B0DFY9QBH7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Idifu Black Knee High Riding Boots Women</a>
 
 
-<a href="https://www.amazon.com/dp/B0DFY9QBH7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="IDIFU Black Knee High Riding Boots Women Low Chunky Heel Motorcycle Boots with Side Zipper Comfortable Round Toe Tall Boots Fall Platform Lug Sole Fashion Buckles Biker Boots(Black, 8)" src="https://m.media-amazon.com/images/I/31tg5i8krkL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DFY9QBH7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="IDIFU Black Knee High Riding Boots Women Low Chunky Heel Motorcycle Boots with Side Zipper Comfortable Round Toe Tall Boots Fall Platform Lug Sole Fashion Buckles Biker Boots(Black, 8)" src="https://m.media-amazon.com/images/I/31tg5i8krkL._SL500_.jpg"/></a>
 
 
 These **IDIFU Black Knee High Riding Boots** are perfect for women who seek a blend of style, comfort, and durability in their footwear. Ideal for motorcycle enthusiasts, fashion-forward individuals, or anyone looking for reliable, everyday tall boots with a sturdy design. If you want boots that offer both functionality and a bold aesthetic, these boots are a great choice.
@@ -254,10 +254,10 @@ The **IDIFU Black Knee High Riding Boots** combine practical features with a tre
 
 Crafted by the trusted **IDIFU** brand, these boots are made with attention to detail and quality materials. The **fashion buckles** add a unique touch of style, making these boots stand out in any wardrobe. Whether you're dressing up for a night out or need sturdy footwear for fall weather, these boots offer versatility and durability while maintaining a chic and edgy look.
 
-## <a href="https://www.amazon.com/dp/B09C8H4SB1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Men's Motorcycle Boots</a>
+## <a href="https://www.amazon.com/dp/B09C8H4SB1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Men's Motorcycle Boots</a>
 
 
-<a href="https://www.amazon.com/dp/B09C8H4SB1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Men's Motorcycle Boots Army Backpacking Leather Mid-Calf High Men Military Tactical Combat Boot Buckle Lace Up Waterproof British Metal Military Motorcycle Biker Riding Punk Rock Shoes Black 11" src="https://m.media-amazon.com/images/I/41UVpPpVq8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09C8H4SB1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Men's Motorcycle Boots Army Backpacking Leather Mid-Calf High Men Military Tactical Combat Boot Buckle Lace Up Waterproof British Metal Military Motorcycle Biker Riding Punk Rock Shoes Black 11" src="https://m.media-amazon.com/images/I/41UVpPpVq8L._SL500_.jpg"/></a>
 
 
 The **Men's Motorcycle Boots Army Backpacking Leather Mid-Calf High Men Military Tactical Combat Boot Buckle Lace Up Waterproof British Metal Military Motorcycle Biker Riding Punk Rock Shoes Black 11** are ideal for individuals who lead an adventurous lifestyle and require footwear that combines durability with style. These boots are perfect for **motorcycle enthusiasts**, **military personnel**, and those who love outdoor activities such as **backpacking** and **hiking**. If you're looking for a boot that offers both protection and a bold fashion statement, this product is for you.

@@ -23,10 +23,10 @@ The C5 Corvette needs wheels that match its sporty and aggressive look. OE Wheel
 
 
 
-## <a href="https://www.amazon.com/dp/B004SL2TVA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Oe Wheels Cv04 17 Inch Rim Fits Corvette C5 Z06 Style</a>
+## <a href="https://www.amazon.com/dp/B004SL2TVA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Oe Wheels Cv04 17 Inch Rim Fits Corvette C5 Z06 Style</a>
 
 
-<a href="https://www.amazon.com/dp/B004SL2TVA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OE Wheels CV04 17 Inch Rim Fits Corvette C5 Z06 Style 5x120.65 17x9.5 Chrome - Hollander 5123 (1)" src="https://m.media-amazon.com/images/I/51MNVyxnFDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B004SL2TVA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OE Wheels CV04 17 Inch Rim Fits Corvette C5 Z06 Style 5x120.65 17x9.5 Chrome - Hollander 5123 (1)" src="https://m.media-amazon.com/images/I/51MNVyxnFDL._SL500_.jpg"/></a>
 
 
 The **OE Wheels CV04 17 Inch Rim** is ideal for car enthusiasts and Corvette C5 Z06 owners looking to upgrade their vehicle's appearance and performance. If you want a stylish, durable, and perfectly fitting rim with a classic **chrome finish**, this rim is designed to meet your needs. It’s especially suited for those who value both aesthetics and functionality in their automotive accessories.
@@ -49,10 +49,10 @@ The **OE Wheels CV04 17 Inch Rim** stands out with its precise engineering tailo
 
 Manufactured by the reputable **OE Wheels LLC**, this rim promises reliability and quality. The moderate weight of **26 pounds** helps maintain the car’s agility, contributing to smoother acceleration and braking. While some upkeep is necessary to keep the chrome looking pristine, the overall benefits of enhanced aesthetics and custom fit make the OE Wheels CV04 a desirable upgrade for Corvette owners seeking style and performance.
 
-## <a href="https://www.amazon.com/dp/B0CZHQRN6Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Oe Wheels Cv04 17 Inch Rims Fit Corvette C5 Z06 Style</a>
+## <a href="https://www.amazon.com/dp/B0CZHQRN6Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Oe Wheels Cv04 17 Inch Rims Fit Corvette C5 Z06 Style</a>
 
 
-<a href="https://www.amazon.com/dp/B0CZHQRN6Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OE Wheels CV04 17 Inch Rims Fit Corvette C5 Z06 Style 5x120.65 17x9.5 / 18x10.5 Gloss Black Machined Lip - Hollander 5123 (Set of 4)" src="https://m.media-amazon.com/images/I/51-NixcvqvL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CZHQRN6Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OE Wheels CV04 17 Inch Rims Fit Corvette C5 Z06 Style 5x120.65 17x9.5 / 18x10.5 Gloss Black Machined Lip - Hollander 5123 (Set of 4)" src="https://m.media-amazon.com/images/I/51-NixcvqvL._SL500_.jpg"/></a>
 
 
 The **OE Wheels CV04 17 Inch Rims** are ideal for automotive enthusiasts and Corvette C5 Z06 owners looking to upgrade their vehicle's appearance and performance. These rims are perfect for those who want a stylish, durable, and high-quality wheel that fits the specific bolt pattern of **5x120.65**. If you value both aesthetics and functionality, these gloss black machined lip rims are designed to enhance your ride.
@@ -74,10 +74,10 @@ The **OE Wheels CV04 rims** feature a robust build and precise dimensions—17 i
 
 Beyond looks, these rims provide tangible benefits in performance and durability. The relatively lightweight construction reduces unsprung weight, which can improve acceleration, braking, and overall handling. Additionally, the high-quality materials and manufacturing standards from **OE Wheels LLC** ensure long-lasting strength and resistance to road hazards, making these rims a valuable investment for serious Corvette enthusiasts seeking both style and substance.
 
-## <a href="https://www.amazon.com/dp/B004SMOQD8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Oe Wheels Cv05 17 Inch Rim</a>
+## <a href="https://www.amazon.com/dp/B004SMOQD8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Oe Wheels Cv05 17 Inch Rim</a>
 
 
-<a href="https://www.amazon.com/dp/B004SMOQD8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OE Wheels CV05 17 Inch Rim Fits Corvette C5 Style 5x120.65 17x9.5 Gloss Black Machined Lip (1)" src="https://m.media-amazon.com/images/I/41uek6cNwOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B004SMOQD8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OE Wheels CV05 17 Inch Rim Fits Corvette C5 Style 5x120.65 17x9.5 Gloss Black Machined Lip (1)" src="https://m.media-amazon.com/images/I/41uek6cNwOL._SL500_.jpg"/></a>
 
 
 The **OE Wheels CV05 17 Inch Rim** is ideal for automotive enthusiasts and Corvette C5 owners seeking to enhance their vehicle's aesthetics and performance. If you want a stylish upgrade with a perfect fit for the 5x120.65 bolt pattern, this rim offers a blend of durability and eye-catching design.
@@ -99,10 +99,10 @@ The **OE Wheels CV05** rim stands out with its precise dimensions of 17 inches i
 
 Beyond aesthetics, the rim’s compatibility with the **5x120.65 bolt pattern** ensures a seamless fit, reducing installation hassles and potential alignment issues. The balance between style and performance makes the OE Wheels CV05 rim a smart upgrade for anyone looking to elevate their Corvette C5’s presence on the road while enjoying improved handling dynamics.
 
-## <a href="https://www.amazon.com/dp/B004SM4XRC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Oe Wheels Cv05 17 Inch Rim Fits Corvette C5 Style 5x120.65</a>
+## <a href="https://www.amazon.com/dp/B004SM4XRC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Oe Wheels Cv05 17 Inch Rim Fits Corvette C5 Style 5x120.65</a>
 
 
-<a href="https://www.amazon.com/dp/B004SM4XRC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OE Wheels CV05 17 Inch Rim Fits Corvette C5 Style 5x120.65 17x9.5 Chrome (1)" src="https://m.media-amazon.com/images/I/51Y39G53C4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B004SM4XRC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OE Wheels CV05 17 Inch Rim Fits Corvette C5 Style 5x120.65 17x9.5 Chrome (1)" src="https://m.media-amazon.com/images/I/51Y39G53C4L._SL500_.jpg"/></a>
 
 
 The **OE Wheels CV05 17 Inch Rim** is ideal for automotive enthusiasts who own a **Corvette C5** and are looking to upgrade their vehicle's aesthetics and performance. This rim is perfect for those who prioritize a stylish yet durable wheel that fits the **5x120.65 bolt pattern** and desire a sleek, **chrome finish** to enhance their car's appearance. If you want a reliable, high-quality rim that complements your Corvette's sporty design, this product is a great choice.
@@ -125,10 +125,10 @@ The **OE Wheels CV05 17 Inch Rim** stands out for its precision engineering tail
 
 Additionally, this rim’s compatibility with the **5x120.65 bolt pattern** guarantees a hassle-free installation process, reducing the need for modifications. Weighing just **28 pounds**, it provides a solid yet manageable weight that can contribute to stable handling and driving dynamics. Whether you’re aiming to boost your Corvette’s curb appeal or seeking reliable performance, the OE Wheels CV05 is designed to meet those demands effectively.
 
-## <a href="https://www.amazon.com/dp/B0CZHPCMM2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Oe Wheels Cv04 17 Inch Rims Fit Corvette C5 Z06 Style</a>
+## <a href="https://www.amazon.com/dp/B0CZHPCMM2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Oe Wheels Cv04 17 Inch Rims Fit Corvette C5 Z06 Style</a>
 
 
-<a href="https://www.amazon.com/dp/B0CZHPCMM2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OE Wheels CV04 17 Inch Rims Fit Corvette C5 Z06 Style 5x120.65 17x9.5 / 18x10.5 Chrome - Hollander 5123 (Set of 4)" src="https://m.media-amazon.com/images/I/51MNVyxnFDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CZHPCMM2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OE Wheels CV04 17 Inch Rims Fit Corvette C5 Z06 Style 5x120.65 17x9.5 / 18x10.5 Chrome - Hollander 5123 (Set of 4)" src="https://m.media-amazon.com/images/I/51MNVyxnFDL._SL500_.jpg"/></a>
 
 
 The **OE Wheels CV04 17 Inch Rims** are ideal for automotive enthusiasts and Corvette C5 Z06 owners who want to upgrade their vehicle's appearance and performance. If you're seeking stylish, durable, and high-quality rims that perfectly fit a 5x120.65 bolt pattern, these chrome wheels offer an excellent solution to enhance both the look and handling of your car.
@@ -151,10 +151,10 @@ The **OE Wheels CV04 Rims** feature a classic 5-spoke design inspired by the Cor
 
 Beyond appearance, these rims are engineered to support optimal vehicle handling by offering a robust structure while maintaining a reasonable weight. This balance helps in reducing unsprung mass, which can improve acceleration, braking, and cornering capabilities. The set includes two 17x9.5 inch and two 18x10.5 inch rims, ensuring a well-proportioned stance that enhances both road grip and visual appeal for your Corvette C5 Z06.
 
-## <a href="https://www.amazon.com/dp/B004SL2TTW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Oe Wheels Cv04 17 Inch Rim Fits Corvette C5 Z06 Style</a>
+## <a href="https://www.amazon.com/dp/B004SL2TTW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Oe Wheels Cv04 17 Inch Rim Fits Corvette C5 Z06 Style</a>
 
 
-<a href="https://www.amazon.com/dp/B004SL2TTW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OE Wheels CV04 17 Inch Rim Fits Corvette C5 Z06 Style 5x120.65 17x9.5 Gloss Black Machined Lip - Hollander 5123 (1)" src="https://m.media-amazon.com/images/I/519uuD6iwwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B004SL2TTW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OE Wheels CV04 17 Inch Rim Fits Corvette C5 Z06 Style 5x120.65 17x9.5 Gloss Black Machined Lip - Hollander 5123 (1)" src="https://m.media-amazon.com/images/I/519uuD6iwwL._SL500_.jpg"/></a>
 
 
 The **OE Wheels CV04 17 Inch Rim** is ideal for car enthusiasts and Corvette C5 Z06 owners who want to enhance the style and performance of their vehicle. If you are looking for a durable, visually striking wheel that fits perfectly with a **5x120.65 bolt pattern**, this rim offers a great balance of aesthetics and function for spirited driving or show cars.
@@ -175,10 +175,10 @@ The **OE Wheels CV04 17 Inch Rim** features a robust build designed specifically
 
 Additionally, the **gloss black machined lip** not only adds an eye-catching contrast but also resists corrosion and wear, extending the rim's aesthetic appeal. Weighing only 26 pounds, these rims reduce unsprung weight, contributing to improved acceleration, braking, and cornering performance—benefits that any performance car owner will appreciate.
 
-## <a href="https://www.amazon.com/dp/B01KYGA4AU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Oe Wheels Cv22b 18 Inch Rim</a>
+## <a href="https://www.amazon.com/dp/B01KYGA4AU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Oe Wheels Cv22b 18 Inch Rim</a>
 
 
-<a href="https://www.amazon.com/dp/B01KYGA4AU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OE Wheels CV22B 18 Inch Rim Fits C4, C5, C6 Corvette C7 Z06 Style 5x120.65 18x8.5 Chrome - Hollander 5734 (1)" src="https://m.media-amazon.com/images/I/51GbsqTst+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01KYGA4AU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OE Wheels CV22B 18 Inch Rim Fits C4, C5, C6 Corvette C7 Z06 Style 5x120.65 18x8.5 Chrome - Hollander 5734 (1)" src="https://m.media-amazon.com/images/I/51GbsqTst+L._SL500_.jpg"/></a>
 
 
 The **OE Wheels CV22B 18 Inch Rim** is ideal for automotive enthusiasts and Corvette owners seeking to enhance both the aesthetics and performance of their vehicle. Specifically designed to fit **C4, C5, C6 Corvette** models and the **C7 Z06 Style**, this rim is perfect for those who want a high-quality, durable upgrade with a sleek **chrome finish**. If you are looking to combine style with functionality, this rim is a great choice.
@@ -200,10 +200,10 @@ The **OE Wheels CV22B 18 Inch Rim** stands out with its tailored design for Corv
 
 By choosing this rim, users benefit from a blend of aesthetic appeal and functional excellence. The precise manufacturing standards of OE Wheels guarantee durability and safety, making it a smart investment for those who want to upgrade their Corvette’s wheels without compromising on quality. Whether for daily driving or weekend cruises, this rim offers both style and substance for Corvette enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B004SLP5ZC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Oe Wheels Cv05 17 Inch Rim</a>
+## <a href="https://www.amazon.com/dp/B004SLP5ZC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Oe Wheels Cv05 17 Inch Rim</a>
 
 
-<a href="https://www.amazon.com/dp/B004SLP5ZC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OE Wheels CV05 17 Inch Rim Fits Corvette C5 Style 5x120.65 17x8.5 Chrome - Hollander 5122 (1)" src="https://m.media-amazon.com/images/I/51HnUdP1+GL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B004SLP5ZC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OE Wheels CV05 17 Inch Rim Fits Corvette C5 Style 5x120.65 17x8.5 Chrome - Hollander 5122 (1)" src="https://m.media-amazon.com/images/I/51HnUdP1+GL._SL500_.jpg"/></a>
 
 
 The **OE Wheels CV05 17 Inch Rim** is an ideal choice for automotive enthusiasts and Corvette C5 owners seeking to enhance their vehicle's performance and style. This rim perfectly fits the **5x120.65 bolt pattern** and is designed for those who want a high-quality, durable, and visually striking upgrade for their sports car. If you prioritize both aesthetics and functionality in your wheels, this product is tailored for you.
@@ -226,10 +226,10 @@ The **OE Wheels CV05 17 Inch Rim** combines a robust design with a stylish **chr
 
 Additionally, the rim’s compatibility with the **5x120.65 bolt pattern** ensures a seamless fit for Corvette enthusiasts, allowing for straightforward installation without modifications. Its relatively lightweight construction at **26 pounds** helps reduce unsprung weight, which can improve suspension responsiveness and overall vehicle dynamics. With the OE Wheels CV05, users enjoy both the aesthetic appeal of a chrome rim and the practical benefits that come with a well-engineered design.
 
-## <a href="https://www.amazon.com/dp/B004SNE3VC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Oe Wheels Cv05 18 Inch Rim</a>
+## <a href="https://www.amazon.com/dp/B004SNE3VC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Oe Wheels Cv05 18 Inch Rim</a>
 
 
-<a href="https://www.amazon.com/dp/B004SNE3VC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OE Wheels CV05 18 Inch Rim Fits Corvette C5 Style 5x120.65 18x10.5 Gloss Black Machined Lip (1)" src="https://m.media-amazon.com/images/I/51ivWPInCxL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B004SNE3VC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OE Wheels CV05 18 Inch Rim Fits Corvette C5 Style 5x120.65 18x10.5 Gloss Black Machined Lip (1)" src="https://m.media-amazon.com/images/I/51ivWPInCxL._SL500_.jpg"/></a>
 
 
 The **OE Wheels CV05 18 Inch Rim** is an exceptional choice for **Corvette enthusiasts** and **automotive aficionados** looking to enhance the aesthetic and performance of their vehicles. This item is ideally suited for those who own a **Corvette C5** and wish to maintain the iconic style while upgrading to a more modern look with a **gloss black machined lip**. It's perfect for individuals who prioritize both form and function, ensuring their ride not only looks good but performs well on the road.
@@ -249,10 +249,10 @@ The **OE Wheels CV05** rim boasts a **bold design** that enhances the visual app
 
 Additionally, the **dimensions** of 18x10.5 inches provide a **sturdy base** that supports enhanced handling and stability, critical for high-performance vehicles like the Corvette. The **manufacturer**, **OE Wheels**, is renowned for their commitment to quality, ensuring that each rim is constructed to withstand the demands of daily driving and spirited weekend spins. Overall, this rim is a solid investment for anyone looking to elevate their vehicle's performance and appearance without compromising on quality.
 
-## <a href="https://www.amazon.com/dp/B0CZC7N494?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Oe Wheels Cv04 17 Inch Rims</a>
+## <a href="https://www.amazon.com/dp/B0CZC7N494?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Oe Wheels Cv04 17 Inch Rims</a>
 
 
-<a href="https://www.amazon.com/dp/B0CZC7N494?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OE Wheels CV04 17 Inch Rims Fit Corvette C5 Z06 Style 5x120.65 17x9.5 Gloss Black Machined Lip - Hollander 5123 (Set of 4)" src="https://m.media-amazon.com/images/I/519uuD6iwwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CZC7N494?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OE Wheels CV04 17 Inch Rims Fit Corvette C5 Z06 Style 5x120.65 17x9.5 Gloss Black Machined Lip - Hollander 5123 (Set of 4)" src="https://m.media-amazon.com/images/I/519uuD6iwwL._SL500_.jpg"/></a>
 
 
 The **OE Wheels CV04 17 Inch Rims** are ideal for car enthusiasts and Corvette C5 Z06 owners looking to upgrade their vehicle's aesthetics and performance. If you want a stylish, durable set of rims that perfectly fit the 5x120.65 bolt pattern and enhance your car's stance, these rims are an excellent choice. They cater to drivers who prioritize both form and function in their vehicle customization.

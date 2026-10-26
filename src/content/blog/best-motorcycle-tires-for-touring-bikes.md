@@ -23,10 +23,10 @@ Shinko’s 777 and 890 Journey tires focus on durability and smooth touring ride
 
 
 
-## <a href="https://www.amazon.com/dp/B07K8R48R2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pirelli Angel St Motorcycle Tires</a>
+## <a href="https://www.amazon.com/dp/B07K8R48R2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pirelli Angel St Motorcycle Tires</a>
 
 
-<a href="https://www.amazon.com/dp/B07K8R48R2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pirelli Angel ST 120/70ZR17 (58W) Front &amp; 180/55ZR17 (73W) Rear Motorcycle Tires – High-Performance Sport Touring Tire for Enhanced Grip, Durability &amp; Stability – Fits Sport &amp; Touring Bikes" src="https://m.media-amazon.com/images/I/41SiYUGeO6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07K8R48R2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pirelli Angel ST 120/70ZR17 (58W) Front &amp; 180/55ZR17 (73W) Rear Motorcycle Tires – High-Performance Sport Touring Tire for Enhanced Grip, Durability &amp; Stability – Fits Sport &amp; Touring Bikes" src="https://m.media-amazon.com/images/I/41SiYUGeO6L._SL500_.jpg"/></a>
 
 
 The **Pirelli Angel ST 120/70ZR17 (58W) Front & 180/55ZR17 (73W) Rear Motorcycle Tires** are perfect for riders who prioritize both performance and longevity. Ideal for enthusiasts who own **sport and touring motorcycles**, these tires offer a balanced blend of grip, durability, and stability, making them suitable for long-distance rides as well as spirited weekend rides.
@@ -48,10 +48,10 @@ The **Pirelli Angel ST** tires feature a sophisticated tread pattern and advance
 
 Additionally, these tires are engineered for longevity without compromising performance. The robust construction and high-quality materials used by **Pirelli** help resist wear and tear, allowing riders to cover more miles with consistent performance. The combination of front and rear tire sizes, specifically 120/70ZR17 for the front and 180/55ZR17 for the rear, ensures an optimal balance between agility and stability, perfectly suited for sport touring motorcycles.
 
-## <a href="https://www.amazon.com/dp/B09QXJML7S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Kenda Km1 (km001) Tires For Sport Touring Motorcycles </a>
+## <a href="https://www.amazon.com/dp/B09QXJML7S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Kenda Km1 (km001) Tires For Sport Touring Motorcycles </a>
 
 
-<a href="https://www.amazon.com/dp/B09QXJML7S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kenda KM1 (KM001) 120/70ZR17 Front (58W) &amp; 180/55ZR17 Rear (73W) Tires for Sport Touring Motorcycles, Radial with High-Speed Stability &amp; Excellent Wet Grip w/Keychain (120/70-17) (180/55-17) (2-Pack)" src="https://m.media-amazon.com/images/I/41zxQ9RvGiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09QXJML7S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kenda KM1 (KM001) 120/70ZR17 Front (58W) &amp; 180/55ZR17 Rear (73W) Tires for Sport Touring Motorcycles, Radial with High-Speed Stability &amp; Excellent Wet Grip w/Keychain (120/70-17) (180/55-17) (2-Pack)" src="https://m.media-amazon.com/images/I/41zxQ9RvGiL._SL500_.jpg"/></a>
 
 
 The **Kenda KM1 (KM001) 120/70ZR17 Front (58W) & 180/55ZR17 Rear (73W) Tires** are ideal for sport touring motorcycle riders who prioritize both performance and safety. If you are someone looking for reliable tires that offer excellent grip in various weather conditions, especially wet surfaces, and want high-speed stability for long-distance rides, these tires are designed for you.
@@ -73,10 +73,10 @@ The **Kenda KM1 tires** feature a radial construction that enhances flexibility 
 
 With dimensions of 14.5 inches in height and 24 inches in both width and length, these tires strike a balance between durability and performance. The 2-pack setup includes both front and rear tires, ensuring consistent performance and easy replacement. While the tires weigh 29.5 pounds, this added weight supports durability and stability without significantly compromising agility. Overall, the **Kenda KM1 (KM001)** tires offer sport touring riders a reliable and high-performing solution for their motorcycle needs.
 
-## <a href="https://www.amazon.com/dp/B0F6VR3L9Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop American Elite Ae2 Front Tire</a>
+## <a href="https://www.amazon.com/dp/B0F6VR3L9Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop American Elite Ae2 Front Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B0F6VR3L9Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop American Elite AE2 130/60B-19 Front Tire | Harley Touring Motorcycle" src="https://m.media-amazon.com/images/I/31MnIcfS4yL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F6VR3L9Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop American Elite AE2 130/60B-19 Front Tire | Harley Touring Motorcycle" src="https://m.media-amazon.com/images/I/31MnIcfS4yL._SL500_.jpg"/></a>
 
 
 The **Dunlop American Elite AE2 130/60B-19 Front Tire** is ideal for **Harley Touring Motorcycle** riders who prioritize long-lasting performance, superior grip, and enhanced safety on the road. This tire is perfect for enthusiasts who demand reliability during extended rides and varied weather conditions.
@@ -98,10 +98,10 @@ The **Dunlop American Elite AE2** features advanced rubber compounds and a uniqu
 
 Additionally, the tire’s build quality from **Dunlop** guarantees durability and resistance to wear. Its height of **4.9 inches** and width of **26.3 inches** contribute to optimal road contact, enhancing rider confidence. Overall, this tire is a reliable choice for motorcyclists seeking performance, safety, and endurance on their touring adventures.
 
-## <a href="https://www.amazon.com/dp/B005J9292Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Continental Contimotion Sport/touring Motorcycle Tire Front</a>
+## <a href="https://www.amazon.com/dp/B005J9292Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Continental Contimotion Sport/touring Motorcycle Tire Front</a>
 
 
-<a href="https://www.amazon.com/dp/B005J9292Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Continental ContiMotion Sport/Touring Motorcycle Tire Front 120/70-17" src="https://m.media-amazon.com/images/I/31OWmyTqliL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B005J9292Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Continental ContiMotion Sport/Touring Motorcycle Tire Front 120/70-17" src="https://m.media-amazon.com/images/I/31OWmyTqliL._SL500_.jpg"/></a>
 
 
 The **Continental ContiMotion Sport/Touring Motorcycle Tire Front 120/70-17** is ideal for **motorcyclists** who are looking for a **balance between performance and durability**. This tire is perfect for riders who enjoy long-distance touring but also want the capability to handle spirited rides on twisty roads. If you are a rider who values **safety, reliability**, and **versatility**, this tire could be a great addition to your motorcycle.
@@ -121,10 +121,10 @@ The **Continental ContiMotion** tire boasts a **modern design** that enhances bo
 
 One of the standout features of this tire is its **excellent mileage performance**, thanks to the **innovative rubber compound** that resists wear. This makes it an economical choice for riders who cover significant distances regularly. Moreover, its **lightweight design** contributes to improved fuel efficiency and handling, making your rides not only enjoyable but also cost-effective. With the **Continental ContiMotion**, you get a tire that supports your passion for riding while keeping safety and performance at the forefront.
 
-## <a href="https://www.amazon.com/dp/B002OAQD8W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pirelli Angel St 120/70zr17 Front Motorcycle Tire</a>
+## <a href="https://www.amazon.com/dp/B002OAQD8W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pirelli Angel St 120/70zr17 Front Motorcycle Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B002OAQD8W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pirelli Angel ST 120/70ZR17 (58W) Front Motorcycle Tire – High-Performance Sport Touring Tire for Enhanced Grip, Durability &amp; Stability – Fits Sport &amp; Touring Bikes" src="https://m.media-amazon.com/images/I/31ktRSAqNuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B002OAQD8W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pirelli Angel ST 120/70ZR17 (58W) Front Motorcycle Tire – High-Performance Sport Touring Tire for Enhanced Grip, Durability &amp; Stability – Fits Sport &amp; Touring Bikes" src="https://m.media-amazon.com/images/I/31ktRSAqNuL._SL500_.jpg"/></a>
 
 
 The **Pirelli Angel ST 120/70ZR17 (58W) Front Motorcycle Tire** is ideal for riders who demand a blend of **high-performance sport touring** capabilities and reliable **durability**. If you own a **sport or touring bike** and seek enhanced **grip** and **stability** during long rides or aggressive cornering, this tire is designed to meet your needs.
@@ -146,10 +146,10 @@ The **Pirelli Angel ST** tire features a carefully engineered tread pattern that
 
 Moreover, the tire's compound is designed to balance grip and durability, offering riders the confidence to push their bikes to the limit without sacrificing safety. The precise dimensions and load rating ensure that it fits a variety of sport and touring motorcycles, providing a smooth and stable ride that enhances overall control and comfort during extended journeys.
 
-## <a href="https://www.amazon.com/dp/B00CA2ZXVM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shinko 890 Journey Rear Tire</a>
+## <a href="https://www.amazon.com/dp/B00CA2ZXVM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shinko 890 Journey Rear Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B00CA2ZXVM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Shinko 890 Journey Rear 180/70R16 77H Radial TL Tire" src="https://m.media-amazon.com/images/I/41RAUch0V7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00CA2ZXVM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Shinko 890 Journey Rear 180/70R16 77H Radial TL Tire" src="https://m.media-amazon.com/images/I/41RAUch0V7L._SL500_.jpg"/></a>
 
 
 The **Shinko 890 Journey Rear 180/70R16 77H Radial TL Tire** is ideal for motorcycle riders who seek a reliable and durable tire for long-distance touring and daily commuting. It is especially suitable for those who value a balance between performance, comfort, and affordability in their motorcycle tires. Riders looking to enhance their bike's handling and traction on various road conditions will find this tire a great choice.
@@ -171,10 +171,10 @@ The **Shinko 890 Journey Rear Tire** features a radial construction that enhance
 
 Additionally, the tire's durable build ensures it withstands the rigors of daily commuting and long journeys without compromising performance. Its size and load rating are tailored to support heavier touring motorcycles, providing stability and confidence on highways and winding roads alike. Overall, the **Shinko 890 Journey** combines quality, performance, and value, making it a smart investment for riders seeking dependable rear tire performance.
 
-## <a href="https://www.amazon.com/dp/B00342TUCK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shinko 777 Journey Touring Radial Rear Tire</a>
+## <a href="https://www.amazon.com/dp/B00342TUCK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shinko 777 Journey Touring Radial Rear Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B00342TUCK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Shinko 777 Journey Touring Radial Rear Tire - 150/70x18" src="https://m.media-amazon.com/images/I/3114jxYgtYL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00342TUCK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Shinko 777 Journey Touring Radial Rear Tire - 150/70x18" src="https://m.media-amazon.com/images/I/3114jxYgtYL._SL500_.jpg"/></a>
 
 
 The **Shinko 777 Journey Touring Radial Rear Tire - 150/70x18** is ideal for motorcyclists who value a blend of durability, performance, and comfort during long-distance rides. If you're a touring enthusiast or a commuter seeking reliable traction and stability on various road conditions, this tire is designed to meet your needs. Its size and build cater specifically to riders who prioritize a smooth ride with enhanced handling on both highways and city streets.
@@ -197,10 +197,10 @@ The **Shinko 777 Journey Touring Radial Rear Tire** features a robust radial con
 
 Beyond performance, the tire’s dimensions (Height: 5.8 inches, Width: 26.1 inches, Length: 25.6 inches) offer a balanced profile that supports both comfort and control. Riders benefit from reduced road vibrations and a smoother ride, which helps minimize fatigue on extended trips. Manufactured by Shinko Motorcycle Tires, a brand known for quality and reliability, this tire is a smart investment for those looking to enhance their motorcycle’s touring capabilities without sacrificing safety or comfort.
 
-## <a href="https://www.amazon.com/dp/B0035UFN22?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pirelli Angel St 180/55zr17 Rear Motorcycle Tire</a>
+## <a href="https://www.amazon.com/dp/B0035UFN22?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pirelli Angel St 180/55zr17 Rear Motorcycle Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B0035UFN22?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pirelli Angel ST 180/55ZR17 (73W) Rear Motorcycle Tire – High-Performance Sport Touring Tire for Enhanced Grip, Durability &amp; Stability – Fits Sport &amp; Touring Bikes" src="https://m.media-amazon.com/images/I/41WC5et+ecL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0035UFN22?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pirelli Angel ST 180/55ZR17 (73W) Rear Motorcycle Tire – High-Performance Sport Touring Tire for Enhanced Grip, Durability &amp; Stability – Fits Sport &amp; Touring Bikes" src="https://m.media-amazon.com/images/I/41WC5et+ecL._SL500_.jpg"/></a>
 
 
 The **Pirelli Angel ST 180/55ZR17 (73W) Rear Motorcycle Tire** is ideal for riders who seek a perfect blend of performance and reliability in their sport touring motorcycles. If you are a sport or touring bike enthusiast looking for a tire that offers enhanced grip, durability, and stability on both long rides and spirited weekend trips, this tire is designed specifically for you.
@@ -222,10 +222,10 @@ The **Pirelli Angel ST 180/55ZR17** tire features advanced rubber compounds and 
 
 Additionally, the tire's construction focuses on providing excellent stability at high speeds, ensuring that sport bike riders experience precise handling and responsiveness. The 180/55ZR17 size fits many sport and touring motorcycles, making it a versatile choice for riders who want to upgrade their rear tire without compromising on performance or safety. Overall, the Pirelli Angel ST combines quality, durability, and performance to meet the demands of both daily commuters and weekend adventurers.
 
-## <a href="https://www.amazon.com/dp/B002OAR9LM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pirelli Angel St 160/60zr17 Rear Motorcycle Tire</a>
+## <a href="https://www.amazon.com/dp/B002OAR9LM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pirelli Angel St 160/60zr17 Rear Motorcycle Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B002OAR9LM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pirelli Angel ST 160/60ZR17 (69W) Rear Motorcycle Tire – High-Performance Sport Touring Tire for Enhanced Grip, Durability &amp; Stability – Fits Sport &amp; Touring Bikes" src="https://m.media-amazon.com/images/I/31GIRweItlL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B002OAR9LM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pirelli Angel ST 160/60ZR17 (69W) Rear Motorcycle Tire – High-Performance Sport Touring Tire for Enhanced Grip, Durability &amp; Stability – Fits Sport &amp; Touring Bikes" src="https://m.media-amazon.com/images/I/31GIRweItlL._SL500_.jpg"/></a>
 
 
 The **Pirelli Angel ST 160/60ZR17 (69W) Rear Motorcycle Tire** is ideal for riders who prioritize **high-performance sport touring** capabilities. This tire is perfect for those who own **sport and touring bikes** and seek enhanced **grip, durability, and stability** during long rides and varied road conditions. If you are a motorcycle enthusiast looking for a reliable tire that balances performance and longevity, this product is an excellent choice.
@@ -247,10 +247,10 @@ The **Pirelli Angel ST 160/60ZR17** tire features advanced rubber compounds and 
 
 Additionally, this rear motorcycle tire is engineered for increased durability, reducing the frequency of replacements and maintenance costs. The **69W rating** indicates the tire’s capability to handle higher speeds safely, making it suitable for riders who demand performance without sacrificing reliability. Overall, the **Pirelli Angel ST** tire offers an excellent balance of comfort, performance, and endurance for sport and touring motorcycle enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B0F81YP8KZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop Ae2 Rear Tire</a>
+## <a href="https://www.amazon.com/dp/B0F81YP8KZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop Ae2 Rear Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B0F81YP8KZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop AE2 Rear Tire 180/55B-18 | American Elite Cruiser Touring Motorcycle Tire" src="https://m.media-amazon.com/images/I/41AIZCSg1wL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F81YP8KZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop AE2 Rear Tire 180/55B-18 | American Elite Cruiser Touring Motorcycle Tire" src="https://m.media-amazon.com/images/I/41AIZCSg1wL._SL500_.jpg"/></a>
 
 
 The **Dunlop AE2 Rear Tire 180/55B-18** is ideal for riders who own **American Elite Cruiser Touring Motorcycles** and seek enhanced performance, durability, and comfort on long-distance rides. This tire is perfect for enthusiasts who prioritize reliable traction and stability while cruising on highways or exploring varied terrains.

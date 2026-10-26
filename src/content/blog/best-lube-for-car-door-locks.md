@@ -22,10 +22,10 @@ These products help keep locks easy to open and close in all weather. Applying a
 
 
 
-## <a href="https://www.amazon.com/dp/B000CIJUGA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ags Automotive Solutions Lock-ease Graphite Lock Lubricant</a>
+## <a href="https://www.amazon.com/dp/B000CIJUGA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ags Automotive Solutions Lock-ease Graphite Lock Lubricant</a>
 
 
-<a href="https://www.amazon.com/dp/B000CIJUGA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="AGS Automotive Solutions Lock-Ease Graphite Lock Lubricant – 3oz Aerosol, Prevents Freezing, Reduces Friction, No Residue, Protects Against Wear &amp; Rust" src="https://m.media-amazon.com/images/I/41+0gle-jfL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000CIJUGA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="AGS Automotive Solutions Lock-Ease Graphite Lock Lubricant – 3oz Aerosol, Prevents Freezing, Reduces Friction, No Residue, Protects Against Wear &amp; Rust" src="https://m.media-amazon.com/images/I/41+0gle-jfL._SL500_.jpg"/></a>
 
 
 The **AGS Automotive Solutions Lock-Ease Graphite Lock Lubricant** is ideal for vehicle owners, locksmiths, and maintenance professionals who want to ensure smooth operation of locks in cars, trucks, and other machinery. If you're looking to prevent lock freezing, reduce friction, and protect your locks from wear and rust, this product is a practical choice for maintaining lock longevity and performance.
@@ -47,10 +47,10 @@ The **Lock-Ease Graphite Lock Lubricant** by **AGS Automotive Solutions** featur
 
 This lubricant's key benefit is its ability to prevent freezing during cold weather, which is especially useful for those living in colder climates. By reducing friction inside the lock, it not only makes turning the key easier but also decreases wear and tear, thereby protecting your investment. The no-residue formula ensures that dust and dirt don't accumulate inside the lock, maintaining its smooth functionality over time.
 
-## <a href="https://www.amazon.com/dp/B0016N38TA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hillman Graphite Tube Key Lock Lubricant</a>
+## <a href="https://www.amazon.com/dp/B0016N38TA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hillman Graphite Tube Key Lock Lubricant</a>
 
 
-<a href="https://www.amazon.com/dp/B0016N38TA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Hillman 703185 Graphite Tube 3G, White Key Lock Lubricant" src="https://m.media-amazon.com/images/I/31l1K6fCdlL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0016N38TA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Hillman 703185 Graphite Tube 3G, White Key Lock Lubricant" src="https://m.media-amazon.com/images/I/31l1K6fCdlL._SL500_.jpg"/></a>
 
 
 The **Hillman 703185 Graphite Tube 3G, White Key Lock Lubricant** is ideal for homeowners, locksmiths, and maintenance professionals who want to ensure smooth operation of their locks. If you frequently deal with sticky or rusty locks, or simply want to maintain your locking mechanisms in top condition, this product is a perfect choice. It is especially beneficial for those seeking a reliable, mess-free lubricant that enhances lock performance without attracting dirt.
@@ -74,10 +74,10 @@ The **Hillman 703185 Graphite Tube 3G** delivers a specialized formula designed 
 
 Thanks to its compact and lightweight design, this lubricant tube is easy to carry in a toolkit or keep handy around the house. The product's focus on key locks means it avoids common issues found with other lubricants, such as attracting dirt or becoming gummy over time. Whether you are a professional locksmith or a homeowner wanting to maintain your locks, the Hillman 703185 offers dependable performance and convenience, ensuring your locks operate smoothly season after season.
 
-## <a href="https://www.amazon.com/dp/B0DP6WB9YS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Choowin Graphite Powder</a>
+## <a href="https://www.amazon.com/dp/B0DP6WB9YS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Choowin Graphite Powder</a>
 
 
-<a href="https://www.amazon.com/dp/B0DP6WB9YS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Choowin Graphite Powder for Pinewood Car, Dry Graphite Lubricant for Lock, Door Hinge, Pine Derby Car Wheels Axles - Door Hinge Lock Lubricant, 60 ml" src="https://m.media-amazon.com/images/I/31BSsD98a-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DP6WB9YS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Choowin Graphite Powder for Pinewood Car, Dry Graphite Lubricant for Lock, Door Hinge, Pine Derby Car Wheels Axles - Door Hinge Lock Lubricant, 60 ml" src="https://m.media-amazon.com/images/I/31BSsD98a-L._SL500_.jpg"/></a>
 
 
 The **Choowin Graphite Powder** is ideal for hobbyists and professionals who require a reliable, dry lubricant for their **pinewood derby cars**, **door hinges**, and **locks**. If you are someone looking to reduce friction and enhance the performance of mechanical parts without the mess of liquid lubricants, this product is a perfect choice. Its compact 60 ml size makes it convenient for precise application and easy storage.
@@ -99,10 +99,10 @@ The **Choowin Graphite Powder** is specially formulated to provide a dry, clean 
 
 Users benefit from the ease of application and the versatility of this product. Unlike traditional wet lubricants, this dry graphite powder does not leave oily residues, which means less cleaning and maintenance. The trusted **Choowin brand** guarantees quality and effectiveness, making it a dependable addition to any toolkit for those who want to ensure smooth operation and longevity of their mechanical devices.
 
-## <a href="https://www.amazon.com/dp/B0F9XWVX7H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">3pcs 60ml Dry Graphite Powder Lubricant</a>
+## <a href="https://www.amazon.com/dp/B0F9XWVX7H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">3pcs 60ml Dry Graphite Powder Lubricant</a>
 
 
-<a href="https://www.amazon.com/dp/B0F9XWVX7H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="3PCS 60ml Dry Graphite Powder Lubricant, No-Dust Formula Long-Lasting Graphite Lubricant for Car Locks, Door Hinges, Padlocks &amp; Mechanical Tools" src="https://m.media-amazon.com/images/I/41wJACUjYFL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F9XWVX7H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="3PCS 60ml Dry Graphite Powder Lubricant, No-Dust Formula Long-Lasting Graphite Lubricant for Car Locks, Door Hinges, Padlocks &amp; Mechanical Tools" src="https://m.media-amazon.com/images/I/41wJACUjYFL._SL500_.jpg"/></a>
 
 
 The **3PCS 60ml Dry Graphite Powder Lubricant** is an excellent choice for individuals who frequently encounter **sticky locks**, **squeaky door hinges**, or **stiff padlocks**. Ideal for both **car enthusiasts** and **homeowners**, this product provides a **versatile** and **long-lasting solution** to common mechanical issues. If you're seeking a **no-mess lubricant** that can enhance the functionality of various mechanical tools, this is the product for you.
@@ -123,10 +123,10 @@ The **Dry Graphite Powder Lubricant** from **Veesper** is designed to provide ef
 
 In addition to its practicality, the **graphite powder** is known for its **durability** and **resistance to wear**, meaning that a single application can last a considerable amount of time. This makes it a **cost-effective solution** for maintaining **household** and **automotive hardware**. The **compact 60ml** bottles are easy to store in a glove compartment or toolbox, ensuring that you always have it on hand when needed.
 
-## <a href="https://www.amazon.com/dp/B00YRZUGH6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lucky Line Graphite Dry Lock Lubricant Powder</a>
+## <a href="https://www.amazon.com/dp/B00YRZUGH6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lucky Line Graphite Dry Lock Lubricant Powder</a>
 
 
-<a href="https://www.amazon.com/dp/B00YRZUGH6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Lucky Line Graphite Dry Lock Lubricant Powder, 4.5 Grams (9501), Black and White" src="https://m.media-amazon.com/images/I/41XeQJCCsSL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00YRZUGH6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Lucky Line Graphite Dry Lock Lubricant Powder, 4.5 Grams (9501), Black and White" src="https://m.media-amazon.com/images/I/41XeQJCCsSL._SL500_.jpg"/></a>
 
 
 The **Lucky Line Graphite Dry Lock Lubricant Powder, 4.5 Grams (9501)** is ideal for individuals who require a reliable and mess-free lubricant for locks, hinges, and other mechanical parts. This product is perfect for locksmiths, maintenance professionals, and DIY enthusiasts looking to reduce friction and prevent rust without the residue of oil-based lubricants. If you want a clean, efficient solution to keep your mechanisms running smoothly, this graphite powder is a smart choice.
@@ -149,10 +149,10 @@ The **Lucky Line Graphite Dry Lock Lubricant Powder** is designed with a unique 
 
 Additionally, the compact and lightweight design enhances convenience, allowing users to carry the lubricant powder easily in a toolbox or pocket. Manufactured by **Lucky Line**, a trusted brand known for quality maintenance products, this graphite powder is a dependable choice for anyone looking to maintain smooth and rust-free operation of locks and other moving parts. Its release date in 2015 signifies a tried-and-tested formula that continues to meet user needs effectively.
 
-## <a href="https://www.amazon.com/dp/B0DWN3T91K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">2pcs Lock Cylinder Graphite Lubricant Powder</a>
+## <a href="https://www.amazon.com/dp/B0DWN3T91K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">2pcs Lock Cylinder Graphite Lubricant Powder</a>
 
 
-<a href="https://www.amazon.com/dp/B0DWN3T91K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="2PCS Lock Cylinder Graphite Lubricant Powder,Graphite Lubricant with No Dust,Door Lock Lubrication with Needle Tube,Car Lock Lubrication Solution,Graphite Lubricant for Keys Doors Hinges Lubrication" src="https://m.media-amazon.com/images/I/41JUgg4--FL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DWN3T91K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="2PCS Lock Cylinder Graphite Lubricant Powder,Graphite Lubricant with No Dust,Door Lock Lubrication with Needle Tube,Car Lock Lubrication Solution,Graphite Lubricant for Keys Doors Hinges Lubrication" src="https://m.media-amazon.com/images/I/41JUgg4--FL._SL500_.jpg"/></a>
 
 
 The **2PCS Lock Cylinder Graphite Lubricant Powder** is ideal for homeowners, car owners, and locksmith professionals who seek a reliable and clean solution for maintaining and lubricating locks, keys, doors, and hinges. If you want to prevent sticking, rusting, or jamming of your lock mechanisms without the mess of traditional oils, this product is designed for you.
@@ -174,10 +174,10 @@ The **graphite lubricant powder** is formulated to provide smooth and friction-f
 
 Using this **door lock lubrication solution** not only prolongs the life of your locks but also enhances security by preventing lock failures due to sticking or rust. Its black graphite color indicates its purity and effectiveness, making it a trusted choice for anyone needing a dependable lubricant. The product's versatility across various lock types and hinges adds to its convenience, making it a practical addition to any maintenance toolkit.
 
-## <a href="https://www.amazon.com/dp/B0CW9N44FQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Horex Automotive White Lithium Grease 50ml</a>
+## <a href="https://www.amazon.com/dp/B0CW9N44FQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Horex Automotive White Lithium Grease 50ml</a>
 
 
-<a href="https://www.amazon.com/dp/B0CW9N44FQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Horex Automotive White Lithium Grease 50ml Multi-Purpose Lubricant Set Car Door Handle Hinge Seat Slide Sunroof Sliding Door Prevent Rust Corrosion Lubrication for Trailer Garage Marine Machine" src="https://m.media-amazon.com/images/I/41Vvof4mcSL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CW9N44FQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Horex Automotive White Lithium Grease 50ml Multi-Purpose Lubricant Set Car Door Handle Hinge Seat Slide Sunroof Sliding Door Prevent Rust Corrosion Lubrication for Trailer Garage Marine Machine" src="https://m.media-amazon.com/images/I/41Vvof4mcSL._SL500_.jpg"/></a>
 
 
 The **Horex Automotive White Lithium Grease 50ml Multi-Purpose Lubricant Set** is ideal for car owners, mechanics, and DIY enthusiasts who need a reliable solution for lubricating and protecting various vehicle parts. If you are looking to maintain or enhance the performance of your car door handles, hinges, seat slides, sunroofs, sliding doors, or even trailers and marine equipment, this product is designed to meet your needs. It is perfect for those who want to prevent rust, reduce friction, and ensure smooth operation of moving parts.
@@ -199,10 +199,10 @@ The **white lithium grease** formula in this Horex product offers excellent adhe
 
 Thanks to its **multi-purpose application**, this grease can be used not only on vehicles but also on trailers, sunroofs, sliding doors, and various machinery. The compact 50ml size makes it easy to store and apply precisely where needed, making it a handy addition to any automotive or maintenance toolkit. Overall, the Horex Automotive White Lithium Grease provides reliable performance, ensuring your mechanical parts stay well-lubricated and protected for longer periods.
 
-## <a href="https://www.amazon.com/dp/B0F18TFPBF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lock Cylinder Graphite Lubricant Powder</a>
+## <a href="https://www.amazon.com/dp/B0F18TFPBF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lock Cylinder Graphite Lubricant Powder</a>
 
 
-<a href="https://www.amazon.com/dp/B0F18TFPBF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Lock Cylinder Graphite Lubricant Powder, Graphite Lubricant with No Dust, Graphite Lock Lubricant, Car Lock Lubrication Solution, Lock Lubricant Powder for Window Guides,Door Guides,Car Locks New" src="https://m.media-amazon.com/images/I/41odMwjpQhL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F18TFPBF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Lock Cylinder Graphite Lubricant Powder, Graphite Lubricant with No Dust, Graphite Lock Lubricant, Car Lock Lubrication Solution, Lock Lubricant Powder for Window Guides,Door Guides,Car Locks New" src="https://m.media-amazon.com/images/I/41odMwjpQhL._SL500_.jpg"/></a>
 
 
 The **Lock Cylinder Graphite Lubricant Powder** is ideal for vehicle owners, locksmiths, and anyone looking to maintain and enhance the functionality of their locks. If you often face issues with sticky or jammed locks on your car, window guides, or door guides, this product offers a practical and efficient solution. It's especially beneficial for those who prefer a clean, dust-free lubricant that ensures smooth operation without the mess.
@@ -225,10 +225,10 @@ The **Graphite Lock Lubricant** is designed to improve the performance of locks 
 
 Additionally, this **car lock lubrication solution** is user-friendly and safe to use on various lock types. The graphite powder creates a protective layer that helps locks resist wear and tear over time, enhancing durability and reliability. For anyone seeking a maintenance product that combines efficiency, cleanliness, and ease of use, this graphite lubricant powder from Generic brand offers a dependable option.
 
-## <a href="https://www.amazon.com/dp/B0F192P35S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lock Cylinder Graphite Lubricant Powder</a>
+## <a href="https://www.amazon.com/dp/B0F192P35S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lock Cylinder Graphite Lubricant Powder</a>
 
 
-<a href="https://www.amazon.com/dp/B0F192P35S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Lock Cylinder Graphite Lubricant Powder,Door Hinge Lubricant, Car Graphite Lubricant for Keys Car Locks Door Window Guides,Multifunctional Lock Lubricant Powder,for Car Door Locks (1 Pcs)" src="https://m.media-amazon.com/images/I/41wy0b8aBUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F192P35S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Lock Cylinder Graphite Lubricant Powder,Door Hinge Lubricant, Car Graphite Lubricant for Keys Car Locks Door Window Guides,Multifunctional Lock Lubricant Powder,for Car Door Locks (1 Pcs)" src="https://m.media-amazon.com/images/I/41wy0b8aBUL._SL500_.jpg"/></a>
 
 
 The **Lock Cylinder Graphite Lubricant Powder** is ideal for individuals seeking an efficient and long-lasting solution to maintain and smoothen the operation of their **car locks**, **door hinges**, and **window guides**. If you frequently experience sticking or jamming in your locks or hinges, or if you want to ensure the longevity and reliability of these mechanisms, this product is perfect for you. It caters to car owners, locksmiths, and homeowners who value hassle-free and quiet lock and door operations.
@@ -250,10 +250,10 @@ The **Lock Cylinder Graphite Lubricant Powder** stands out due to its dry lubric
 
 Manufactured by **Generic** and available in a convenient **1 Pcs** color pack, this lubricant powder is designed for easy application and maximum efficiency. Users benefit from quieter, smoother door and lock operation, which enhances the overall user experience and reduces wear and tear on mechanical components. Whether for personal car maintenance or professional locksmith use, this lubricant powder provides a reliable solution to common lock and hinge problems.
 
-## <a href="https://www.amazon.com/dp/B000KMY6U8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ags Mz-1 Lock De-icer Lubricant</a>
+## <a href="https://www.amazon.com/dp/B000KMY6U8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ags Mz-1 Lock De-icer Lubricant</a>
 
 
-<a href="https://www.amazon.com/dp/B000KMY6U8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="AGS MZ-1 Lock De-Icer Lubricant, 1/2 oz" src="https://m.media-amazon.com/images/I/41EBXfGL6SL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000KMY6U8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="AGS MZ-1 Lock De-Icer Lubricant, 1/2 oz" src="https://m.media-amazon.com/images/I/41EBXfGL6SL._SL500_.jpg"/></a>
 
 
 The **AGS MZ-1 Lock De-Icer Lubricant, 1/2 oz.** is ideal for homeowners, vehicle owners, and anyone living in colder climates who frequently face frozen or stuck locks during winter. If you want a quick and effective solution to prevent lock freezing and ensure smooth operation, this product is a perfect choice.

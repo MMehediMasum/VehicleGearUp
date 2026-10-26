@@ -20,10 +20,10 @@ Fuel choices like gas, propane, and natural gas help manage costs and availabili
 
 
 
-## <a href="https://www.amazon.com/dp/B07Q1DLKBG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Westinghouse 12500 Watt Dual Fuel Home Backup Portable Generator</a>
+## <a href="https://www.amazon.com/dp/B07Q1DLKBG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Westinghouse 12500 Watt Dual Fuel Home Backup Portable Generator</a>
 
 
-<a href="https://www.amazon.com/dp/B07Q1DLKBG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Westinghouse 12500 Watt Dual Fuel Home Backup Portable Generator, Remote Electric Start, Transfer Switch Ready, Gas and Propane Powered" src="https://m.media-amazon.com/images/I/515v2n2TJQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07Q1DLKBG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Westinghouse 12500 Watt Dual Fuel Home Backup Portable Generator, Remote Electric Start, Transfer Switch Ready, Gas and Propane Powered" src="https://m.media-amazon.com/images/I/515v2n2TJQL._SL500_.jpg"/></a>
 
 
 The **Westinghouse 12500 Watt Dual Fuel Home Backup Portable Generator** is ideal for homeowners and small business operators who need a reliable power source during outages. This generator suits those looking for flexibility in fuel options, as it operates on both **gas and propane**. If you require a high-capacity, portable, and easy-to-start generator with the convenience of remote electric start and transfer switch compatibility, this model is an excellent choice.
@@ -46,10 +46,10 @@ The **Westinghouse 12500 Watt Dual Fuel Generator** boasts a robust build with d
 
 Equipped with a **remote electric start**, this generator offers convenience and safety by allowing users to start the engine from a distance without manual effort. Being **transfer switch ready** means it can connect directly to your home's electrical system, enabling seamless power transfer during outages. The high wattage output supports a wide range of household appliances and essential tools, making it a dependable companion for backup power needs.
 
-## <a href="https://www.amazon.com/dp/B0C4C4FR1C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Westinghouse 13500 Peak Watt Tri-fuel Home Backup Portable Generator</a>
+## <a href="https://www.amazon.com/dp/B0C4C4FR1C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Westinghouse 13500 Peak Watt Tri-fuel Home Backup Portable Generator</a>
 
 
-<a href="https://www.amazon.com/dp/B0C4C4FR1C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Westinghouse 13500 Peak Watt Tri-Fuel Home Backup Portable Generator, Remote Electric Start, Transfer Switch Ready, Gas, Propane, and Natural Gas Powered" src="https://m.media-amazon.com/images/I/51-zzOalVyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C4C4FR1C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Westinghouse 13500 Peak Watt Tri-Fuel Home Backup Portable Generator, Remote Electric Start, Transfer Switch Ready, Gas, Propane, and Natural Gas Powered" src="https://m.media-amazon.com/images/I/51-zzOalVyL._SL500_.jpg"/></a>
 
 
 The **Westinghouse 13500 Peak Watt Tri-Fuel Home Backup Portable Generator** is ideal for homeowners and outdoor enthusiasts who need a reliable and versatile power source. This generator is perfect for those seeking flexibility in fuel options, whether it's **gas**, **propane**, or **natural gas**. If you want a powerful, easy-to-start generator that can handle emergencies or remote power needs, this model is a great choice.
@@ -72,10 +72,10 @@ The **Westinghouse 13500 Peak Watt Tri-Fuel Generator** stands out with its impr
 
 Another major benefit is its **transfer switch readiness**, which simplifies the process of connecting the generator to your home’s electrical system. This feature allows for quick and safe switching between grid power and generator power, ensuring your essential appliances stay powered without manual intervention. Despite its robust power output, the generator's compact and sturdy design makes it a practical solution for both home backup and outdoor use, providing peace of mind with reliable, portable energy.
 
-## <a href="https://www.amazon.com/dp/B0CRY234R8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Aivolt 11250 Wattages Dual Fuel Portable Inverter Generator</a>
+## <a href="https://www.amazon.com/dp/B0CRY234R8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Aivolt 11250 Wattages Dual Fuel Portable Inverter Generator</a>
 
 
-<a href="https://www.amazon.com/dp/B0CRY234R8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="AIVOLT 11250 Wattages Dual Fuel Portable Inverter Generator Super Quiet Gas Propane Powered Remote/Electric Start Outdoor Generator ATS Ready for Home Back Up Food Truck, 50 State Approved" src="https://m.media-amazon.com/images/I/51J-FOOr4cL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CRY234R8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="AIVOLT 11250 Wattages Dual Fuel Portable Inverter Generator Super Quiet Gas Propane Powered Remote/Electric Start Outdoor Generator ATS Ready for Home Back Up Food Truck, 50 State Approved" src="https://m.media-amazon.com/images/I/51J-FOOr4cL._SL500_.jpg"/></a>
 
 
 The **AIVOLT 11250 Wattages Dual Fuel Portable Inverter Generator** is ideal for homeowners seeking a reliable **backup power source**, as well as food truck operators who need a **portable and efficient generator**. It's perfect for those who value **versatility** and **convenience**, thanks to its dual fuel capability and remote/electric start features.
@@ -97,10 +97,10 @@ The **AIVOLT 11250 Wattages Dual Fuel Portable Inverter Generator** offers a ran
 
 With **ATS readiness**, this generator is equipped for seamless integration as a home backup power source, ensuring that critical appliances continue to run during power outages. Its compliance with **50 state emissions standards** means it meets rigorous environmental regulations, making it a responsible choice for eco-conscious consumers. Despite its robust build and powerful output, the generator maintains a user-friendly interface, making it an excellent choice for both residential and commercial applications.
 
-## <a href="https://www.amazon.com/dp/B0BVGSFCPG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Westinghouse 12500 Peak Watt Tri-fuel Home Backup Portable Generator</a>
+## <a href="https://www.amazon.com/dp/B0BVGSFCPG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Westinghouse 12500 Peak Watt Tri-fuel Home Backup Portable Generator</a>
 
 
-<a href="https://www.amazon.com/dp/B0BVGSFCPG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Westinghouse 12500 Peak Watt Tri-Fuel Home Backup Portable Generator, Remote Electric Start, Transfer Switch Ready, Gas, Propane, and Natural Gas Powered" src="https://m.media-amazon.com/images/I/51OIm+2xe0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BVGSFCPG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Westinghouse 12500 Peak Watt Tri-Fuel Home Backup Portable Generator, Remote Electric Start, Transfer Switch Ready, Gas, Propane, and Natural Gas Powered" src="https://m.media-amazon.com/images/I/51OIm+2xe0L._SL500_.jpg"/></a>
 
 
 The **Westinghouse 12500 Peak Watt Tri-Fuel Home Backup Portable Generator** is ideal for homeowners and outdoor enthusiasts who require a reliable and versatile power source during outages or remote activities. This generator is perfect for those who need flexibility in fuel options, as it supports **gas, propane, and natural gas**, making it a practical choice for various situations and fuel availabilities.
@@ -123,10 +123,10 @@ The **Westinghouse 12500 Peak Watt Tri-Fuel Generator** stands out for its abili
 
 Designed with homeowners in mind, this generator is **transfer switch ready**, enabling quick and safe connection to your home’s electrical system. Its robust power output supports multiple essential appliances and devices, ensuring comfort and functionality during outages. Despite its heavy weight, the compact size and solid build make it a durable and dependable choice for long-term use.
 
-## <a href="https://www.amazon.com/dp/B07G7GGFV6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Duromax Xp13000eh 13,000-watt Dual Fuel Portable Generator</a>
+## <a href="https://www.amazon.com/dp/B07G7GGFV6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Duromax Xp13000eh 13,000-watt Dual Fuel Portable Generator</a>
 
 
-<a href="https://www.amazon.com/dp/B07G7GGFV6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="DuroMax XP13000EH 13,000-Watt Dual Fuel Portable Generator - Gas &amp; Propane, Electric Start, Whole Home Backup Power, Transfer Switch Ready, RV &amp; Emergency Ready" src="https://m.media-amazon.com/images/I/51wETel+hML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07G7GGFV6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="DuroMax XP13000EH 13,000-Watt Dual Fuel Portable Generator - Gas &amp; Propane, Electric Start, Whole Home Backup Power, Transfer Switch Ready, RV &amp; Emergency Ready" src="https://m.media-amazon.com/images/I/51wETel+hML._SL500_.jpg"/></a>
 
 
 The **DuroMax XP13000EH 13,000-Watt Dual Fuel Portable Generator** is ideal for homeowners and outdoor enthusiasts who need a reliable and powerful source of backup power. Whether you're preparing for emergencies, RV trips, or require a whole home backup solution, this generator offers versatility and high performance. It is perfect for those who want the flexibility of running on both **gasoline and propane** with the convenience of an **electric start**.
@@ -150,10 +150,10 @@ The **DuroMax XP13000EH** stands out with its impressive **dual fuel technology*
 
 Built with durability in mind, the **DuroMax XP13000EH** features a robust frame and compact design, making it portable enough to transport to campsites or emergency locations. The high wattage output ensures that it can handle heavy electrical loads, including multiple appliances and power tools simultaneously. This makes it not only a practical choice for emergency preparedness but also a versatile power source for RV owners and outdoor enthusiasts who demand consistent and reliable power wherever they go.
 
-## <a href="https://www.amazon.com/dp/B07MMZZSHC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wen Dual Fuel Portable Generator</a>
+## <a href="https://www.amazon.com/dp/B07MMZZSHC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wen Dual Fuel Portable Generator</a>
 
 
-<a href="https://www.amazon.com/dp/B07MMZZSHC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="WEN 11,000-Watt 120V/240V Dual Fuel Portable Generator with Wheel Kit and Electric Start (DF1100T)" src="https://m.media-amazon.com/images/I/519A9uccm5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07MMZZSHC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="WEN 11,000-Watt 120V/240V Dual Fuel Portable Generator with Wheel Kit and Electric Start (DF1100T)" src="https://m.media-amazon.com/images/I/519A9uccm5L._SL500_.jpg"/></a>
 
 
 The **WEN 11,000-Watt 120V/240V Dual Fuel Portable Generator with Wheel Kit and Electric Start (DF1100T)** is ideal for homeowners, contractors, and outdoor enthusiasts who need a reliable power source during outages, on job sites, or while camping. This generator is perfect for those seeking versatility and convenience, especially users who want the option to switch between gasoline and propane fuel for greater flexibility.
@@ -176,10 +176,10 @@ The **WEN DF1100T** features a robust **11,000-watt power output** that can supp
 
 Equipped with an **electric start**, the generator eliminates the struggle of manual pull-starting, ensuring a quick and effortless power-up. The integrated **wheel kit** and compact dimensions (21.9" height, 20.6" width, 27.3" length) make it easy to move around despite the generator's substantial 214-pound weight. This combination of power, portability, and fuel flexibility makes the WEN DF1100T an excellent investment for anyone who needs dependable and versatile power on the go.
 
-## <a href="https://www.amazon.com/dp/B0BVTGVMRG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wen 5600-watt Portable Generator</a>
+## <a href="https://www.amazon.com/dp/B0BVTGVMRG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wen 5600-watt Portable Generator</a>
 
 
-<a href="https://www.amazon.com/dp/B0BVTGVMRG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="WEN 5600-Watt Portable Generator, 224cc, Transfer-Switch and RV-Ready (GN5600)" src="https://m.media-amazon.com/images/I/51AgFNQTA5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BVTGVMRG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="WEN 5600-Watt Portable Generator, 224cc, Transfer-Switch and RV-Ready (GN5600)" src="https://m.media-amazon.com/images/I/51AgFNQTA5L._SL500_.jpg"/></a>
 
 
 The **WEN 5600-Watt Portable Generator** is ideal for homeowners, RV enthusiasts, and contractors who need a reliable power source during outages, outdoor activities, or job sites. Its robust power output and portability make it perfect for those seeking a versatile and easy-to-transport generator that can handle a variety of electrical needs.
@@ -202,10 +202,10 @@ Featuring a powerful **224cc engine**, the WEN 5600-Watt Portable Generator deli
 
 The design also emphasizes user convenience with its **RV-ready** outlet, making it a reliable companion for camping trips and road travel. Its relatively compact size ensures that it can be transported and stored efficiently, though users should consider its weight when planning frequent moves. Overall, this generator offers a balance between power, functionality, and portability, making it a valuable investment for those needing dependable portable power.
 
-## <a href="https://www.amazon.com/dp/B07M8FFS51?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wen 4,750-watt Dual Fuel Portable Generator</a>
+## <a href="https://www.amazon.com/dp/B07M8FFS51?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wen 4,750-watt Dual Fuel Portable Generator</a>
 
 
-<a href="https://www.amazon.com/dp/B07M8FFS51?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="WEN 4,750-Watt 120V/240V Dual Fuel Portable Generator with Wheel Kit and Electric Start (DF475T)" src="https://m.media-amazon.com/images/I/51HWHsGifML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07M8FFS51?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="WEN 4,750-Watt 120V/240V Dual Fuel Portable Generator with Wheel Kit and Electric Start (DF475T)" src="https://m.media-amazon.com/images/I/51HWHsGifML._SL500_.jpg"/></a>
 
 
 The **WEN 4,750-Watt 120V/240V Dual Fuel Portable Generator with Wheel Kit and Electric Start (DF475T)** is ideal for homeowners, outdoor enthusiasts, and professionals who need a reliable and versatile power source. Whether you are preparing for emergency power outages, camping trips, or job sites without easy access to electricity, this generator offers the flexibility and convenience to keep your devices and tools running smoothly. Its dual fuel capability makes it especially suitable for users looking to maximize fuel efficiency and availability.
@@ -229,10 +229,10 @@ The **WEN DF475T generator** features a robust 4,750-watt output capable of powe
 
 Additionally, the generator's **electric start** simplifies operation by eliminating the need for manual pull starts, which can be especially beneficial during emergencies or for users with limited physical strength. The inclusion of a **wheel kit** and its compact size make transportation manageable, despite the unit’s substantial weight. Being **CARB compliant** further assures environmentally conscious users that this generator adheres to stringent emission standards without compromising performance.
 
-## <a href="https://www.amazon.com/dp/B09PDR11L4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Erayak 2400w Portable Inverter Generator</a>
+## <a href="https://www.amazon.com/dp/B09PDR11L4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Erayak 2400w Portable Inverter Generator</a>
 
 
-<a href="https://www.amazon.com/dp/B09PDR11L4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ERAYAK 2400W Portable Inverter Generator for Home Use, Super Quiet Small Generator for Camping Outdoor Emergency Power Backup, Gas Powered Engine, EPA, ECO Mode" src="https://m.media-amazon.com/images/I/41mOJIYuCeL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09PDR11L4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ERAYAK 2400W Portable Inverter Generator for Home Use, Super Quiet Small Generator for Camping Outdoor Emergency Power Backup, Gas Powered Engine, EPA, ECO Mode" src="https://m.media-amazon.com/images/I/41mOJIYuCeL._SL500_.jpg"/></a>
 
 
 The **ERAYAK 2400W Portable Inverter Generator** is ideal for homeowners, campers, and anyone in need of a reliable, compact power source for outdoor activities or emergency backup. If you require a **super quiet** and efficient generator that is easy to transport and operate, this model is designed to meet those needs with its **gas-powered engine** and advanced features like **EPA certification** and **ECO mode**.
@@ -256,10 +256,10 @@ The **ERAYAK 2400W Portable Inverter Generator** combines a powerful yet compact
 
 Additionally, the generator features an **ECO mode** that intelligently adjusts fuel consumption based on the load, enhancing fuel efficiency and extending runtime. This mode not only saves money but also reduces the environmental footprint, making the generator a responsible choice for eco-conscious users. Its compact dimensions and lightweight design ensure that it can be easily transported and stored, providing convenience without sacrificing performance. Overall, the ERAYAK 2400W generator is a versatile and dependable power solution for those seeking portability, quiet operation, and environmental compliance.
 
-## <a href="https://www.amazon.com/dp/B099KS71QX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Westinghouse 6500 Watt Dual Fuel Home Backup Portable Generator</a>
+## <a href="https://www.amazon.com/dp/B099KS71QX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Westinghouse 6500 Watt Dual Fuel Home Backup Portable Generator</a>
 
 
-<a href="https://www.amazon.com/dp/B099KS71QX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Westinghouse 6500 Watt Dual Fuel Home Backup Portable Generator, Transfer Switch Ready 30A Outlet, RV Ready 30A Outlet, CO Sensor" src="https://m.media-amazon.com/images/I/519oVFiJpWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B099KS71QX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Westinghouse 6500 Watt Dual Fuel Home Backup Portable Generator, Transfer Switch Ready 30A Outlet, RV Ready 30A Outlet, CO Sensor" src="https://m.media-amazon.com/images/I/519oVFiJpWL._SL500_.jpg"/></a>
 
 
 The **Westinghouse 6500 Watt Dual Fuel Home Backup Portable Generator** is ideal for homeowners and outdoor enthusiasts who need a reliable and versatile power source during outages or remote activities. Those looking for a generator that supports both gasoline and propane fuel options, offers easy transfer switch compatibility, and ensures safety with a built-in CO sensor will find this model particularly beneficial.

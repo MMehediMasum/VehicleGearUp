@@ -23,10 +23,10 @@ Products like MORFEN Leather Sewing Kit and BAGERLA Heavy Duty Sewing Kit provid
 
 
 
-## <a href="https://www.amazon.com/dp/B0894S496F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"> Morfen Leather Sewing Kit </a>
+## <a href="https://www.amazon.com/dp/B0894S496F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"> Morfen Leather Sewing Kit </a>
 
 
-<a href="https://www.amazon.com/dp/B0894S496F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MORFEN Leather Sewing Kit, Leather Stitching Kit with Sewing Awl, Needles, Waxed Thread, Upholstery Repair Kit, Heavy Duty Sewing Tools for Hand Stitching Car Seats, Sofa, Carpets, Shoes, DIY Craft" src="https://m.media-amazon.com/images/I/51I5TZsUb-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0894S496F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MORFEN Leather Sewing Kit, Leather Stitching Kit with Sewing Awl, Needles, Waxed Thread, Upholstery Repair Kit, Heavy Duty Sewing Tools for Hand Stitching Car Seats, Sofa, Carpets, Shoes, DIY Craft" src="https://m.media-amazon.com/images/I/51I5TZsUb-L._SL500_.jpg"/></a>
 
 
 The **MORFEN Leather Sewing Kit** is perfect for DIY enthusiasts, professional upholsterers, and anyone looking to repair or customize leather items. If you frequently work on projects involving car seats, sofas, carpets, shoes, or other leather goods, this comprehensive stitching kit offers everything you need for durable and precise hand stitching.
@@ -48,10 +48,10 @@ The **MORFEN Leather Sewing Kit** boasts a robust set of tools including a heavy
 
 This kit's versatility is one of its strongest features, allowing users to handle various leather-related tasks without needing multiple separate tools. Whether you're fixing a tear in a car seat or customizing shoes, the MORFEN kit offers convenience and reliability. Its compact design means it can be easily stored or carried, making it a practical addition for both hobbyists and professionals who value quality and efficiency in their leatherwork.
 
-## <a href="https://www.amazon.com/dp/B0B3SVK41Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Bagerla Heavy Duty Sewing Kit</a>
+## <a href="https://www.amazon.com/dp/B0B3SVK41Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Bagerla Heavy Duty Sewing Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0B3SVK41Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BAGERLA Heavy Duty Sewing Kit, 48pcs Needle and Thread Kit with Upholstery Thread Needles Sewing Awl Seam Ripper, Upholstery Repair Sewing Kit for Car Seats Carpets Shoes Backpacks DIY Crafting" src="https://m.media-amazon.com/images/I/51MucPcc2wL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B3SVK41Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BAGERLA Heavy Duty Sewing Kit, 48pcs Needle and Thread Kit with Upholstery Thread Needles Sewing Awl Seam Ripper, Upholstery Repair Sewing Kit for Car Seats Carpets Shoes Backpacks DIY Crafting" src="https://m.media-amazon.com/images/I/51MucPcc2wL._SL500_.jpg"/></a>
 
 
 The **BAGERLA Heavy Duty Sewing Kit** is perfect for anyone who needs a reliable and versatile sewing solution, especially those involved in **DIY crafting**, **upholstery repair**, or general household mending. Ideal customers include car owners looking to fix **car seats**, hobbyists working on **carpets, shoes, backpacks**, and anyone who values a comprehensive sewing set with durable tools.
@@ -73,10 +73,10 @@ The **BAGERLA Heavy Duty Sewing Kit** stands out with its comprehensive collecti
 
 Designed with convenience in mind, the kit’s compact size and included storage bag make it highly portable and easy to keep organized. Whether you're repairing **car seats**, patching up **shoes**, or engaging in creative **DIY projects**, this kit offers the essential tools to get the job done efficiently. Its durable materials and variety of components ensure that users have everything they need in one place, making it an indispensable addition to any sewing or repair toolkit.
 
-## <a href="https://www.amazon.com/dp/B07RHR781N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Topus Extra Strong Upholstery Repair Sewing Thread Kit And Heavy Duty Household Hand Needles</a>
+## <a href="https://www.amazon.com/dp/B07RHR781N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Topus Extra Strong Upholstery Repair Sewing Thread Kit And Heavy Duty Household Hand Needles</a>
 
 
-<a href="https://www.amazon.com/dp/B07RHR781N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Topus Extra Strong Upholstery Repair Sewing Thread Kit and Heavy Duty Household Hand Needles, Including 7 Styles of Leather Canvas Sewing Needles and 3 Rolls Nylon Thread (70 Yard Per Roll), 3 Colors" src="https://m.media-amazon.com/images/I/41nqwpi4DPL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07RHR781N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Topus Extra Strong Upholstery Repair Sewing Thread Kit and Heavy Duty Household Hand Needles, Including 7 Styles of Leather Canvas Sewing Needles and 3 Rolls Nylon Thread (70 Yard Per Roll), 3 Colors" src="https://m.media-amazon.com/images/I/41nqwpi4DPL._SL500_.jpg"/></a>
 
 
 The **Topus Extra Strong Upholstery Repair Sewing Thread Kit** is ideal for **DIY enthusiasts**, **sewing hobbyists**, and **professionals** who need a reliable solution for repairing upholstery, leather, and canvas materials. If you find yourself frequently mending or creating items that require durable stitching, this kit is a perfect match for your needs.
@@ -97,10 +97,10 @@ The **Topus Extra Strong Upholstery Repair Sewing Thread Kit** features **high-q
 
 The inclusion of **7 styles of leather canvas sewing needles** makes this kit highly versatile, catering to a range of sewing tasks, from upholstery repair to crafting leather goods. The variety of needle styles ensures that you always have the right tool for the job, whether you are working with thick leather or delicate canvas. Additionally, the **three available colors** of thread allow you to match the thread to your project, maintaining the aesthetic integrity of your work.
 
-## <a href="https://www.amazon.com/dp/1931128006?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Automotive Upholstery Handbook</a>
+## <a href="https://www.amazon.com/dp/1931128006?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Automotive Upholstery Handbook</a>
 
 
-<a href="https://www.amazon.com/dp/1931128006?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Automotive Upholstery Handbook" src="https://m.media-amazon.com/images/I/51ksBHI74+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/1931128006?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Automotive Upholstery Handbook" src="https://m.media-amazon.com/images/I/51ksBHI74+L._SL500_.jpg"/></a>
 
 
 The **Automotive Upholstery Handbook** is ideal for automotive enthusiasts, professional upholsterers, and DIY hobbyists who want to master the art of car interior restoration and customization. Whether you are looking to enhance your skills or start a career in automotive upholstery, this handbook offers comprehensive guidance tailored to both beginners and experienced users.
@@ -122,10 +122,10 @@ The **Automotive Upholstery Handbook** measures 11 inches in height and 8.5 inch
 
 With its thorough explanations and practical tips, this handbook empowers users to achieve professional-quality results in automotive upholstery. The revised edition ensures that readers are getting up-to-date advice that reflects current industry standards. By following the detailed steps, users can expect improved craftsmanship and increased confidence in restoring or customizing vehicle interiors.
 
-## <a href="https://www.amazon.com/dp/B0C4P7W17B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Plantional Leather Repair Sewing Kit</a>
+## <a href="https://www.amazon.com/dp/B0C4P7W17B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Plantional Leather Repair Sewing Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0C4P7W17B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PLANTIONAL Leather Repair Sewing Kit: 31pcs Leather Working Tools with Pro Waxed Thread, Large Eye Hand Sewing Needles, 3 Versatile Awl, Heavy Duty Sewing Kit for Car, Upholstery, Vinyl, Canvas 02" src="https://m.media-amazon.com/images/I/513q+0QXlJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C4P7W17B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PLANTIONAL Leather Repair Sewing Kit: 31pcs Leather Working Tools with Pro Waxed Thread, Large Eye Hand Sewing Needles, 3 Versatile Awl, Heavy Duty Sewing Kit for Car, Upholstery, Vinyl, Canvas 02" src="https://m.media-amazon.com/images/I/513q+0QXlJL._SL500_.jpg"/></a>
 
 
 The **PLANTIONAL Leather Repair Sewing Kit** is perfect for DIY enthusiasts, professional upholsterers, and anyone who needs to mend or customize **leather, vinyl, canvas**, or automotive upholstery. If you’re looking for a comprehensive, durable, and easy-to-use sewing kit to handle heavy-duty repairs, this 31-piece set is designed for you.
@@ -147,10 +147,10 @@ The **PLANTIONAL Leather Repair Sewing Kit** stands out with its comprehensive a
 
 Its compact **storage case** enhances portability and organization, making it convenient for both home use and on-the-go projects. Whether you are patching a tear in your leather jacket, fixing a crack in your car’s vinyl seat, or restoring canvas gear, this kit offers the essential tools to complete your tasks efficiently. The heavy-duty nature of this set means it can handle demanding repairs, making it a valuable addition to any craftsman or DIYer’s toolkit.
 
-## <a href="https://www.amazon.com/dp/B0F664T4D6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sissewpro Bonded Nylon Thread 138 Upholstery Thread Heavy Duty</a>
+## <a href="https://www.amazon.com/dp/B0F664T4D6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sissewpro Bonded Nylon Thread 138 Upholstery Thread Heavy Duty</a>
 
 
-<a href="https://www.amazon.com/dp/B0F664T4D6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Sissewpro Bonded Nylon Thread 138 Upholstery Thread Heavy Duty for Sewing Machine Strong Black Threads for Leather Crafts Furniture Cusion,Boats Car Cover Seats,Canvas,Tex135, 4oz 750yds (2, BK&amp;WH)" src="https://m.media-amazon.com/images/I/41FvWHHkWVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F664T4D6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Sissewpro Bonded Nylon Thread 138 Upholstery Thread Heavy Duty for Sewing Machine Strong Black Threads for Leather Crafts Furniture Cusion,Boats Car Cover Seats,Canvas,Tex135, 4oz 750yds (2, BK&amp;WH)" src="https://m.media-amazon.com/images/I/41FvWHHkWVL._SL500_.jpg"/></a>
 
 
 The **Sissewpro Bonded Nylon Thread 138 Upholstery Thread** is ideal for crafters, upholsterers, and DIY enthusiasts who require a **durable and heavy-duty thread** for their sewing projects. Whether you are working on **leather crafts, furniture cushions, boat covers, or car seats**, this thread is designed to provide strong and reliable stitching. If you need a thread that can withstand tough materials and frequent use, this product is a perfect choice.
@@ -173,10 +173,10 @@ The **Sissewpro Bonded Nylon Thread 138** stands out due to its **superior tensi
 
 Additionally, the inclusion of both **black and white threads** in the package enhances its practicality, allowing seamless matching with different fabric colors without needing to purchase multiple spools. The large spool size ensures you have plenty of thread for multiple projects, making it a cost-effective choice for both hobbyists and professionals. Overall, this thread is engineered to meet the demands of tough sewing tasks while delivering consistent performance.
 
-## <a href="https://www.amazon.com/dp/B0F66XBG4Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sissewpro Bonded Nylon Thread 138 Upholstery Thread</a>
+## <a href="https://www.amazon.com/dp/B0F66XBG4Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sissewpro Bonded Nylon Thread 138 Upholstery Thread</a>
 
 
-<a href="https://www.amazon.com/dp/B0F66XBG4Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Sissewpro Bonded Nylon Thread 138 Upholstery Thread Heavy Duty for Sewing Machine Strong Black Threads for Leather Crafts Furniture Cusion,Boats Car Cover Seats,Canvas,T135, 8oz 1500yds" src="https://m.media-amazon.com/images/I/41QjnIspCWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F66XBG4Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Sissewpro Bonded Nylon Thread 138 Upholstery Thread Heavy Duty for Sewing Machine Strong Black Threads for Leather Crafts Furniture Cusion,Boats Car Cover Seats,Canvas,T135, 8oz 1500yds" src="https://m.media-amazon.com/images/I/41QjnIspCWL._SL500_.jpg"/></a>
 
 
 The **Sissewpro Bonded Nylon Thread 138 Upholstery Thread** is perfect for individuals who require a **durable and strong thread** for heavy-duty sewing projects. Ideal customers include professional upholsterers, leather crafters, and DIY enthusiasts working with materials such as **leather, canvas, furniture cushions, boats, and car covers**. This thread is designed to withstand tough conditions, making it a reliable choice for those who need long-lasting and resilient stitching.
@@ -199,10 +199,10 @@ The **Sissewpro Bonded Nylon Thread 138** boasts a high-quality bonded nylon con
 
 Measuring 8 ounces with 1500 yards of thread, this spool provides ample supply for large projects, saving users time and effort on frequent spool changes. The thread’s compatibility with sewing machines further simplifies the sewing process, allowing for smooth operation and consistent stitching. Whether you're repairing furniture cushions, creating boat covers, or sewing car seats, this thread delivers reliable performance that meets professional standards.
 
-## <a href="https://www.amazon.com/dp/B09PDLFS23?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">55yards Waxed Thread With 7 Pcs Leather Needles For Hand Sewing</a>
+## <a href="https://www.amazon.com/dp/B09PDLFS23?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">55yards Waxed Thread With 7 Pcs Leather Needles For Hand Sewing</a>
 
 
-<a href="https://www.amazon.com/dp/B09PDLFS23?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="55Yards Waxed Thread with 7 Pcs Leather Needles for Hand Sewing 150D Flat Sewing Waxed Thread Leather Repair Needles for Women Sewing Upholstery Leather Canvas Bags Sofa Furniture" src="https://m.media-amazon.com/images/I/41d996yAFTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09PDLFS23?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="55Yards Waxed Thread with 7 Pcs Leather Needles for Hand Sewing 150D Flat Sewing Waxed Thread Leather Repair Needles for Women Sewing Upholstery Leather Canvas Bags Sofa Furniture" src="https://m.media-amazon.com/images/I/41d996yAFTL._SL500_.jpg"/></a>
 
 
 The **55Yards Waxed Thread with 7 Pcs Leather Needles** is ideal for crafters, hobbyists, and professionals who work with leather, canvas, or upholstery materials. Whether you are a woman sewing leather bags, repairing sofas, or engaged in detailed hand stitching projects, this set offers the durability and precision required for high-quality results. If you need reliable tools for hand sewing that provide both strength and ease of use, this product is a perfect choice.
@@ -224,10 +224,10 @@ The **55Yards Waxed Thread with 7 Pcs Leather Needles** set by Pimoys is designe
 
 With this sewing kit, users gain the benefit of a professional-grade toolset that supports various repair and crafting projects. The black waxed thread blends well with many leather colors, ensuring that repairs and stitches look clean and professional. Whether you are fixing a torn sofa seam or creating custom leather goods, this product offers a reliable and long-lasting solution for your hand sewing needs.
 
-## <a href="https://www.amazon.com/dp/B003BS34FG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Singer Stitch Sew Quick Portable Mending Machine</a>
+## <a href="https://www.amazon.com/dp/B003BS34FG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Singer Stitch Sew Quick Portable Mending Machine</a>
 
 
-<a href="https://www.amazon.com/dp/B003BS34FG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SINGER Stitch Sew Quick Portable Mending Machine - Single Thread Machine for Quick Repairs" src="https://m.media-amazon.com/images/I/41MpCkU-FkL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B003BS34FG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SINGER Stitch Sew Quick Portable Mending Machine - Single Thread Machine for Quick Repairs" src="https://m.media-amazon.com/images/I/41MpCkU-FkL._SL500_.jpg"/></a>
 
 
 The **SINGER Stitch Sew Quick Portable Mending Machine** is ideal for individuals who need a convenient and efficient solution for quick fabric repairs. Whether you're a busy professional, a student, or someone who enjoys DIY clothing fixes, this compact device is perfect for those who want to mend tears, hems, or loose seams without the hassle of a full-sized sewing machine. Its portability makes it especially useful for travelers or anyone needing on-the-go stitching.
@@ -250,10 +250,10 @@ The **SINGER Stitch Sew Quick Portable Mending Machine** features a compact size
 
 Its ergonomic design ensures comfortable handling, allowing users to stitch fabrics smoothly and efficiently. The machine’s portability means you can carry it anywhere, making it perfect for last-minute repairs on clothing or household textiles. Backed by the reputable **SINGER** brand, this mending machine offers reliable performance and durability, giving users confidence in their stitching projects.
 
-## <a href="https://www.amazon.com/dp/B0BQWPSTV9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Selric Tex 135 Bonded Nylon Thread For Leather Sewing</a>
+## <a href="https://www.amazon.com/dp/B0BQWPSTV9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Selric Tex 135 Bonded Nylon Thread For Leather Sewing</a>
 
 
-<a href="https://www.amazon.com/dp/B0BQWPSTV9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Selric [1200Yards / 26 Colors Available] Tex 135 Bonded Nylon Thread for Leather Sewing 420D/3 T135#138 Heavy Duty Upholstery Thread for Leather and Other Heavy Fabric（Teal）" src="https://m.media-amazon.com/images/I/410FKvpqFOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BQWPSTV9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Selric [1200Yards / 26 Colors Available] Tex 135 Bonded Nylon Thread for Leather Sewing 420D/3 T135#138 Heavy Duty Upholstery Thread for Leather and Other Heavy Fabric（Teal）" src="https://m.media-amazon.com/images/I/410FKvpqFOL._SL500_.jpg"/></a>
 
 
 The **Selric Tex 135 Bonded Nylon Thread** is ideal for craftsmen, leatherworkers, and upholstery professionals who require a **durable** and **high-quality thread** for sewing heavy fabrics. If you work with leather or other tough materials and need a reliable thread that can withstand wear and tear, this product is designed to meet your needs with its impressive strength and vibrant color options.

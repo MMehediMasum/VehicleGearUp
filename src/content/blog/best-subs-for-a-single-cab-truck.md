@@ -22,10 +22,10 @@ Whether you want a single or dual sub setup, you’ll find choices that fit your
 
 
 
-## <a href="https://www.amazon.com/dp/B00IFEGF16?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">American Sound Connection Single 12" Subwoofer Regular Standard Cab Truck Sub Box Enclosure</a>
+## <a href="https://www.amazon.com/dp/B00IFEGF16?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">American Sound Connection Single 12" Subwoofer Regular Standard Cab Truck Sub Box Enclosure</a>
 
 
-<a href="https://www.amazon.com/dp/B00IFEGF16?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="American Sound Connection Single 12" src="https://m.media-amazon.com/images/I/51haQu1NSKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00IFEGF16?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="American Sound Connection Single 12" src="https://m.media-amazon.com/images/I/51haQu1NSKL._SL500_.jpg"/></a>
 
 
 The **American Sound Connection Single 12" Subwoofer Regular Standard Cab Truck Sub Box Enclosure** is ideal for truck owners and car audio enthusiasts who seek to enhance their vehicle's sound system with deep, powerful bass. If you want a compact, durable, and efficient subwoofer enclosure that fits well in standard truck cabs, this product is designed to meet your needs.
@@ -47,10 +47,10 @@ The **American Sound Connection Single 12" Subwoofer Sub Box Enclosure** is expe
 
 In addition to its robust construction, the enclosure’s lightweight design at just **11.55 pounds** facilitates easy installation and portability. The single 12" subwoofer capacity offers balanced bass amplification that complements mid-range and high-frequency speakers, enhancing the overall sound experience. Whether you are commuting or on a road trip, this subwoofer enclosure helps transform your truck’s cabin into a dynamic audio environment.
 
-## <a href="https://www.amazon.com/dp/B00IFEGDZO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">American Sound Connection Single 10" Subwoofer</a>
+## <a href="https://www.amazon.com/dp/B00IFEGDZO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">American Sound Connection Single 10" Subwoofer</a>
 
 
-<a href="https://www.amazon.com/dp/B00IFEGDZO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="American Sound Connection Single 10" src="https://m.media-amazon.com/images/I/51FMZ54HNIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00IFEGDZO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="American Sound Connection Single 10" src="https://m.media-amazon.com/images/I/51FMZ54HNIL._SL500_.jpg"/></a>
 
 
 The **American Sound Connection Single 10" Subwoofer** Regular Standard Cab Truck Sub Box Enclosure is ideal for truck owners and car audio enthusiasts looking to enhance their sound system with deep, powerful bass. If you want to upgrade your vehicle's audio experience without complicated installation, this subwoofer enclosure is designed for those who prefer a compact, efficient, and quality solution for standard cab trucks.
@@ -73,10 +73,10 @@ The **American Sound Connection Single 10" Subwoofer** enclosure stands out with
 
 Additionally, this subwoofer box is easy to install and fits seamlessly into standard truck cabins without sacrificing space. Its durable build ensures longevity, even under the demanding conditions of truck use. Whether you're a casual listener wanting richer sound or a car audio enthusiast seeking a reliable and efficient bass solution, this product offers a convenient and effective upgrade for your vehicle’s audio system.
 
-## <a href="https://www.amazon.com/dp/B0CDZS881P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Skar Audio Single 10" Loaded Subwoofer Enclosure</a>
+## <a href="https://www.amazon.com/dp/B0CDZS881P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Skar Audio Single 10" Loaded Subwoofer Enclosure</a>
 
 
-<a href="https://www.amazon.com/dp/B0CDZS881P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Skar Audio Single 10" src="https://m.media-amazon.com/images/I/51LlX9ompnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CDZS881P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Skar Audio Single 10" src="https://m.media-amazon.com/images/I/51LlX9ompnL._SL500_.jpg"/></a>
 
 
 The **Skar Audio Single 10" Loaded Subwoofer Enclosure** is ideal for **2016-2023 Toyota Tacoma Double Cab Truck** owners who want to significantly enhance their vehicle's audio system. If you are an audio enthusiast looking for powerful bass performance combined with a custom fit, this subwoofer enclosure is designed specifically to meet your needs. It is perfect for those who prioritize high-quality sound without compromising on space or vehicle aesthetics.
@@ -99,10 +99,10 @@ The **Skar Audio Single 10" Loaded Subwoofer Enclosure** is engineered to fit pe
 
 Beyond its perfect fit, this subwoofer enclosure benefits users by providing a plug-and-play solution that integrates effortlessly with factory or aftermarket audio systems. The durable materials and robust design by **Skar Audio** ensure long-lasting performance even under demanding conditions. Whether you are on the road or off-roading, this subwoofer enclosure adds a professional-grade audio upgrade tailored exclusively for your **Toyota Tacoma Double Cab (2016-2023)**.
 
-## <a href="https://www.amazon.com/dp/B00IFEB9VM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">American Sound Connection Dual 10" Subwoofer Sub Box Enclosure</a>
+## <a href="https://www.amazon.com/dp/B00IFEB9VM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">American Sound Connection Dual 10" Subwoofer Sub Box Enclosure</a>
 
 
-<a href="https://www.amazon.com/dp/B00IFEB9VM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="American Sound Connection Dual 10" src="https://m.media-amazon.com/images/I/41e5bOuIILL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00IFEB9VM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="American Sound Connection Dual 10" src="https://m.media-amazon.com/images/I/41e5bOuIILL._SL500_.jpg"/></a>
 
 
 The **American Sound Connection Dual 10" Subwoofer Regular Standard Cab Truck Sub Box Enclosure** is perfect for **truck enthusiasts** looking to enhance their audio experience. Ideal for those who own a regular standard cab truck and desire to upgrade their sound system with a **reliable** and **efficient** subwoofer enclosure, this product promises to deliver a **rich bass sound** without compromising on space.
@@ -123,10 +123,10 @@ The **American Sound Connection Dual 10" Subwoofer Enclosure** is constructed fr
 
 One of the standout features is its **dual subwoofer compatibility**, which allows for a more **immersive audio experience** by delivering powerful bass tones. This feature is particularly beneficial for audiophiles who want to achieve a deep, resonant sound in their vehicles. Additionally, the **compact dimensions** of this enclosure ensure that it fits neatly within the confines of a standard cab truck, maximizing space efficiency without sacrificing audio quality.
 
-## <a href="https://www.amazon.com/dp/B00IFED064?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">American Sound Connection Dual 12" Subwoofer Sub Box Enclosure</a>
+## <a href="https://www.amazon.com/dp/B00IFED064?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">American Sound Connection Dual 12" Subwoofer Sub Box Enclosure</a>
 
 
-<a href="https://www.amazon.com/dp/B00IFED064?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="American Sound Connection Dual 12" src="https://m.media-amazon.com/images/I/31el7jNdGBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00IFED064?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="American Sound Connection Dual 12" src="https://m.media-amazon.com/images/I/31el7jNdGBL._SL500_.jpg"/></a>
 
 
 The **American Sound Connection Dual 12" Subwoofer Regular Standard Cab Truck Sub Box Enclosure** is ideal for truck owners and car audio enthusiasts seeking to enhance their vehicle's bass performance with a reliable and robust subwoofer enclosure. Perfect for those who want a powerful sound system upgrade without compromising space or quality, this sub box caters especially to individuals who prioritize deep, rich bass in their audio experience.
@@ -148,10 +148,10 @@ The **American Sound Connection Dual 12" Subwoofer Enclosure** boasts a sturdy b
 
 Users will benefit from the enclosure’s compatibility with dual 12-inch subwoofers, which delivers a powerful bass response that enhances the overall audio quality inside the vehicle. The sleek black finish adds a professional and stylish look, blending seamlessly with various truck interiors. This sub box enclosure is an excellent investment for anyone looking to elevate their truck’s sound system with clear, deep bass and reliable construction.
 
-## <a href="https://www.amazon.com/dp/B00NG38QW2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Q Power Qbomb 10 Inch Single Vented Subwoofer Sub Box</a>
+## <a href="https://www.amazon.com/dp/B00NG38QW2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Q Power Qbomb 10 Inch Single Vented Subwoofer Sub Box</a>
 
 
-<a href="https://www.amazon.com/dp/B00NG38QW2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Q Power QBomb 10 Inch Single Vented Subwoofer Sub Box with Black Bedliner Spray" src="https://m.media-amazon.com/images/I/41aQWIzbPvL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00NG38QW2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Q Power QBomb 10 Inch Single Vented Subwoofer Sub Box with Black Bedliner Spray" src="https://m.media-amazon.com/images/I/41aQWIzbPvL._SL500_.jpg"/></a>
 
 
 The **Q Power QBomb 10 Inch Single Vented Subwoofer Sub Box with Black Bedliner Spray** is ideal for car audio enthusiasts looking to enhance their vehicle's sound system with deep, powerful bass. This product is perfect for those who want a compact yet effective subwoofer solution that delivers high-quality audio performance without taking up excessive space. Whether you're a casual listener or a serious audiophile, this subwoofer box caters to anyone seeking improved bass response and durability.
@@ -172,10 +172,10 @@ The **Q Power QBomb 10 Inch Subwoofer Sub Box** features a **single vented enclo
 
 Additionally, the compact design allows for flexible placement inside your vehicle, making installation straightforward even in tight spaces. This versatility ensures that users can enjoy powerful bass without sacrificing cabin space. Overall, the **Q Power QBomb Subwoofer Box** combines durable construction with efficient acoustic design, making it a valuable upgrade for anyone looking to boost their car's sound system with quality bass performance.
 
-## <a href="https://www.amazon.com/dp/B00KJ122P6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">American Sound Connection Truck572x10 Custom Dual 10" Truck Box</a>
+## <a href="https://www.amazon.com/dp/B00KJ122P6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">American Sound Connection Truck572x10 Custom Dual 10" Truck Box</a>
 
 
-<a href="https://www.amazon.com/dp/B00KJ122P6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="American Sound Connection TRUCK572X10 Custom Dual 10" src="https://m.media-amazon.com/images/I/41oPv+ldSRL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00KJ122P6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="American Sound Connection TRUCK572X10 Custom Dual 10" src="https://m.media-amazon.com/images/I/41oPv+ldSRL._SL500_.jpg"/></a>
 
 
 The **American Sound Connection TRUCK572X10 Custom Dual 10" Truck Box w/Console** paired with the **43C104 10" Subwoofer Single 4 Ohm 150 Watts** is ideal for truck owners and car audio enthusiasts seeking to enhance their vehicle's sound system with powerful bass and a custom-fit enclosure. This product is perfect for those who want high-quality audio performance combined with a sleek design that integrates seamlessly into their truck's interior.
@@ -197,10 +197,10 @@ The **American Sound Connection TRUCK572X10** features a custom-built dual 10" s
 
 Equipped with the **43C104 10" Subwoofer**, this system offers a powerful 150 watts of continuous power and a single 4 Ohm voice coil, enabling users to enjoy deep, resonant bass that enhances the overall listening experience. The robust construction and quality components ensure long-lasting performance, while the box's size and weight contribute to optimal sound resonance and reduced vibration. For truck owners who demand both style and substance in their audio systems, this custom dual subwoofer solution delivers impressive value and superior sound quality.
 
-## <a href="https://www.amazon.com/dp/B01M5H7ZAU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">American Sound Connection Sub Box Subwoofer Enclosure</a>
+## <a href="https://www.amazon.com/dp/B01M5H7ZAU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">American Sound Connection Sub Box Subwoofer Enclosure</a>
 
 
-<a href="https://www.amazon.com/dp/B01M5H7ZAU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="American Sound Connection 2014-2018 Chevy Silverado Crew Cab Truck Single 12" src="https://m.media-amazon.com/images/I/41gauChDRvL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01M5H7ZAU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="American Sound Connection 2014-2018 Chevy Silverado Crew Cab Truck Single 12" src="https://m.media-amazon.com/images/I/41gauChDRvL._SL500_.jpg"/></a>
 
 
 The **American Sound Connection 2014-2018 Chevy Silverado Crew Cab Truck Single 12" Sub Box Subwoofer Enclosure** is ideal for truck owners who want to enhance their vehicle’s audio experience with deep, powerful bass. This subwoofer enclosure is specifically designed for the **Chevy Silverado Crew Cab models from 2014 to 2018**, making it a perfect fit for those looking to upgrade their factory sound system without compromising space or style.
@@ -223,10 +223,10 @@ This subwoofer enclosure features a precise design tailored for the Chevy Silver
 
 With its compact size and lightweight build, the American Sound Connection sub box is easy to install and won’t weigh down your truck. The enhanced bass response provides a richer audio experience, making music sound fuller and more immersive during every drive. Whether you’re a casual listener or an audio enthusiast, this subwoofer enclosure offers an effective solution for upgrading your Silverado’s sound system with minimal hassle.
 
-## <a href="https://www.amazon.com/dp/B00IFEBD2W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">American Sound Connection Single 10" Subwoofer</a>
+## <a href="https://www.amazon.com/dp/B00IFEBD2W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">American Sound Connection Single 10" Subwoofer</a>
 
 
-<a href="https://www.amazon.com/dp/B00IFEBD2W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="American Sound Connection Single 10" src="https://m.media-amazon.com/images/I/61E6dlnmGnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00IFEBD2W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="American Sound Connection Single 10" src="https://m.media-amazon.com/images/I/61E6dlnmGnL._SL500_.jpg"/></a>
 
 
 The **American Sound Connection Single 10" Subwoofer Regular Standard Cab Truck Sub Box Enclosure** is ideal for truck owners and audio enthusiasts looking to enhance their vehicle's sound system with deep, powerful bass. If you want a compact yet effective solution that fits perfectly in standard truck cabs, this subwoofer enclosure is designed to deliver high-quality audio performance without taking up excessive space.
@@ -249,10 +249,10 @@ The **American Sound Connection Single 10" Subwoofer Enclosure** is crafted from
 
 Additionally, the enclosure's lightweight design at just over 14 pounds simplifies installation and portability. The single 10-inch subwoofer setup focuses on delivering deep bass tones that enrich music genres ranging from hip-hop to rock, making it a versatile choice for various listening preferences. With its premium single-color finish, this enclosure also maintains a sleek, unobtrusive look that complements most vehicle interiors, ensuring both form and function are addressed in one product.
 
-## <a href="https://www.amazon.com/dp/B01MUCK39U?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">American Sound Connection Asc Gm1x10-excab07 Subwoofer Box</a>
+## <a href="https://www.amazon.com/dp/B01MUCK39U?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">American Sound Connection Asc Gm1x10-excab07 Subwoofer Box</a>
 
 
-<a href="https://www.amazon.com/dp/B01MUCK39U?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="American Sound Connection ASC GM1X10-EXCAB07 Compatible with Chevy Silverado or GMC Sierra Full Size Extended Cab Truck 2007-2013 Single 10" src="https://m.media-amazon.com/images/I/31wyZiF1WbL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01MUCK39U?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="American Sound Connection ASC GM1X10-EXCAB07 Compatible with Chevy Silverado or GMC Sierra Full Size Extended Cab Truck 2007-2013 Single 10" src="https://m.media-amazon.com/images/I/31wyZiF1WbL._SL500_.jpg"/></a>
 
 
 The **American Sound Connection ASC GM1X10-EXCAB07** is ideal for owners of **Chevy Silverado** or **GMC Sierra Full Size Extended Cab Trucks** from 2007 to 2013 who want to upgrade their vehicle's audio system with powerful bass performance. This **single 10" subwoofer box sub enclosure** is designed to perfectly fit these truck models, making it an excellent choice for truck enthusiasts seeking enhanced sound quality without compromising on space or style.

@@ -23,10 +23,10 @@ Scents like cherry or lemon add a fresh touch. Biodegradable options protect the
 
 
 
-## <a href="https://www.amazon.com/dp/B00UICCQGQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Adam's Polishes Car Wash Shampoo</a>
+## <a href="https://www.amazon.com/dp/B00UICCQGQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Adam's Polishes Car Wash Shampoo</a>
 
 
-<a href="https://www.amazon.com/dp/B00UICCQGQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Adam's Polishes Car Wash Shampoo (Gallon) - pH Best Car Wash Soap For Snow Foam Cannon or Gun For Pressure Washer &amp; 5 Gallon Bucket, Powerful Safe Spot Free Cleaning Liquid Auto Detergent" src="https://m.media-amazon.com/images/I/41+2NeTLG3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00UICCQGQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Adam's Polishes Car Wash Shampoo (Gallon) - pH Best Car Wash Soap For Snow Foam Cannon or Gun For Pressure Washer &amp; 5 Gallon Bucket, Powerful Safe Spot Free Cleaning Liquid Auto Detergent" src="https://m.media-amazon.com/images/I/41+2NeTLG3L._SL500_.jpg"/></a>
 
 
 The **Adam's Polishes Car Wash Shampoo (Gallon)** is ideal for car enthusiasts and professional detailers who demand a high-quality, effective cleaning solution. If you are looking for a safe, powerful, and spot-free car wash soap that works perfectly with a **snow foam cannon** or **pressure washer gun**, this product is designed for you. It’s especially suitable for those who want to maintain their vehicle’s finish without risking damage to the paint or clear coat.
@@ -48,10 +48,10 @@ The **Adam's Polishes Car Wash Shampoo** stands out with its carefully balanced 
 
 Additionally, the shampoo’s concentrated formula means a little goes a long way, providing excellent cost-efficiency for regular maintenance washes. The gallon size container is perfect for detailers and car owners who perform frequent washes, reducing the need for constant repurchasing. Overall, this product offers a reliable and effective solution for anyone seeking a safe, high-performance car wash soap that protects and enhances the vehicle’s appearance.
 
-## <a href="https://www.amazon.com/dp/B00T9LR2E8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rain-x 620073</a>
+## <a href="https://www.amazon.com/dp/B00T9LR2E8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rain-x 620073</a>
 
 
-<a href="https://www.amazon.com/dp/B00T9LR2E8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rain-X 620073 - Car Wash Deep Cleaning, High Foam Soap Provides Spot Free Shine with No Towel Or Hand Drying Needed - Car soap for car cleaning and detailing 48 fl oz" src="https://m.media-amazon.com/images/I/41dqLq1JjJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00T9LR2E8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rain-X 620073 - Car Wash Deep Cleaning, High Foam Soap Provides Spot Free Shine with No Towel Or Hand Drying Needed - Car soap for car cleaning and detailing 48 fl oz" src="https://m.media-amazon.com/images/I/41dqLq1JjJL._SL500_.jpg"/></a>
 
 
 Ideal for car enthusiasts and everyday drivers who seek a **spotless, shiny finish** without the hassle of towel or hand drying, the **Rain-X 620073 Car Wash Deep Cleaning Soap** is perfect for those wanting an efficient and effective **car cleaning solution**. If you value convenience and superior cleaning results, this **high foam soap** is designed to meet your detailing needs with ease.
@@ -73,10 +73,10 @@ The **Rain-X 620073 Car Wash Deep Cleaning Soap** features a powerful formula th
 
 Beyond cleaning, this product enhances the overall appearance of your vehicle by leaving a smooth, glossy finish that protects against water spots and residue. Its easy rinsing capability saves you valuable time and effort, making it ideal for both professional detailers and daily car owners. With dimensions of **5.0 inches height**, **3.25 inches width**, and **9.0 inches length**, and weighing just under half a pound, the bottle is convenient to handle and store.
 
-## <a href="https://www.amazon.com/dp/B01BMB4CUY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Kärcher Vehicle Wash And Wax</a>
+## <a href="https://www.amazon.com/dp/B01BMB4CUY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Kärcher Vehicle Wash And Wax</a>
 
 
-<a href="https://www.amazon.com/dp/B01BMB4CUY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Kärcher Vehicle Wash and Wax, Pressure Washer Detergent, Cleans Cars, Bikes, Trucks, Boats and More, Highly Concentrated, Makes up to 20 gal of Cleaner" src="https://m.media-amazon.com/images/I/41WZgh0l0dL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01BMB4CUY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Kärcher Vehicle Wash and Wax, Pressure Washer Detergent, Cleans Cars, Bikes, Trucks, Boats and More, Highly Concentrated, Makes up to 20 gal of Cleaner" src="https://m.media-amazon.com/images/I/41WZgh0l0dL._SL500_.jpg"/></a>
 
 
 Ideal for vehicle owners who seek a powerful and efficient cleaning solution, the **Kärcher Vehicle Wash and Wax** is perfect for those wanting to maintain the pristine condition of their cars, bikes, trucks, boats, and more. This highly concentrated **pressure washer detergent** is designed for individuals who value convenience, effectiveness, and versatility in a cleaning product that can handle multiple types of vehicles with ease.
@@ -99,10 +99,10 @@ The **Kärcher Vehicle Wash and Wax** stands out due to its highly concentrated 
 
 Designed with versatility in mind, this detergent works effectively on a variety of vehicles, from small bikes to large trucks and boats. This makes it an excellent choice for families or businesses with diverse vehicle types. The ease of use combined with the product’s powerful cleaning capabilities means users can maintain their vehicles' appearance and value without spending excessive time or effort. Overall, the Kärcher Vehicle Wash and Wax offers a practical, cost-effective solution for keeping vehicles looking their best.
 
-## <a href="https://www.amazon.com/dp/B0007RVLDQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">3d Pink Car Soap</a>
+## <a href="https://www.amazon.com/dp/B0007RVLDQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">3d Pink Car Soap</a>
 
 
-<a href="https://www.amazon.com/dp/B0007RVLDQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="3D Pink Car Soap – 1 Gallon |pH Neutral Car Wash Soap with High Suds &amp; Cherry Scent | Scratch-Free, High Gloss Shine | Safe on Wax &amp; Sealants | Weekly Car Care" src="https://m.media-amazon.com/images/I/41ria+k579L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0007RVLDQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="3D Pink Car Soap – 1 Gallon |pH Neutral Car Wash Soap with High Suds &amp; Cherry Scent | Scratch-Free, High Gloss Shine | Safe on Wax &amp; Sealants | Weekly Car Care" src="https://m.media-amazon.com/images/I/41ria+k579L._SL500_.jpg"/></a>
 
 
 The **3D Pink Car Soap** is ideal for car enthusiasts who take pride in maintaining their vehicle's appearance and want a product that delivers both effectiveness and safety. This product is perfect for those who wash their cars weekly and seek a **scratch-free** and **high gloss shine** without compromising existing **wax** or **sealants**.
@@ -123,10 +123,10 @@ The **3D Pink Car Soap** stands out due to its **pH neutral** formulation, which
 
 Another significant feature is its compatibility with **wax** and **sealants**, ensuring that protective layers are not stripped away during washing. This product is formulated to maintain the integrity of your vehicle's surface treatment, offering a **high gloss shine** that enhances the car's aesthetic appeal. While regular use is recommended for optimal shine and cleanliness, the ease of application makes it a convenient choice for those looking to maintain their vehicle's showroom condition.
 
-## <a href="https://www.amazon.com/dp/B07Q2HST9N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Chemical Guys Hydrosuds Ceramic Sio2 Shine High Foaming Car Wash Soap</a>
+## <a href="https://www.amazon.com/dp/B07Q2HST9N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Chemical Guys Hydrosuds Ceramic Sio2 Shine High Foaming Car Wash Soap</a>
 
 
-<a href="https://www.amazon.com/dp/B07Q2HST9N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Chemical Guys CWS21216 HydroSuds Ceramic SiO2 Shine High Foaming Car Wash Soap (Works with Foam Cannons, Foam Guns or Bucket Washes) For Cars, Trucks, Motorcycles, RVs &amp; More, 16 fl oz, Berry Scent" src="https://m.media-amazon.com/images/I/41LuFNLkGQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07Q2HST9N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Chemical Guys CWS21216 HydroSuds Ceramic SiO2 Shine High Foaming Car Wash Soap (Works with Foam Cannons, Foam Guns or Bucket Washes) For Cars, Trucks, Motorcycles, RVs &amp; More, 16 fl oz, Berry Scent" src="https://m.media-amazon.com/images/I/41LuFNLkGQL._SL500_.jpg"/></a>
 
 
 The **Chemical Guys CWS21216 HydroSuds Ceramic SiO2 Shine High Foaming Car Wash Soap** is ideal for car enthusiasts and professional detailers who want a superior cleaning product that is gentle yet highly effective. Whether you own a **car, truck, motorcycle, or RV**, this soap is perfect for those who value a deep clean with a glossy finish and prefer using foam cannons, foam guns, or traditional bucket washes. Its **Berry Scent** adds a pleasant fragrance, making the washing experience more enjoyable.
@@ -150,10 +150,10 @@ The **HydroSuds Ceramic SiO2 Shine Car Wash Soap** stands out due to its advance
 
 Additionally, its compatibility with various washing methods—whether you prefer high-tech foam cannons or the classic bucket wash—makes it highly versatile. The **pleasant Berry Scent** not only freshens your vehicle but also makes the cleaning process more enjoyable. Compact in size but powerful in performance, this product is designed to meet the needs of anyone looking to achieve a professional-grade clean with minimal effort.
 
-## <a href="https://www.amazon.com/dp/B09KHMFWMC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Turtle Wax Hybrid Solutions Slick-n-slide Pure Wash</a>
+## <a href="https://www.amazon.com/dp/B09KHMFWMC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Turtle Wax Hybrid Solutions Slick-n-slide Pure Wash</a>
 
 
-<a href="https://www.amazon.com/dp/B09KHMFWMC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Turtle Wax 54320 Hybrid Solutions Slick-N-Slide Pure Wash, pH Neutral, Extreme Foaming Car Wash Soap, Hand Wash or Foam Cannon Application, Clay Bar Lubricant, Spot Free Clean, 64 oz. (Pack of 1)" src="https://m.media-amazon.com/images/I/51ObTuQ1TmL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09KHMFWMC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Turtle Wax 54320 Hybrid Solutions Slick-N-Slide Pure Wash, pH Neutral, Extreme Foaming Car Wash Soap, Hand Wash or Foam Cannon Application, Clay Bar Lubricant, Spot Free Clean, 64 oz. (Pack of 1)" src="https://m.media-amazon.com/images/I/51ObTuQ1TmL._SL500_.jpg"/></a>
 
 
 The **Turtle Wax 54320 Hybrid Solutions Slick-N-Slide Pure Wash** is ideal for car enthusiasts and everyday drivers who want a thorough yet gentle cleaning solution for their vehicles. If you are looking for a versatile, pH-neutral, and high-foaming car wash soap that can be used for both hand washing and foam cannon applications, this product is tailored for you. It’s also perfect for those who use clay bars and need a reliable lubricant to protect their paint during the detailing process.
@@ -175,10 +175,10 @@ The **Turtle Wax 54320 Hybrid Solutions Slick-N-Slide Pure Wash** stands out due
 
 Users benefit from the versatility of this car wash soap, as it can be applied through hand washing or foam cannon methods, catering to different preferences and detailing setups. The **spot-free clean** feature helps minimize water spots and streaks, leaving your vehicle looking pristine after every wash. Packaged in a convenient 64 oz. bottle, it offers enough volume for multiple washes, providing excellent value while maintaining professional-quality results at home.
 
-## <a href="https://www.amazon.com/dp/B0779M7PHW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">P&amp;s Professional Detail Products Pearl Auto Shampoo</a>
+## <a href="https://www.amazon.com/dp/B0779M7PHW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">P&amp;s Professional Detail Products Pearl Auto Shampoo</a>
 
 
-<a href="https://www.amazon.com/dp/B0779M7PHW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="P&amp;S Professional Detail Products Pearl Auto Shampoo – High-Foaming, pH-Balanced Car Wash Soap, Biodegradable, Safe for All Finishes, Lemon Scent, Foam Cannon &amp; Bucket Wash - 1 Gallon" src="https://m.media-amazon.com/images/I/41hAq8HAmUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0779M7PHW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="P&amp;S Professional Detail Products Pearl Auto Shampoo – High-Foaming, pH-Balanced Car Wash Soap, Biodegradable, Safe for All Finishes, Lemon Scent, Foam Cannon &amp; Bucket Wash - 1 Gallon" src="https://m.media-amazon.com/images/I/41hAq8HAmUL._SL500_.jpg"/></a>
 
 
 The **P&S Professional Detail Products Pearl Auto Shampoo** is ideal for car enthusiasts, professional detailers, and everyday vehicle owners who seek a high-quality, safe, and effective car wash solution. If you want a product that offers a rich, high-foaming experience while being gentle on your car's finish, this biodegradable shampoo with a refreshing lemon scent is a perfect choice. It's especially suitable for those who use foam cannons or bucket washes and want a balanced pH formula that won't strip away wax or sealant layers.
@@ -201,10 +201,10 @@ The **P&S Professional Detail Products Pearl Auto Shampoo** boasts a carefully c
 
 Additionally, the shampoo's compatibility with both **foam cannons** and traditional bucket washing methods offers versatile application options for users. The pleasant lemon scent adds a refreshing touch to the washing routine, making the chore more enjoyable. Packaged in a convenient 1-gallon size with dimensions of 4.5 x 6.0 x 11.0 inches, it provides ample supply for regular car washes while maintaining ease of storage. Overall, this product combines effective cleaning power with safety and sustainability, making it a top choice for maintaining your vehicle’s exterior.
 
-## <a href="https://www.amazon.com/dp/B00A2X5672?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Fiebing's White Saddle Soap For Leather</a>
+## <a href="https://www.amazon.com/dp/B00A2X5672?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Fiebing's White Saddle Soap For Leather</a>
 
 
-<a href="https://www.amazon.com/dp/B00A2X5672?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Fiebing's White Saddle Soap for Leather (3.5 oz Tin) - Leather Cleaner &amp; Conditioner to Soften &amp; Protect Leathercraft, Car Seat, Couch, Shoe &amp; Saddles" src="https://m.media-amazon.com/images/I/51JsqQOYptL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00A2X5672?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Fiebing's White Saddle Soap for Leather (3.5 oz Tin) - Leather Cleaner &amp; Conditioner to Soften &amp; Protect Leathercraft, Car Seat, Couch, Shoe &amp; Saddles" src="https://m.media-amazon.com/images/I/51JsqQOYptL._SL500_.jpg"/></a>
 
 
 Ideal for leather enthusiasts and anyone looking to maintain the quality of their leather goods, **Fiebing's White Saddle Soap for Leather** is perfect for those who want an effective **leather cleaner and conditioner**. Whether you own **leathercraft projects, car seats, couches, shoes, or saddles**, this product is designed to soften and protect your leather items, making it a must-have for leather care.
@@ -227,10 +227,10 @@ Ideal for leather enthusiasts and anyone looking to maintain the quality of thei
 
 Using this saddle soap on your leather goods also helps protect against wear and tear caused by daily use. It penetrates deep into the leather fibers, enhancing durability and preventing cracking or drying out. Whether you are caring for a cherished leather couch, your car’s leather seats, or handcrafted leather accessories, this product offers a reliable and efficient solution to maintain their beauty and longevity.
 
-## <a href="https://www.amazon.com/dp/B00K16FKB2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Armor All Foam Action Car Wash Soap</a>
+## <a href="https://www.amazon.com/dp/B00K16FKB2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Armor All Foam Action Car Wash Soap</a>
 
 
-<a href="https://www.amazon.com/dp/B00K16FKB2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Armor All Foam Action Car Wash Soap, Cleaning Concentrate for Cars, Trucks, and Motorcycles, 64 Fl Oz Bottles (Pack of 4)" src="https://m.media-amazon.com/images/I/4197oMwLXCL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00K16FKB2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Armor All Foam Action Car Wash Soap, Cleaning Concentrate for Cars, Trucks, and Motorcycles, 64 Fl Oz Bottles (Pack of 4)" src="https://m.media-amazon.com/images/I/4197oMwLXCL._SL500_.jpg"/></a>
 
 
 The **Armor All Foam Action Car Wash Soap** is ideal for vehicle owners who want a reliable and effective cleaning solution for their cars, trucks, or motorcycles. If you value maintaining a spotless and shiny exterior while protecting your vehicle’s finish, this product is designed for you. It is especially suitable for those who prefer a concentrated formula that delivers great value and thorough cleaning power.
@@ -252,10 +252,10 @@ The **Armor All Foam Action Car Wash Soap** stands out due to its concentrated c
 
 Additionally, the product’s packaging in a 64 Fl Oz bottle, sold in a pack of four, ensures that you have a sufficient supply for regular washing sessions. This makes it a cost-effective choice for those who prioritize maintaining their vehicle’s appearance consistently. Overall, this car wash soap blends convenience, effectiveness, and value, making it a smart choice for anyone serious about vehicle care.
 
-## <a href="https://www.amazon.com/dp/B0DVB4P9KQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Cerakote High Foam Vehicle Shampoo</a>
+## <a href="https://www.amazon.com/dp/B0DVB4P9KQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Cerakote High Foam Vehicle Shampoo</a>
 
 
-<a href="https://www.amazon.com/dp/B0DVB4P9KQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CERAKOTE High Foam Vehicle Shampoo (16 oz) – pH Neutral Premium Car Wash Soap for FoamCannon, SnowFoam, Pressure Washer &amp; Hand Wash – Ceramic Coating Prep &amp; Maintenance – Citrus Scent – Maximum Suds" src="https://m.media-amazon.com/images/I/41zDq4ZbeIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DVB4P9KQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CERAKOTE High Foam Vehicle Shampoo (16 oz) – pH Neutral Premium Car Wash Soap for FoamCannon, SnowFoam, Pressure Washer &amp; Hand Wash – Ceramic Coating Prep &amp; Maintenance – Citrus Scent – Maximum Suds" src="https://m.media-amazon.com/images/I/41zDq4ZbeIL._SL500_.jpg"/></a>
 
 
 The **CERAKOTE High Foam Vehicle Shampoo (16 oz)** is ideal for car enthusiasts and professional detailers who seek a gentle yet effective cleaning solution. If you own a vehicle with **ceramic coating** or simply want to maintain your car’s pristine appearance without damaging its finish, this **pH neutral premium car wash soap** is perfect for you. It’s especially suited for those using foam cannons, snow foam systems, pressure washers, or prefer hand washing their cars.

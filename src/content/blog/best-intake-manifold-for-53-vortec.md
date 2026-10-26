@@ -23,10 +23,10 @@ Popular models include Htostar Racing, GSTP, POSENG, and BTR Equalizer. These ma
 
 
 
-## <a href="https://www.amazon.com/dp/B0C3CRJC7W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Htostar Racing For Ls Intake Manifold</a>
+## <a href="https://www.amazon.com/dp/B0C3CRJC7W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Htostar Racing For Ls Intake Manifold</a>
 
 
-<a href="https://www.amazon.com/dp/B0C3CRJC7W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Htostar Racing For LS Intake Manifold Compatible with LS1 LS2 LS6 of cathedral port heads with Drive by Cable Throttle Body Compatible with Chevy Cadillac Pontiac Aluminum (102mm)" src="https://m.media-amazon.com/images/I/412KuRv3WSL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C3CRJC7W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Htostar Racing For LS Intake Manifold Compatible with LS1 LS2 LS6 of cathedral port heads with Drive by Cable Throttle Body Compatible with Chevy Cadillac Pontiac Aluminum (102mm)" src="https://m.media-amazon.com/images/I/412KuRv3WSL._SL500_.jpg"/></a>
 
 
 The **Htostar Racing For LS Intake Manifold** is ideal for automotive enthusiasts and professional mechanics seeking a high-performance upgrade for their **LS1, LS2, and LS6 engines** with cathedral port heads. This intake manifold is especially suited for those who want to enhance their vehicle’s power output and throttle response while maintaining compatibility with **Drive by Cable Throttle Bodies** commonly found in Chevy, Cadillac, and Pontiac models. If you are looking to optimize your engine’s airflow and improve overall performance, this product is designed for you.
@@ -49,10 +49,10 @@ The **Htostar Racing Intake Manifold** stands out due to its robust **aluminum c
 
 Additionally, the manifold’s compatibility with the **Drive by Cable Throttle Body** and its substantial **102mm throttle body opening** allow for increased air intake, which boosts power and throttle response. Users will notice smoother acceleration and a more responsive driving experience, particularly in high-performance or racing scenarios. Overall, this manifold is a great investment for those aiming to maximize their LS engine's potential with reliable and proven hardware.
 
-## <a href="https://www.amazon.com/dp/B0CHB54H1K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ls Ls1 Ls2 Ls3 Ls6 Intake Manifold Compatible For Chevy 4.8l 5.3l 5.7l 6.0l</a>
+## <a href="https://www.amazon.com/dp/B0CHB54H1K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ls Ls1 Ls2 Ls3 Ls6 Intake Manifold Compatible For Chevy 4.8l 5.3l 5.7l 6.0l</a>
 
 
-<a href="https://www.amazon.com/dp/B0CHB54H1K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="LS LS1 LS2 LS3 LS6 Intake Manifold Compatible for Chevy 4.8L 5.3L 5.7L 6.0L Intake Manifold for LS Cathedral Port Heads 102mm Black" src="https://m.media-amazon.com/images/I/41y6GDea0uL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CHB54H1K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="LS LS1 LS2 LS3 LS6 Intake Manifold Compatible for Chevy 4.8L 5.3L 5.7L 6.0L Intake Manifold for LS Cathedral Port Heads 102mm Black" src="https://m.media-amazon.com/images/I/41y6GDea0uL._SL500_.jpg"/></a>
 
 
 The **LS LS1 LS2 LS3 LS6 Intake Manifold** is ideal for automotive enthusiasts and mechanics looking to upgrade their **Chevy 4.8L, 5.3L, 5.7L, or 6.0L engines**. Specifically designed for **LS Cathedral Port Heads**, this intake manifold suits those who want to enhance engine performance and airflow with a reliable and high-quality component.
@@ -75,10 +75,10 @@ The **LS Intake Manifold** stands out due to its precision engineering tailored 
 
 Made by **PUZZLEDEER**, this manifold combines durability with functionality. Its dimensions ensure a seamless fit within the engine compartment, while the black finish adds a professional and clean look. Users benefit not only from the improved engine output but also from the reliable construction that can withstand high-performance demands over time.
 
-## <a href="https://www.amazon.com/dp/B0D78Y5SK6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Gstp Intake Manifold</a>
+## <a href="https://www.amazon.com/dp/B0D78Y5SK6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Gstp Intake Manifold</a>
 
 
-<a href="https://www.amazon.com/dp/B0D78Y5SK6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="GSTP For LS LS1 LS2 LS6 Intake Manifold with Cathedral Port Compatible with Chevy 4.8 5.3 5.7 6.0 L (92MM Black)" src="https://m.media-amazon.com/images/I/41PA+nc9hIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D78Y5SK6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="GSTP For LS LS1 LS2 LS6 Intake Manifold with Cathedral Port Compatible with Chevy 4.8 5.3 5.7 6.0 L (92MM Black)" src="https://m.media-amazon.com/images/I/41PA+nc9hIL._SL500_.jpg"/></a>
 
 
 The **GSTP For LS LS1 LS2 LS6 Intake Manifold with Cathedral Port** is ideal for automotive enthusiasts and mechanics looking to upgrade their Chevy 4.8, 5.3, 5.7, or 6.0 L engines. Those who seek enhanced performance and improved airflow in their engines will find this manifold a perfect fit, especially for LS series engines requiring a reliable and efficient intake solution.
@@ -99,10 +99,10 @@ The **GSTP Intake Manifold** features a **92MM cathedral port** design that prom
 
 Additionally, the manifold’s robust **black coating** not only adds a sleek look to the engine bay but also protects the component from rust and wear over time. The precision manufacturing by **GSTP** ensures that the manifold fits securely, reducing the chance of air leaks and maintaining optimal engine performance. Overall, this intake manifold balances durability, performance, and style for LS engine enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B09LRR3GPT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Poseng Ls Intake Manifold With 102mm Throttle Body Fuel Rails Kit</a>
+## <a href="https://www.amazon.com/dp/B09LRR3GPT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Poseng Ls Intake Manifold With 102mm Throttle Body Fuel Rails Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B09LRR3GPT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="POSENG LS Intake Manifold with 102mm Throttle Body Fuel Rails Kit Replacement for Chevy 4.8 5.3 6.0 6.2 LS LS1 LS2 LS6 Sheet Metal Al Fabricated Black" src="https://m.media-amazon.com/images/I/51Mi767RW-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09LRR3GPT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="POSENG LS Intake Manifold with 102mm Throttle Body Fuel Rails Kit Replacement for Chevy 4.8 5.3 6.0 6.2 LS LS1 LS2 LS6 Sheet Metal Al Fabricated Black" src="https://m.media-amazon.com/images/I/51Mi767RW-L._SL500_.jpg"/></a>
 
 
 The **POSENG LS Intake Manifold with 102mm Throttle Body Fuel Rails Kit** is an ideal purchase for automotive enthusiasts and mechanics who are looking to enhance the performance of their **Chevy** 4.8, 5.3, 6.0, or 6.2 LS engines. This product is particularly suited for those who are focused on upgrading their vehicle's airflow system to achieve higher horsepower and torque. Whether you are a professional in the auto industry or a DIY car enthusiast, this kit offers a comprehensive solution for improving engine efficiency.
@@ -124,10 +124,10 @@ The **POSENG LS Intake Manifold** stands out due to its **high-quality construct
 
 Another significant feature of this kit is its **102mm throttle body**, which is crucial for enhancing engine airflow. By increasing the amount of air that enters the engine, the throttle body helps generate more power, translating into improved vehicle acceleration and overall performance. Additionally, the inclusion of **fuel rails** optimizes fuel delivery, ensuring that the engine receives a consistent and efficient flow of fuel. This not only supports performance enhancements but also contributes to better fuel economy, making it a valuable upgrade for those looking to balance power and efficiency.
 
-## <a href="https://www.amazon.com/dp/B081G71S9Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Trq Intake Manifold</a>
+## <a href="https://www.amazon.com/dp/B081G71S9Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Trq Intake Manifold</a>
 
 
-<a href="https://www.amazon.com/dp/B081G71S9Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="TRQ Intake Manifold for GMC Sierra Buick Cadillac Chevy Hummer" src="https://m.media-amazon.com/images/I/41-kcyuA1fL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B081G71S9Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="TRQ Intake Manifold for GMC Sierra Buick Cadillac Chevy Hummer" src="https://m.media-amazon.com/images/I/41-kcyuA1fL._SL500_.jpg"/></a>
 
 
 The **TRQ Intake Manifold** for **GMC Sierra, Buick, Cadillac, Chevy,** and **Hummer** vehicles is ideal for automotive enthusiasts and professional mechanics looking to enhance engine performance and reliability. If you own any of these brands and seek a dependable replacement part that offers improved air flow and engine efficiency, this intake manifold is designed specifically for you.
@@ -150,10 +150,10 @@ The **TRQ Intake Manifold** stands out due to its robust design and compatibilit
 
 Furthermore, the manifold's construction from high-quality materials guarantees resistance to heat and wear, making it a reliable component for long-term use. This product offers a cost-effective solution for those seeking to maintain or boost their vehicle's engine performance without investing in a complete overhaul. Overall, the TRQ Intake Manifold is a practical and performance-focused upgrade for GMC Sierra, Buick, Cadillac, Chevy, and Hummer owners.
 
-## <a href="https://www.amazon.com/dp/B0D4QSM7PT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jghyperx 2028 Intake Manifold Aluminum Dual Plane</a>
+## <a href="https://www.amazon.com/dp/B0D4QSM7PT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jghyperx 2028 Intake Manifold Aluminum Dual Plane</a>
 
 
-<a href="https://www.amazon.com/dp/B0D4QSM7PT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JGhyperX 2028 Intake Manifold Aluminum Dual Plane Compatible with Chevy Vortec air gap 7516 1996-up 1500-6500 RPM SBC 283 307 350 327 Natural" src="https://m.media-amazon.com/images/I/41ueMPZEUoL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D4QSM7PT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JGhyperX 2028 Intake Manifold Aluminum Dual Plane Compatible with Chevy Vortec air gap 7516 1996-up 1500-6500 RPM SBC 283 307 350 327 Natural" src="https://m.media-amazon.com/images/I/41ueMPZEUoL._SL500_.jpg"/></a>
 
 
 The **JGhyperX 2028 Intake Manifold Aluminum Dual Plane** is ideal for automotive enthusiasts and mechanics looking to upgrade their **Chevy Vortec engines** from 1996 and up. This product is perfect for those who want to enhance engine performance within the **1500-6500 RPM** range, especially owners of **SBC 283, 307, 327, and 350** engines seeking a reliable and efficient intake manifold.
@@ -176,10 +176,10 @@ The **JGhyperX 2028 Intake Manifold** is engineered with precision to ensure opt
 
 Additionally, the manifold's compatibility with the **Chevy Vortec air gap 7516** system means it integrates seamlessly with factory setups, reducing the need for extensive modifications. This manifold balances the needs of daily driving and performance upgrades, providing users with improved throttle response and increased horsepower across a broad RPM spectrum. Overall, this intake manifold offers a solid combination of durability, performance, and fitment for Chevy engine enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B082XKPKC8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Btr Equalizer 1 Intake Manifold Cathedral Head</a>
+## <a href="https://www.amazon.com/dp/B082XKPKC8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Btr Equalizer 1 Intake Manifold Cathedral Head</a>
 
 
-<a href="https://www.amazon.com/dp/B082XKPKC8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BTR Equalizer 1 Intake Manifold Cathedral Head Brian Tooley IMA-01 LS1 LS2 LS6 4.8 5.3 5.7 6.0 Includes Billet Fuel Rail Kit(Intake and Fuel Rails)" src="https://m.media-amazon.com/images/I/41gs48kDmeL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B082XKPKC8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BTR Equalizer 1 Intake Manifold Cathedral Head Brian Tooley IMA-01 LS1 LS2 LS6 4.8 5.3 5.7 6.0 Includes Billet Fuel Rail Kit(Intake and Fuel Rails)" src="https://m.media-amazon.com/images/I/41gs48kDmeL._SL500_.jpg"/></a>
 
 
 The **BTR Equalizer 1 Intake Manifold Cathedral Head Brian Tooley IMA-01** is ideal for automotive enthusiasts and professional racers who own LS-series engines, specifically the **LS1, LS2, LS6, 4.8, 5.3, 5.7, and 6.0** variants. If you're looking to enhance your engine's performance with improved airflow and fuel delivery, this intake manifold combined with the included billet fuel rail kit is a perfect upgrade. It’s best suited for those seeking reliable power gains and efficient fuel management in high-performance applications.
@@ -202,10 +202,10 @@ The **BTR Equalizer 1 Intake Manifold** stands out with its precision design tai
 
 Built by the reputable **BTR Brian Tooley Racing**, this intake manifold offers not only performance but also long-lasting durability. Its compatibility with multiple LS engine sizes adds flexibility for enthusiasts who might upgrade or swap engines. Overall, this product combines superior engineering with practical enhancements to elevate your vehicle's power output and responsiveness on the road or track.
 
-## <a href="https://www.amazon.com/dp/B0CT2P9FLF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ms98016t Intake Manifold Gasket For Chevy Silverado 5.3</a>
+## <a href="https://www.amazon.com/dp/B0CT2P9FLF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ms98016t Intake Manifold Gasket For Chevy Silverado 5.3</a>
 
 
-<a href="https://www.amazon.com/dp/B0CT2P9FLF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MS98016T For Chevy Silverado 5.3 Intake Manifold Gasket Ls Ls2 Ls3 Ls6 Chevrolet Sierra Avalanche Escalade Yukon Tahoe Suburban Intake Manifold Gasket Sealing 4.8 5.3 6.0 6.2L 89060413 MIS16340" src="https://m.media-amazon.com/images/I/513DHRt1sWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CT2P9FLF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MS98016T For Chevy Silverado 5.3 Intake Manifold Gasket Ls Ls2 Ls3 Ls6 Chevrolet Sierra Avalanche Escalade Yukon Tahoe Suburban Intake Manifold Gasket Sealing 4.8 5.3 6.0 6.2L 89060413 MIS16340" src="https://m.media-amazon.com/images/I/513DHRt1sWL._SL500_.jpg"/></a>
 
 
 The **MS98016T For Chevy Silverado 5.3 Intake Manifold Gasket** is ideal for vehicle owners and mechanics who need a reliable and durable gasket replacement for their **Chevy Silverado, Sierra, Avalanche, Escalade, Yukon, Tahoe,** or **Suburban** models with engines ranging from **4.8L to 6.2L**. If you are looking to maintain optimal engine performance and prevent leaks, this gasket is designed specifically for **LS, LS2, LS3, and LS6** engines, making it a perfect fit for those seeking quality sealing solutions for their GM vehicles.
@@ -227,10 +227,10 @@ The **MS98016T Intake Manifold Gasket** stands out due to its precise engineerin
 
 Additionally, the gasket’s compatibility with various Chevrolet and GMC models, including the **Silverado, Sierra, Avalanche, Escalade, Yukon, Tahoe,** and **Suburban**, makes it a versatile choice for many GM vehicle owners. The ease of installation further benefits users by minimizing repair time and labor costs. Whether you are performing routine maintenance or addressing a specific intake manifold leak, this gasket offers a trusted solution to keep your engine running smoothly and efficiently.
 
-## <a href="https://www.amazon.com/dp/B0DBJ7NPZY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">300-132 Ls Mid-rise Carbureted Intake Manifold Aluminum Single Plane</a>
+## <a href="https://www.amazon.com/dp/B0DBJ7NPZY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">300-132 Ls Mid-rise Carbureted Intake Manifold Aluminum Single Plane</a>
 
 
-<a href="https://www.amazon.com/dp/B0DBJ7NPZY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="300-132 LS Mid-Rise Carbureted Intake Manifold Aluminum Single Plane Compatible with Chevy Small Block SBC 1997-2007 Cathedral Port fit for GM LS1/LS2/LS6 V8 4.8L 5.3L 5.7L 6.0L" src="https://m.media-amazon.com/images/I/415EikpeWCL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DBJ7NPZY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="300-132 LS Mid-Rise Carbureted Intake Manifold Aluminum Single Plane Compatible with Chevy Small Block SBC 1997-2007 Cathedral Port fit for GM LS1/LS2/LS6 V8 4.8L 5.3L 5.7L 6.0L" src="https://m.media-amazon.com/images/I/415EikpeWCL._SL500_.jpg"/></a>
 
 
 The **300-132 LS Mid-Rise Carbureted Intake Manifold Aluminum Single Plane** is ideal for automotive enthusiasts and mechanics looking to enhance the performance of their **GM LS1, LS2, and LS6 V8 engines** from 1997 to 2007. This product is especially suited for those who own a **Chevy Small Block SBC** and require a reliable, high-quality intake manifold compatible with **cathedral port cylinder heads**. If you want to boost your engine's airflow and overall horsepower while maintaining a mid-rise design that fits well within engine bays, this manifold is a perfect choice.
@@ -253,10 +253,10 @@ This **JGhyperX intake manifold** features a mid-rise single-plane design that a
 
 With precise engineering tailored to fit the 1997-2007 SBC engines, this intake manifold helps users achieve a noticeable increase in horsepower and throttle response. The single-plane design is ideal for those seeking enhanced top-end power, making it suitable for street performance, racing, or custom builds. While installation may require some expertise, the manifold’s dimensions and compatibility ensure it fits well in most engine bays without extensive modification.
 
-## <a href="https://www.amazon.com/dp/B00VS7J4NI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lsxrt 102mm Intake Manifold For Gm Ls 4.8/5.3/6.0l Truck</a>
+## <a href="https://www.amazon.com/dp/B00VS7J4NI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lsxrt 102mm Intake Manifold For Gm Ls 4.8/5.3/6.0l Truck</a>
 
 
-<a href="https://www.amazon.com/dp/B00VS7J4NI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="LSXrt 102mm Intake Manifold for GM LS 4.8/5.3/6.0L Truck with Cathedral Port Heads" src="https://m.media-amazon.com/images/I/41ceCttJlSL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00VS7J4NI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="LSXrt 102mm Intake Manifold for GM LS 4.8/5.3/6.0L Truck with Cathedral Port Heads" src="https://m.media-amazon.com/images/I/41ceCttJlSL._SL500_.jpg"/></a>
 
 
 The **LSXrt 102mm Intake Manifold** is an excellent choice for automotive enthusiasts and professionals who own GM LS 4.8, 5.3, or 6.0L trucks with cathedral port heads. If you are looking to enhance your engine’s airflow and overall performance while maintaining compatibility with your stock components, this intake manifold is designed specifically for you. Ideal customers include performance builders, truck owners seeking reliable power upgrades, and those focused on maximizing throttle response and efficiency in their GM LS engines.

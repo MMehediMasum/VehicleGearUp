@@ -23,10 +23,10 @@ From adjustable mounts to quick-release designs, these racks suit different fram
 
 
 
-## <a href="https://www.amazon.com/dp/B0C7LRBD7L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ibera Bike Rack</a>
+## <a href="https://www.amazon.com/dp/B0C7LRBD7L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ibera Bike Rack</a>
 
 
-<a href="https://www.amazon.com/dp/B0C7LRBD7L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img src="https://m.media-amazon.com/images/I/41kfhBMq89L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C7LRBD7L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img src="https://m.media-amazon.com/images/I/41kfhBMq89L._SL500_.jpg"/></a>
 
 
 The **Ibera Bike Rack - Bicycle Touring Carrier Plus+** is an excellent choice for avid cyclists who require a durable and versatile rack for their touring adventures. Ideal for riders with **26"-29" frames**, including those with **disc brake or non-disc brake mounts**, and even suitable for **fat tire bikes**, this rack is perfect for those who need to carry heavier top and side loads with confidence and stability. If you often embark on long-distance rides or need a reliable way to transport your gear, this frame-mounted carrier is designed with you in mind.
@@ -50,10 +50,10 @@ The **Ibera Bike Rack - Bicycle Touring Carrier Plus+** stands out due to its ro
 
 Another significant feature of this rack is its compatibility with **fat tire bikes**, which are increasingly popular for off-road and adventure cycling. The rack supports heavier top and side loads, making it suitable for cyclists who pack essential gear for multi-day trips or commuting needs. Its relatively lightweight design means it won’t add unnecessary bulk to your bike, while the quality craftsmanship from **Ibera** promises durability and long-lasting use. Overall, this bike rack enhances the touring experience by providing a reliable and versatile cargo solution.
 
-## <a href="https://www.amazon.com/dp/B08946G2S9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Aeroe Rear Bike Rack</a>
+## <a href="https://www.amazon.com/dp/B08946G2S9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Aeroe Rear Bike Rack</a>
 
 
-<a href="https://www.amazon.com/dp/B08946G2S9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AEROE Rear Bike Rack, Easy Install &amp; Use, Fits All Mountain Bikes incl. E MTB, Gravel Bikes, Road Bikes and Electric Bikes, Bike Cargo Rack Can Carry Any Type of Luggage, Dry Bag or Tent up to 35lbs" src="https://m.media-amazon.com/images/I/21DPcudw7vL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08946G2S9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AEROE Rear Bike Rack, Easy Install &amp; Use, Fits All Mountain Bikes incl. E MTB, Gravel Bikes, Road Bikes and Electric Bikes, Bike Cargo Rack Can Carry Any Type of Luggage, Dry Bag or Tent up to 35lbs" src="https://m.media-amazon.com/images/I/21DPcudw7vL._SL500_.jpg"/></a>
 
 
 The **AEROE Rear Bike Rack** is perfect for cyclists who need a reliable and versatile solution for carrying luggage on their bikes. Whether you own a **mountain bike**, **electric bike**, **gravel bike**, or **road bike**, this rack is designed to fit all types comfortably. It's ideal for commuters, adventure enthusiasts, and those who enjoy long rides with gear such as dry bags or tents.
@@ -76,10 +76,10 @@ The **AEROE Rear Bike Rack** offers a combination of versatility and strength, m
 
 Additionally, the rack’s lightweight and compact design minimizes impact on bike handling and performance. Installing the rack is straightforward, allowing riders to spend less time setting up and more time enjoying their ride. Overall, the **AEROE Rear Bike Rack** enhances the functionality of any bike, providing secure storage options for extended trips or everyday use.
 
-## <a href="https://www.amazon.com/dp/B08Y616CZN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Topeak Tetrarack M2l Mountain Bike Rear Rack</a>
+## <a href="https://www.amazon.com/dp/B08Y616CZN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Topeak Tetrarack M2l Mountain Bike Rear Rack</a>
 
 
-<a href="https://www.amazon.com/dp/B08Y616CZN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Topeak TetraRack M2L Mountain Bike Rear Rack - Rear - 26lb Capacity" src="https://m.media-amazon.com/images/I/41Fx0I+VcUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08Y616CZN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Topeak TetraRack M2L Mountain Bike Rear Rack - Rear - 26lb Capacity" src="https://m.media-amazon.com/images/I/41Fx0I+VcUL._SL500_.jpg"/></a>
 
 
 The **Topeak TetraRack M2L Mountain Bike Rear Rack** is ideal for avid mountain bikers and outdoor enthusiasts who need a reliable and sturdy rear rack to carry gear on their adventures. If you frequently embark on long rides or require additional storage capacity on your bike without compromising performance, this rack is designed to meet those demands with ease.
@@ -101,10 +101,10 @@ The **Topeak TetraRack M2L** is engineered with robust materials that guarantee 
 
 Additionally, this rear rack’s lightweight construction at just **3 pounds** minimizes added bulk, allowing riders to maintain optimal control and speed. The sleek **black finish** adds a professional look while also offering protection against scratches and corrosion. For mountain bikers seeking a dependable solution for increased cargo capacity, the **Topeak TetraRack M2L** provides an excellent balance of strength, style, and functionality.
 
-## <a href="https://www.amazon.com/dp/B0789G6YP4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Threeh Retractable Bike Luggage Cargo Rack</a>
+## <a href="https://www.amazon.com/dp/B0789G6YP4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Threeh Retractable Bike Luggage Cargo Rack</a>
 
 
-<a href="https://www.amazon.com/dp/B0789G6YP4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ThreeH Retractable Bike Luggage Cargo Rack Aluminum Alloy Bicycle Pannier Bag Holder Easy to Install BK41" src="https://m.media-amazon.com/images/I/41uVGGtRj4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0789G6YP4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ThreeH Retractable Bike Luggage Cargo Rack Aluminum Alloy Bicycle Pannier Bag Holder Easy to Install BK41" src="https://m.media-amazon.com/images/I/41uVGGtRj4L._SL500_.jpg"/></a>
 
 
 The **ThreeH Retractable Bike Luggage Cargo Rack** is ideal for **cyclists** who frequently **commute** or embark on **long rides** and need a reliable solution for carrying extra luggage. This product is perfect for those who want an **easy-to-install** and **lightweight** option to enhance their biking experience.
@@ -125,10 +125,10 @@ The **ThreeH Retractable Bike Luggage Cargo Rack** is constructed from **aluminu
 
 One of the standout features of this cargo rack is its **easy installation** process. The **retractable** design means that users can quickly set up or remove the rack as needed, making it an excellent option for those who value **convenience** and **time efficiency**. Despite being only available in **black**, its sleek design complements most bikes, while the **versatile functionality** ensures it meets various biking needs, from daily commutes to weekend adventures.
 
-## <a href="https://www.amazon.com/dp/B07219CDH7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rockbros Bike Bicycle Cargo Rack Rear Bike Rack</a>
+## <a href="https://www.amazon.com/dp/B07219CDH7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rockbros Bike Bicycle Cargo Rack Rear Bike Rack</a>
 
 
-<a href="https://www.amazon.com/dp/B07219CDH7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ROCKBROS Bike Bicycle Cargo Rack Rear Bike Rack for Back of Bike Carrier Rack with Fender Quick Release Mountain Road Bicycle Rear Racks 110-165 lbs Capacity Universal" src="https://m.media-amazon.com/images/I/41tsYLpcs3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07219CDH7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ROCKBROS Bike Bicycle Cargo Rack Rear Bike Rack for Back of Bike Carrier Rack with Fender Quick Release Mountain Road Bicycle Rear Racks 110-165 lbs Capacity Universal" src="https://m.media-amazon.com/images/I/41tsYLpcs3L._SL500_.jpg"/></a>
 
 
 The **ROCKBROS Bike Bicycle Cargo Rack** is ideal for cyclists who frequently carry extra gear or groceries and need a reliable, sturdy solution for transporting items on their bike. Whether you are a commuter, a mountain biker, or a road cyclist looking for a versatile rear carrier rack, this product is designed to meet the needs of those seeking durability and convenience in one package.
@@ -152,10 +152,10 @@ The **ROCKBROS Rear Bike Rack** stands out with its impressive load capacity, ma
 
 Additionally, the integrated fender offers practical protection from road debris and wet conditions, helping to keep both the rider and cargo clean. The rack's sturdy construction and optimal size balance strength with minimal added weight, ensuring it does not interfere with the bike's handling. Overall, this rear cargo rack combines functionality and reliability, making it an excellent accessory for everyday cycling and long-distance adventures alike.
 
-## <a href="https://www.amazon.com/dp/B0747J9S79?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Upanbike Rear Bike Rack</a>
+## <a href="https://www.amazon.com/dp/B0747J9S79?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Upanbike Rear Bike Rack</a>
 
 
-<a href="https://www.amazon.com/dp/B0747J9S79?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="UPANBIKE Rear Bike Rack Bicycle Cargo Rack Retractable Quick Release Lever Mounted on Seatpost Aluminum Alloy Luggage Carrier" src="https://m.media-amazon.com/images/I/31+eLc0MhhL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0747J9S79?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="UPANBIKE Rear Bike Rack Bicycle Cargo Rack Retractable Quick Release Lever Mounted on Seatpost Aluminum Alloy Luggage Carrier" src="https://m.media-amazon.com/images/I/31+eLc0MhhL._SL500_.jpg"/></a>
 
 
 The **UPANBIKE Rear Bike Rack** is ideal for cyclists who frequently carry cargo and need a reliable, easy-to-use storage solution for their bikes. Whether you're a commuter, a weekend adventurer, or a delivery rider, this rack is designed for those who want a sturdy and lightweight carrier that mounts quickly and securely to the seatpost.
@@ -177,10 +177,10 @@ The **UPANBIKE Rear Bike Rack** boasts a smart design with its retractable quick
 
 Additionally, the rack’s sleek black finish blends well with most bike styles, adding a touch of elegance alongside functionality. Its versatility makes it suitable for carrying groceries, bags, or even small parcels, making daily commuting or weekend trips hassle-free. Overall, this carrier is a practical solution for riders seeking a balance of convenience, durability, and style in their bicycle accessories.
 
-## <a href="https://www.amazon.com/dp/B01LX65YDI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lumintrail Bike Commuter Carrier Rack</a>
+## <a href="https://www.amazon.com/dp/B01LX65YDI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lumintrail Bike Commuter Carrier Rack</a>
 
 
-<a href="https://www.amazon.com/dp/B01LX65YDI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lumintrail Bike Commuter Carrier Rack w/Seatpost Quick Release Rear Mount for Bicycle Cargo" src="https://m.media-amazon.com/images/I/514VTnMupKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01LX65YDI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lumintrail Bike Commuter Carrier Rack w/Seatpost Quick Release Rear Mount for Bicycle Cargo" src="https://m.media-amazon.com/images/I/514VTnMupKL._SL500_.jpg"/></a>
 
 
 The **Lumintrail Bike Commuter Carrier Rack w/Seatpost Quick Release Rear Mount** is ideal for daily cyclists, urban commuters, and anyone looking to easily transport cargo on their bicycle without compromising convenience. If you need a reliable and lightweight solution for carrying bags, groceries, or work gear on your bike, this carrier rack is designed to fit your needs.
@@ -203,10 +203,10 @@ The **Lumintrail Bike Commuter Carrier Rack** features a seatpost quick release 
 
 Additionally, the rack’s compact dimensions and sleek black color give it a modern and unobtrusive appearance, making it a practical and stylish choice. The durable materials used in manufacturing provide long-lasting performance even under regular urban use. Overall, this carrier rack offers a convenient and efficient solution for carrying light to moderate cargo, enhancing the commuting experience by combining functionality with ease of use.
 
-## <a href="https://www.amazon.com/dp/B01N6RORTM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Thule Tour Rack</a>
+## <a href="https://www.amazon.com/dp/B01N6RORTM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Thule Tour Rack</a>
 
 
-<a href="https://www.amazon.com/dp/B01N6RORTM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Thule Tour Rack - Bike Cargo Rack - Easy on Easy Off - Front and Rear Compatible,Black" src="https://m.media-amazon.com/images/I/41YVLg006wL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01N6RORTM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Thule Tour Rack - Bike Cargo Rack - Easy on Easy Off - Front and Rear Compatible,Black" src="https://m.media-amazon.com/images/I/41YVLg006wL._SL500_.jpg"/></a>
 
 
 The **Thule Tour Rack - Bike Cargo Rack** is perfect for avid cyclists who need a reliable and versatile solution for carrying gear on their bike. Whether you are a commuter, a weekend adventurer, or a touring cyclist, this rack is designed for those who want an **easy-to-install** and **durable cargo rack** that works on both the **front and rear** of the bike. Its sleek **black design** and lightweight build make it ideal for anyone looking to enhance their bike’s carrying capacity without adding unnecessary bulk.
@@ -229,10 +229,10 @@ The **Thule Tour Rack** features a compact design with dimensions approximately 
 
 Constructed by **Thule, Inc.**, a reputable manufacturer known for quality outdoor gear, this rack delivers reliable performance and durability. The **easy on easy off** feature allows users to quickly attach or detach the rack without the need for specialized tools, making it ideal for those who frequently switch between carrying cargo and riding light. Overall, the Thule Tour Rack is a practical and efficient accessory for cyclists aiming to enhance their bike’s carrying capacity with minimal hassle.
 
-## <a href="https://www.amazon.com/dp/B0030RS5CA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Schwinn Deluxe Alloy Rear Bike Rack</a>
+## <a href="https://www.amazon.com/dp/B0030RS5CA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Schwinn Deluxe Alloy Rear Bike Rack</a>
 
 
-<a href="https://www.amazon.com/dp/B0030RS5CA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Schwinn Deluxe Alloy Rear Bike Rack, 20 lbs Capacity, Lightweight, Compact and Durable Construction, Fits Most Adult Bicycles, Cargo Options for Backpack, Gear &amp; More, Bicycle Rack for Back of Bike" src="https://m.media-amazon.com/images/I/31ESJs5QQhL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0030RS5CA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Schwinn Deluxe Alloy Rear Bike Rack, 20 lbs Capacity, Lightweight, Compact and Durable Construction, Fits Most Adult Bicycles, Cargo Options for Backpack, Gear &amp; More, Bicycle Rack for Back of Bike" src="https://m.media-amazon.com/images/I/31ESJs5QQhL._SL500_.jpg"/></a>
 
 
 The **Schwinn Deluxe Alloy Rear Bike Rack** is ideal for avid cyclists and commuters who need a reliable and lightweight solution for carrying cargo on their bicycles. If you often transport backpacks, gear, or groceries and want a durable rack that fits most adult bikes, this item is designed with you in mind. Its compact size and sturdy construction make it perfect for those seeking convenience without sacrificing strength.
@@ -255,10 +255,10 @@ The **Schwinn Deluxe Alloy Rear Bike Rack** features a sturdy yet lightweight al
 
 Beyond its physical attributes, the rack’s durable construction provides peace of mind for users who rely on their bikes for transport. It resists rust and corrosion, ensuring longevity in various weather conditions. Additionally, the straightforward design supports easy attachment and removal, making it convenient for cyclists who want to customize their setup based on their needs. Overall, the Schwinn Deluxe Alloy Rear Bike Rack enhances the practicality of any bike by expanding its cargo-carrying capabilities while maintaining a lightweight and compact profile.
 
-## <a href="https://www.amazon.com/dp/B0B4GSC6GF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yontuo Rear Bike Rack</a>
+## <a href="https://www.amazon.com/dp/B0B4GSC6GF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yontuo Rear Bike Rack</a>
 
 
-<a href="https://www.amazon.com/dp/B0B4GSC6GF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img src="https://m.media-amazon.com/images/I/414jH+gbk6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B4GSC6GF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img src="https://m.media-amazon.com/images/I/414jH+gbk6L._SL500_.jpg"/></a>
 
 
 The **YONTUO Rear Bike Rack with Quickly Release Camp** is ideal for avid cyclists and daily commuters who need a reliable and sturdy cargo solution for their bicycles. Designed for bikes with **26"-29" frames**, this rack is perfect for those who frequently carry groceries, backpacks, or other essentials and want a hassle-free way to transport items securely while riding.

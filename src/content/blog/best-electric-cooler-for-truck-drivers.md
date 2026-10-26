@@ -23,10 +23,10 @@ Some units include app controls for simple temperature management. Features like
 
 
 
-## <a href="https://www.amazon.com/dp/B0C4H82CHZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Euhomy 12 Volt Refrigerator</a>
+## <a href="https://www.amazon.com/dp/B0C4H82CHZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Euhomy 12 Volt Refrigerator</a>
 
 
-<a href="https://www.amazon.com/dp/B0C4H82CHZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="EUHOMY 12 Volt Refrigerator, 19QT(18L) Compressor Electric Cooler APP Control, Car Fridge -4℉~68℉, Portable Refrigerator 12/24V DC 110-240V AC, Portable Freezer for Camping, Travel, Boat" src="https://m.media-amazon.com/images/I/41gAae2ZsiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C4H82CHZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="EUHOMY 12 Volt Refrigerator, 19QT(18L) Compressor Electric Cooler APP Control, Car Fridge -4℉~68℉, Portable Refrigerator 12/24V DC 110-240V AC, Portable Freezer for Camping, Travel, Boat" src="https://m.media-amazon.com/images/I/41gAae2ZsiL._SL500_.jpg"/></a>
 
 
 The **EUHOMY 12 Volt Refrigerator** is ideal for outdoor enthusiasts, travelers, and anyone in need of a reliable, portable cooling solution. Whether you’re camping, on a road trip, boating, or simply need a compact fridge for your vehicle, this **19QT (18L) compressor electric cooler** with **APP control** offers the perfect balance of convenience and performance. It’s designed for individuals who value temperature precision and portability in their cooling devices.
@@ -50,10 +50,10 @@ The **EUHOMY 12 Volt Refrigerator** combines advanced compressor cooling with sm
 
 Measuring just over 11 inches in height and weighing just over 21 pounds, this portable fridge is compact enough for easy transport while providing enough storage space for essentials. The robust compressor ensures efficient cooling even in warm conditions, making it a dependable companion for camping trips, road travel, or boating adventures. With its sleek design available in **Black** or **Gray**, it also fits seamlessly into various settings without compromising style or functionality.
 
-## <a href="https://www.amazon.com/dp/B08G1BBBQW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Bougerv 12 Volt Refrigerator</a>
+## <a href="https://www.amazon.com/dp/B08G1BBBQW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Bougerv 12 Volt Refrigerator</a>
 
 
-<a href="https://www.amazon.com/dp/B08G1BBBQW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BougeRV 12 Volt Refrigerator 12V Car Fridge 23 Quart Portable Freezer Compressor Cooler 12/24V DC 110~240 Volt AC for Truck Van RV Camper SUV Travel Camping Road Trips Tailgating -8℉~50℉" src="https://m.media-amazon.com/images/I/4191aQjb17L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08G1BBBQW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BougeRV 12 Volt Refrigerator 12V Car Fridge 23 Quart Portable Freezer Compressor Cooler 12/24V DC 110~240 Volt AC for Truck Van RV Camper SUV Travel Camping Road Trips Tailgating -8℉~50℉" src="https://m.media-amazon.com/images/I/4191aQjb17L._SL500_.jpg"/></a>
 
 
 The **BougeRV 12 Volt Refrigerator** is ideal for outdoor enthusiasts, travelers, and anyone in need of a reliable and portable cooling solution. Whether you own an RV, camper, truck, van, or SUV, this **23 Quart Portable Freezer Compressor Cooler** is perfect for road trips, camping, tailgating, and long journeys where keeping food and drinks cold is essential.
@@ -76,10 +76,10 @@ The **BougeRV 12 Volt Refrigerator** features a powerful compressor cooling syst
 
 Thanks to its compact dimensions and moderate weight, this portable freezer is easy to carry and fits comfortably in most vehicles without taking up too much space. The temperature range from -8℉ to 50℉ means it can serve as both a freezer and refrigerator, which is perfect for storing a variety of perishables on the go. Whether you’re tailgating, camping, or on a cross-country road trip, the BougeRV 12 Volt Refrigerator offers a reliable and efficient cooling solution that enhances your travel experience by keeping your food fresh and drinks cold.
 
-## <a href="https://www.amazon.com/dp/B0CY9KYZ4N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Euhomy 12 Volt Refrigerator</a>
+## <a href="https://www.amazon.com/dp/B0CY9KYZ4N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Euhomy 12 Volt Refrigerator</a>
 
 
-<a href="https://www.amazon.com/dp/B0CY9KYZ4N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="EUHOMY 12 Volt Refrigerator, 22QT(21L) 12V Cooler, Compressor Electric Cooler -4℉~68℉, 12V Fridge 12/24V DC 110-240V AC, Portable Freezer for Camping, Travel, Truck, Home" src="https://m.media-amazon.com/images/I/41NDAtrfp2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CY9KYZ4N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="EUHOMY 12 Volt Refrigerator, 22QT(21L) 12V Cooler, Compressor Electric Cooler -4℉~68℉, 12V Fridge 12/24V DC 110-240V AC, Portable Freezer for Camping, Travel, Truck, Home" src="https://m.media-amazon.com/images/I/41NDAtrfp2L._SL500_.jpg"/></a>
 
 
 The **EUHOMY 12 Volt Refrigerator** is ideal for outdoor enthusiasts, frequent travelers, and anyone in need of a reliable portable cooling solution. Whether you are camping, on a road trip, or working long hours in a truck, this compact **22QT (21L) compressor electric cooler** provides efficient cooling and freezing capabilities to keep your food and beverages fresh on the go.
@@ -102,10 +102,10 @@ The **EUHOMY 12 Volt Refrigerator** features a robust compressor cooling system 
 
 Designed with portability in mind, this cooler balances size and functionality. Its dimensions and weight make it easy to carry while still offering enough storage capacity for essential items during travel. The energy-efficient compressor reduces power consumption, which is particularly beneficial during long trips where power availability may be limited. Overall, the **EUHOMY 12V Refrigerator** combines convenience, durability, and performance, making it a top choice for those seeking dependable portable refrigeration.
 
-## <a href="https://www.amazon.com/dp/B0BX8NSQTQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Trefan Electric Cooler &amp; Warmer</a>
+## <a href="https://www.amazon.com/dp/B0BX8NSQTQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Trefan Electric Cooler &amp; Warmer</a>
 
 
-<a href="https://www.amazon.com/dp/B0BX8NSQTQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="TREFAN 8 Liter/Quart Electric Cooler &amp; Warmer 12v Plug in with AC/DC Car Mini Fridge Portable Electric Cooler for Car/Camping/Travelling/Truck" src="https://m.media-amazon.com/images/I/41+7GOcVRPL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BX8NSQTQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="TREFAN 8 Liter/Quart Electric Cooler &amp; Warmer 12v Plug in with AC/DC Car Mini Fridge Portable Electric Cooler for Car/Camping/Travelling/Truck" src="https://m.media-amazon.com/images/I/41+7GOcVRPL._SL500_.jpg"/></a>
 
 
 The **TREFAN 8 Liter/Quart Electric Cooler & Warmer** is an excellent choice for travelers, campers, and truck drivers who need a reliable solution for keeping food and beverages at the desired temperature. Whether you're planning a long road trip or a weekend camping adventure, this **portable mini fridge** is designed to cater to your on-the-go lifestyle.
@@ -127,10 +127,10 @@ One of the standout features of the **TREFAN Electric Cooler & Warmer** is its *
 
 Another impressive aspect is its **AC/DC compatibility**, allowing it to be plugged into a car cigarette lighter or a standard wall outlet. This flexibility ensures that you can use it both in your vehicle and at home, making it a practical choice for those who require a **portable cooling solution**. Additionally, its **lightweight and compact design** make it easy to transport, fitting snugly in your car or camping gear without adding unnecessary bulk.
 
-## <a href="https://www.amazon.com/dp/B09CJG22ZT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ivation Electric Cooler &amp; Warmer With Handle</a>
+## <a href="https://www.amazon.com/dp/B09CJG22ZT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ivation Electric Cooler &amp; Warmer With Handle</a>
 
 
-<a href="https://www.amazon.com/dp/B09CJG22ZT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Ivation Electric Cooler &amp; Warmer with Handle | 24 L Portable Thermoelectric Fridge for Vehicles &amp; Trucks| 110V AC Home Power Cord &amp; 12V Car Adapter for Camping, Travel &amp; Picnics" src="https://m.media-amazon.com/images/I/41XO6P9Y79L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09CJG22ZT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Ivation Electric Cooler &amp; Warmer with Handle | 24 L Portable Thermoelectric Fridge for Vehicles &amp; Trucks| 110V AC Home Power Cord &amp; 12V Car Adapter for Camping, Travel &amp; Picnics" src="https://m.media-amazon.com/images/I/41XO6P9Y79L._SL500_.jpg"/></a>
 
 
 The **Ivation Electric Cooler & Warmer with Handle** is ideal for individuals who frequently travel by vehicle or truck, enjoy camping, or go on picnics. This portable **24 L thermoelectric fridge** is perfect for those who need a reliable and versatile cooling and warming solution on the go. Whether you are a road trip enthusiast, a camper, or simply want a convenient way to keep your food and drinks at optimal temperatures during outdoor activities, this product is designed to meet your needs.
@@ -153,10 +153,10 @@ The **Ivation Electric Cooler & Warmer** offers a practical solution for users w
 
 Designed with portability in mind, this cooler features a sturdy handle and a lightweight structure, allowing easy carrying and placement in vehicles or campsites. The compact size fits well in most cars and trucks without occupying excessive space. Overall, the **Ivation 24 L portable thermoelectric fridge** combines convenience, versatility, and efficiency, making it an excellent choice for travelers and outdoor enthusiasts looking for a dependable cooling and warming device.
 
-## <a href="https://www.amazon.com/dp/B0D6YKCXJD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jicsuxi 12v Car Refrigerator</a>
+## <a href="https://www.amazon.com/dp/B0D6YKCXJD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jicsuxi 12v Car Refrigerator</a>
 
 
-<a href="https://www.amazon.com/dp/B0D6YKCXJD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JicSuXi 12V Car Refrigerator, 17 Quart Portable Freezer 12 Car Fridge (-4F~68F) Compressor Electric Cooler with 12/24V DC 110-240V AC, APP Control For Car Truck RV Camping, Travel Outdoor Home" src="https://m.media-amazon.com/images/I/41Bzh2DWtaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D6YKCXJD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JicSuXi 12V Car Refrigerator, 17 Quart Portable Freezer 12 Car Fridge (-4F~68F) Compressor Electric Cooler with 12/24V DC 110-240V AC, APP Control For Car Truck RV Camping, Travel Outdoor Home" src="https://m.media-amazon.com/images/I/41Bzh2DWtaL._SL500_.jpg"/></a>
 
 
 The **JicSuXi 12V Car Refrigerator** is ideal for outdoor enthusiasts, travelers, and anyone who spends extended time in a vehicle such as a car, truck, or RV. If you need a reliable way to keep food and beverages cold or frozen on the go, this portable freezer is perfect for camping trips, road trips, or daily commutes where refrigeration is essential.
@@ -180,10 +180,10 @@ The **JicSuXi 12V Car Refrigerator** boasts a compressor-based cooling system th
 
 One standout feature is the **APP control functionality**, which enables users to monitor and adjust the temperature remotely, adding a layer of convenience and precision. The unit supports multiple power sources, including both DC and AC inputs, which means it can be used not only in cars and trucks but also at home or in an RV. Overall, this portable freezer combines versatility, convenience, and efficient cooling in a compact package tailored for those who need reliable refrigeration on the move.
 
-## <a href="https://www.amazon.com/dp/B0CHQBLLYL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Euhomy 12 Volt Refrigerator</a>
+## <a href="https://www.amazon.com/dp/B0CHQBLLYL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Euhomy 12 Volt Refrigerator</a>
 
 
-<a href="https://www.amazon.com/dp/B0CHQBLLYL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="EUHOMY 12 Volt Refrigerator, 53QT(50L) Electric Cooler, Portable Freezer 12V/24V DC 110-240V AC, 12V Fridge -4℉~68℉, 12V Cooler with Wheels &amp; 2 Baskets for Travel, Truck, Boat, Camping" src="https://m.media-amazon.com/images/I/51D3uVf3pTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CHQBLLYL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="EUHOMY 12 Volt Refrigerator, 53QT(50L) Electric Cooler, Portable Freezer 12V/24V DC 110-240V AC, 12V Fridge -4℉~68℉, 12V Cooler with Wheels &amp; 2 Baskets for Travel, Truck, Boat, Camping" src="https://m.media-amazon.com/images/I/51D3uVf3pTL._SL500_.jpg"/></a>
 
 
 The **EUHOMY 12 Volt Refrigerator** is ideal for outdoor enthusiasts, frequent travelers, and anyone in need of a reliable, portable cooling solution. Whether you’re camping, on a road trip, or working in a truck or boat, this electric cooler offers versatile cooling options to keep your food and drinks fresh and chilled. Its portability and dual power compatibility make it perfect for users who require convenience and efficiency on the go.
@@ -206,10 +206,10 @@ The **EUHOMY 12 Volt Refrigerator** offers a robust cooling solution with its ab
 
 Designed with portability in mind, this electric cooler features convenient wheels and dual baskets, making it easy to transport and organize contents efficiently. Its sizable **53QT (50L)** capacity accommodates ample food and beverages for groups or extended trips. The solid build quality and modern color scheme further enhance its appeal as a dependable and stylish travel companion.
 
-## <a href="https://www.amazon.com/dp/B0CRKBHMYC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ekojuce 12 Volt Refrigerator Portable Fridge</a>
+## <a href="https://www.amazon.com/dp/B0CRKBHMYC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ekojuce 12 Volt Refrigerator Portable Fridge</a>
 
 
-<a href="https://www.amazon.com/dp/B0CRKBHMYC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="EKOJUCE 12 Volt Refrigerator Portable Fridge - 16Quart(15L) Electric Cooler Compressor fridge -4℉~68℉, 12/24V DC &amp; 100-240V AC Car Refrigerator for Camping, RV, Fashing, Travel, Home" src="https://m.media-amazon.com/images/I/41u2nEO4qHL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CRKBHMYC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="EKOJUCE 12 Volt Refrigerator Portable Fridge - 16Quart(15L) Electric Cooler Compressor fridge -4℉~68℉, 12/24V DC &amp; 100-240V AC Car Refrigerator for Camping, RV, Fashing, Travel, Home" src="https://m.media-amazon.com/images/I/41u2nEO4qHL._SL500_.jpg"/></a>
 
 
 The **EKOJUCE 12 Volt Refrigerator Portable Fridge** is ideal for outdoor enthusiasts, frequent travelers, and anyone in need of a reliable cooling solution on the go. Whether you are camping, fishing, road-tripping in an RV, or simply want a compact fridge for home use, this portable fridge offers convenience and efficiency for keeping your food and drinks fresh. Its versatile power options make it perfect for users who require a fridge compatible with both vehicle and household power sources.
@@ -232,10 +232,10 @@ The **EKOJUCE 12 Volt Refrigerator Portable Fridge** features a robust compresso
 
 Designed with dual voltage compatibility, this fridge can be powered via **12/24V DC** from vehicles or **100-240V AC** from standard household outlets. This flexibility ensures that users can rely on consistent refrigeration whether on the road or at home. The sleek black design and durable build quality add to its appeal, promising long-lasting performance in various outdoor and indoor settings.
 
-## <a href="https://www.amazon.com/dp/B0DN6CPDBZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Setpower 12v Refrigerator 21 Quart Portable Freezer</a>
+## <a href="https://www.amazon.com/dp/B0DN6CPDBZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Setpower 12v Refrigerator 21 Quart Portable Freezer</a>
 
 
-<a href="https://www.amazon.com/dp/B0DN6CPDBZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Setpower 12V Refrigerator 21 Quart Portable Freezer 50 Hours Keep Cool,Electric Cooler for Vehicles Car Refrigerator 12V Portable Fridge for Car Camping Truck Van RV SUV Road Trip Travel RF20" src="https://m.media-amazon.com/images/I/41SRxQu1nCL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DN6CPDBZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Setpower 12V Refrigerator 21 Quart Portable Freezer 50 Hours Keep Cool,Electric Cooler for Vehicles Car Refrigerator 12V Portable Fridge for Car Camping Truck Van RV SUV Road Trip Travel RF20" src="https://m.media-amazon.com/images/I/41SRxQu1nCL._SL500_.jpg"/></a>
 
 
 The **Setpower 12V Refrigerator 21 Quart Portable Freezer** is ideal for outdoor enthusiasts, frequent travelers, and anyone who needs reliable cooling on the go. Perfect for those who enjoy **car camping**, road trips, or long hauls in their **truck, van, RV, or SUV**, this **electric cooler** ensures your food and drinks stay fresh and chilled for extended periods.
@@ -257,10 +257,10 @@ The **Setpower 12V Refrigerator** stands out with its impressive ability to main
 
 Designed specifically for use in vehicles, this **electric cooler** runs on a standard **12V power supply**, ensuring compatibility with cars, trucks, vans, RVs, and SUVs. Its robust construction and sleek **black color** not only enhance durability but also add a stylish touch to your travel gear. Whether you are heading out for a weekend camping adventure or a long road trip, the Setpower portable freezer offers convenience, efficiency, and peace of mind by keeping your items cool and fresh throughout your journey.
 
-## <a href="https://www.amazon.com/dp/B00U6YTMRM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wagan El6214 Personal Thermoelectric Cooler/warmer</a>
+## <a href="https://www.amazon.com/dp/B00U6YTMRM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wagan El6214 Personal Thermoelectric Cooler/warmer</a>
 
 
-<a href="https://www.amazon.com/dp/B00U6YTMRM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Wagan EL6214 Personal Thermoelectric Cooler/Warmer, 14 Liter Capacity, Portable Electric Car Cooler with 12/24V DC, 12V Small Fridge for Car, RV, and Camping Use, UL Listed" src="https://m.media-amazon.com/images/I/51SSB74bMIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00U6YTMRM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Wagan EL6214 Personal Thermoelectric Cooler/Warmer, 14 Liter Capacity, Portable Electric Car Cooler with 12/24V DC, 12V Small Fridge for Car, RV, and Camping Use, UL Listed" src="https://m.media-amazon.com/images/I/51SSB74bMIL._SL500_.jpg"/></a>
 
 
 The **Wagan EL6214 Personal Thermoelectric Cooler/Warmer** is ideal for individuals who frequently travel by car, RV, or enjoy camping and outdoor adventures. This portable electric cooler is perfect for those who need a compact and efficient solution to keep their food and beverages cool or warm on the go. Whether you are a road trip enthusiast, a camper, or someone looking for a reliable small fridge to use in your vehicle, this 14-liter capacity cooler offers convenience and versatility.

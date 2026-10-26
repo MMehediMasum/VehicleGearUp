@@ -23,10 +23,10 @@ The Michelin Wild Enduro tire provides excellent grip on mixed terrains and last
 
 
 
-## <a href="https://www.amazon.com/dp/B077YKYKPF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Continental Mountain Bike Protection Tire Cross King</a>
+## <a href="https://www.amazon.com/dp/B077YKYKPF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Continental Mountain Bike Protection Tire Cross King</a>
 
 
-<a href="https://www.amazon.com/dp/B077YKYKPF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img src="https://m.media-amazon.com/images/I/41DuhtcP3fL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B077YKYKPF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img src="https://m.media-amazon.com/images/I/41DuhtcP3fL._SL500_.jpg"/></a>
 
 
 The **Continental Mountain Bike ProTection Tire - Black Chili** is ideal for avid mountain bikers and trail enthusiasts seeking a high-performance, durable tire that offers excellent grip and puncture resistance. Whether you ride on rugged terrains or technical trails, this tire is perfect for those who demand reliability and superior control in various conditions.
@@ -49,10 +49,10 @@ The **Continental Mountain Bike ProTection Tire** utilizes the innovative **Blac
 
 Handmade with precision, this tire features a robust **ProTection layer** that guards against cuts and punctures without adding unnecessary weight. The folding design makes it convenient to carry as a spare or to swap out on the trail. Overall, the **Continental Cross King** tire is engineered to enhance mountain biking performance by delivering durability, grip, and versatility across a variety of off-road conditions.
 
-## <a href="https://www.amazon.com/dp/B0792S4RKP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Michelin Wild Enduro 29x2.4 Tubeless Folding Mountain Bike Tire</a>
+## <a href="https://www.amazon.com/dp/B0792S4RKP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Michelin Wild Enduro 29x2.4 Tubeless Folding Mountain Bike Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B0792S4RKP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Michelin Wild Enduro 29x2.4 Tubeless Folding Mountain Bike Tire – High-Performance Gum-X Compound, GravityShield Durability, Enduro &amp; E-Bike Compatible, Versatile Terrain Grip" src="https://m.media-amazon.com/images/I/41IpLTFiNsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0792S4RKP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Michelin Wild Enduro 29x2.4 Tubeless Folding Mountain Bike Tire – High-Performance Gum-X Compound, GravityShield Durability, Enduro &amp; E-Bike Compatible, Versatile Terrain Grip" src="https://m.media-amazon.com/images/I/41IpLTFiNsL._SL500_.jpg"/></a>
 
 
 The **Michelin Wild Enduro 29x2.4 Tubeless Folding Mountain Bike Tire** is perfect for serious mountain bikers and e-bike riders who demand durability, superior grip, and versatility across diverse terrains. If you are an enduro enthusiast or someone looking to upgrade your bike with a tire that combines high performance and long-lasting materials, this tire is designed for you.

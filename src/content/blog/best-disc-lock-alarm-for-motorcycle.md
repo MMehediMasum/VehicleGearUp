@@ -23,10 +23,10 @@ Many models come with waterproof designs, reminder cables, and rechargeable batt
 
 
 
-## <a href="https://www.amazon.com/dp/B01M4MG0YT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yohoolyo Alarm Disc Lock Motorcycle Disc Brake Lock</a>
+## <a href="https://www.amazon.com/dp/B01M4MG0YT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yohoolyo Alarm Disc Lock Motorcycle Disc Brake Lock</a>
 
 
-<a href="https://www.amazon.com/dp/B01M4MG0YT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="YOHOOLYO Alarm Disc Lock Motorcycle Disc Brake Lock Anti-Theft Waterproof 110 dB 7mm Pin 5ft Reminder Cable for Motorcycles Bike Scooter Carry Pouch (Black)" src="https://m.media-amazon.com/images/I/51LAHYOAtgL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01M4MG0YT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="YOHOOLYO Alarm Disc Lock Motorcycle Disc Brake Lock Anti-Theft Waterproof 110 dB 7mm Pin 5ft Reminder Cable for Motorcycles Bike Scooter Carry Pouch (Black)" src="https://m.media-amazon.com/images/I/51LAHYOAtgL._SL500_.jpg"/></a>
 
 
 The **YOHOOLYO Alarm Disc Lock Motorcycle Disc Brake Lock** is ideal for motorcycle, bike, and scooter owners who are seeking a reliable and compact security solution to protect their vehicles from theft. This lock is perfect for riders who prioritize safety and want a lightweight, easy-to-carry anti-theft device with added alarm features to deter potential thieves.
@@ -50,10 +50,10 @@ The **YOHOOLYO Alarm Disc Lock** combines robust mechanical security with an int
 
 Additionally, the **waterproof construction** ensures that this lock performs reliably in rain or harsh weather, maintaining both the alarm's electronic components and the steel body’s integrity. The included **5ft reminder cable** serves as a practical safety feature to remind the rider to remove the lock before riding, preventing damage to the bike or lock. Overall, this lock offers a well-rounded, durable, and user-friendly security solution for motorcycle and scooter owners.
 
-## <a href="https://www.amazon.com/dp/B08C5J63RQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kryptonite Alarm Disc</a>
+## <a href="https://www.amazon.com/dp/B08C5J63RQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kryptonite Alarm Disc</a>
 
 
-<a href="https://www.amazon.com/dp/B08C5J63RQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kryptonite Alarm Disc, Heavy Duty Anti-Theft Motorcycle Lock with 120db Alarm, Weather-Resistant, Powersport Disc Break Lock" src="https://m.media-amazon.com/images/I/51aML-ZdAEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08C5J63RQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kryptonite Alarm Disc, Heavy Duty Anti-Theft Motorcycle Lock with 120db Alarm, Weather-Resistant, Powersport Disc Break Lock" src="https://m.media-amazon.com/images/I/51aML-ZdAEL._SL500_.jpg"/></a>
 
 
 The **Kryptonite Alarm Disc** is an ideal choice for motorcycle owners who prioritize security and peace of mind. This heavy-duty **anti-theft lock** is perfect for riders who frequently park in public or high-risk areas and want to protect their investment with a reliable and audible deterrent. Whether you own a sports bike, cruiser, or any powersport vehicle, this lock offers robust protection with the added advantage of an integrated alarm system.
@@ -75,10 +75,10 @@ The **Kryptonite Alarm Disc** combines physical security with advanced electroni
 
 Additionally, the lock’s compatibility with a wide range of powersport disc brakes makes it a versatile option for various motorcycle models. By investing in this lock, users gain confidence knowing their motorcycle is protected by a trusted brand known for durability and innovation. Overall, the Kryptonite Alarm Disc is an excellent security solution for riders seeking both convenience and robust protection.
 
-## <a href="https://www.amazon.com/dp/B0BZ7YTSJJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Alarm Disc Lock Set</a>
+## <a href="https://www.amazon.com/dp/B0BZ7YTSJJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Alarm Disc Lock Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0BZ7YTSJJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Alarm Disc Lock Set, Brake Lock, Anti-Theft Waterproof 110 dB 7mm Pin 5ft Reminder Cable for Motorcycles Bike Scooter Carry Pouch (1pcs Black)" src="https://m.media-amazon.com/images/I/41sLSu6GjpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BZ7YTSJJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Alarm Disc Lock Set, Brake Lock, Anti-Theft Waterproof 110 dB 7mm Pin 5ft Reminder Cable for Motorcycles Bike Scooter Carry Pouch (1pcs Black)" src="https://m.media-amazon.com/images/I/41sLSu6GjpL._SL500_.jpg"/></a>
 
 
 The **Alarm Disc Lock Set** is ideal for motorcycle, bike, and scooter owners who prioritize security and convenience. If you are looking to protect your vehicle from theft while on the go, this **anti-theft waterproof lock** with a loud alarm and reminder cable is designed to offer peace of mind and easy handling. Riders who want a reliable, portable locking solution will benefit greatly from this product.
@@ -101,10 +101,10 @@ The **Alarm Disc Lock Set** from **RUBY.Q** features a robust construction with 
 
 Additionally, the included **5ft reminder cable** is a thoughtful feature that helps prevent accidents by alerting you when the lock is still engaged before starting your vehicle. The lock's compact size and lightweight design, along with the handy carry pouch, make it easy to store and transport without hassle. Overall, this lock set combines security, convenience, and durability for motorcycle enthusiasts who want effective anti-theft protection.
 
-## <a href="https://www.amazon.com/dp/B08W1H4QXL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Motorcycle Alarm Disc Brake Lock</a>
+## <a href="https://www.amazon.com/dp/B08W1H4QXL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Motorcycle Alarm Disc Brake Lock</a>
 
 
-<a href="https://www.amazon.com/dp/B08W1H4QXL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Motorcycle Alarm Disc Brake Lock, Motorcycle Locks Anti-Theft Security Wheel Disc Lock Waterproof 110dB Alarm Sound with 5ft Reminder Cable Keys and Carry Pouch for Motorbike Bike Scooter" src="https://m.media-amazon.com/images/I/51SNnT+rrqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08W1H4QXL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Motorcycle Alarm Disc Brake Lock, Motorcycle Locks Anti-Theft Security Wheel Disc Lock Waterproof 110dB Alarm Sound with 5ft Reminder Cable Keys and Carry Pouch for Motorbike Bike Scooter" src="https://m.media-amazon.com/images/I/51SNnT+rrqL._SL500_.jpg"/></a>
 
 
 The **Motorcycle Alarm Disc Brake Lock** is ideal for motorcycle, bike, and scooter owners who prioritize security and peace of mind. If you want a reliable and easy-to-use anti-theft device that not only locks your wheel but also alerts you with a loud alarm, this product is perfect for you. It suits riders who frequently park in public or high-risk areas and need an effective deterrent against theft.
@@ -127,10 +127,10 @@ The **Motorcycle Alarm Disc Brake Lock** by **Mathtoxyz** offers robust protecti
 
 Additionally, the included **5ft reminder cable** acts as a safety measure, reminding riders to remove the lock before starting the vehicle, thus preventing potential damage. The package also includes a handy **carry pouch** and multiple keys, enhancing convenience and usability. Overall, this lock is an excellent investment for anyone seeking enhanced security with practical features tailored to everyday riders.
 
-## <a href="https://www.amazon.com/dp/B00YF051ZU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Urban Ur6 Hi-tech Alarm Disc Lock</a>
+## <a href="https://www.amazon.com/dp/B00YF051ZU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Urban Ur6 Hi-tech Alarm Disc Lock</a>
 
 
-<a href="https://www.amazon.com/dp/B00YF051ZU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="URBAN UR6 Hi-Tech Alarm Disc Lock 120db ON/OFF, Warning, Light Alert, A+ Sensitivity, Replaceable Alarm, Waterproof, Longlife Battery, Carried locked, Universal Motorcycle, Bike, Bicycle, Scooter" src="https://m.media-amazon.com/images/I/41eohxfzXGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00YF051ZU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="URBAN UR6 Hi-Tech Alarm Disc Lock 120db ON/OFF, Warning, Light Alert, A+ Sensitivity, Replaceable Alarm, Waterproof, Longlife Battery, Carried locked, Universal Motorcycle, Bike, Bicycle, Scooter" src="https://m.media-amazon.com/images/I/41eohxfzXGL._SL500_.jpg"/></a>
 
 
 The **URBAN UR6 Hi-Tech Alarm Disc Lock** is ideal for motorcycle, bike, bicycle, and scooter owners who prioritize security and peace of mind. If you are looking for a reliable, portable, and highly sensitive locking solution with an integrated alarm system, this product is designed to meet your needs. It is perfect for urban commuters and anyone who wants to protect their vehicle from theft with advanced technology.
@@ -156,10 +156,10 @@ The **URBAN UR6** combines robust physical security with advanced electronic fea
 
 Designed by **Artago Secure**, the lock is also **waterproof** and built to withstand harsh weather, extending its usability outdoors. Its **replaceable alarm** and **long-life battery** mean less maintenance over time, providing reliable protection without frequent interruptions. The lock’s compact size and **universal fit** make it suitable for a wide range of two-wheel vehicles, offering a versatile and effective security solution for urban riders.
 
-## <a href="https://www.amazon.com/dp/B0C2PWCZ5T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Motorcycle Lock Rechargeable</a>
+## <a href="https://www.amazon.com/dp/B0C2PWCZ5T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Motorcycle Lock Rechargeable</a>
 
 
-<a href="https://www.amazon.com/dp/B0C2PWCZ5T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Motorcycle Lock Rechargeable, 120dB Alarm Disc Brake Locks Anti-Theft Security Wheel Disc Lock Waterproof with 5ft Reminder Cable and Carry Pouch for Motorbike Bike Scooter" src="https://m.media-amazon.com/images/I/51Ea2M0ygiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C2PWCZ5T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Motorcycle Lock Rechargeable, 120dB Alarm Disc Brake Locks Anti-Theft Security Wheel Disc Lock Waterproof with 5ft Reminder Cable and Carry Pouch for Motorbike Bike Scooter" src="https://m.media-amazon.com/images/I/51Ea2M0ygiL._SL500_.jpg"/></a>
 
 
 The **Motorcycle Lock Rechargeable** with a **120dB Alarm** is ideal for motorbike, bike, and scooter owners who prioritize **security** and **peace of mind**. If you frequently park in public areas or places with a higher risk of theft, this **anti-theft security wheel disc lock** offers a reliable solution to protect your vehicle. It is especially suitable for riders looking for a durable, waterproof, and easy-to-use locking system with an added alarm feature for enhanced theft deterrence.
@@ -181,10 +181,10 @@ This **Motorcycle Lock** from **Mathtoxyz** combines a sturdy disc brake lock wi
 
 The inclusion of a **5ft reminder cable** is a thoughtful addition that helps prevent accidental riding with the lock still engaged, reducing the risk of damage to your motorcycle. Moreover, the lock's compact size and the provided **carry pouch** make it easy to store and transport, ensuring that security is always within reach. Overall, this product offers an excellent balance of robust security features and user convenience, making it a smart investment for anyone looking to protect their two-wheeler.
 
-## <a href="https://www.amazon.com/dp/B00YEUZ796?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Urban Ur10 Hi-tech Motorcycle Alarm Disc Lock</a>
+## <a href="https://www.amazon.com/dp/B00YEUZ796?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Urban Ur10 Hi-tech Motorcycle Alarm Disc Lock</a>
 
 
-<a href="https://www.amazon.com/dp/B00YEUZ796?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="URBAN UR10 Hi-Tech Motorcycle Alarm Disc Lock 120dB, Maximum Security SRA Approved, Warning A+ Sensitivity, Optional Activation, Hardened Steel, Tested Anti-Theft for Motorbike, 10mm Double Locking." src="https://m.media-amazon.com/images/I/41LAQAPlc4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00YEUZ796?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="URBAN UR10 Hi-Tech Motorcycle Alarm Disc Lock 120dB, Maximum Security SRA Approved, Warning A+ Sensitivity, Optional Activation, Hardened Steel, Tested Anti-Theft for Motorbike, 10mm Double Locking." src="https://m.media-amazon.com/images/I/41LAQAPlc4L._SL500_.jpg"/></a>
 
 
 The **URBAN UR10 Hi-Tech Motorcycle Alarm Disc Lock** is ideal for motorbike owners who prioritize **maximum security** and advanced theft prevention features. If you are looking for a reliable, **SRA approved** alarm lock with high sensitivity and durable construction, this product is designed to provide peace of mind and protect your valuable motorcycle from theft attempts.
@@ -209,10 +209,10 @@ The **URBAN UR10** combines a robust physical lock with a high-decibel alarm sys
 
 Additionally, the **warning A+ sensitivity** ensures the alarm responds to even the slightest attempts to move or interfere with the lock, increasing the chances of catching thieves off guard. The compact size and vibrant **black and yellow** design not only make the lock easy to carry and install but also highly visible, discouraging theft attempts at a glance. Overall, this alarm disc lock offers a comprehensive security solution for motorcycle owners seeking reliable and tested protection.
 
-## <a href="https://www.amazon.com/dp/B0DB1QF4S8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Motorcycle Disc Lock With Alarm</a>
+## <a href="https://www.amazon.com/dp/B0DB1QF4S8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Motorcycle Disc Lock With Alarm</a>
 
 
-<a href="https://www.amazon.com/dp/B0DB1QF4S8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Motorcycle Disc Lock with Alarm, Electric Scooter Lock Heavy Duty Anti-Theft with 120dB Alarm, 5FT Reminder Cable for Helmet Anti-Theft, Rechargeable (Black)" src="https://m.media-amazon.com/images/I/41cx3gsRGdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DB1QF4S8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Motorcycle Disc Lock with Alarm, Electric Scooter Lock Heavy Duty Anti-Theft with 120dB Alarm, 5FT Reminder Cable for Helmet Anti-Theft, Rechargeable (Black)" src="https://m.media-amazon.com/images/I/41cx3gsRGdL._SL500_.jpg"/></a>
 
 
 The **Motorcycle Disc Lock with Alarm** is perfect for those who own **motorcycles** or **electric scooters** and are seeking a reliable way to secure their vehicles. Ideal customers are **commuters**, **urban riders**, and anyone who frequently parks their vehicle in public spaces where theft might be a concern. This lock offers peace of mind through its robust features and ensures that your ride remains safe from theft.
@@ -233,10 +233,10 @@ The **Motorcycle Disc Lock with Alarm** comes with an impressive **120dB alarm**
 
 Additionally, the inclusion of a **5FT Reminder Cable** serves as a practical feature to alert users to remove the lock before riding, preventing potential damage to the vehicle. This lock is compact, with dimensions of **2.68 inches in height, 1.42 inches in width, and 3.7 inches in length**, ensuring it fits snugly on most brake discs. Its portability and ease of use make it a favored choice for those who prioritize both security and convenience in safeguarding their valuable rides.
 
-## <a href="https://www.amazon.com/dp/B0BJDSSF19?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Onvian Motorcycle Disc Brake Lock</a>
+## <a href="https://www.amazon.com/dp/B0BJDSSF19?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Onvian Motorcycle Disc Brake Lock</a>
 
 
-<a href="https://www.amazon.com/dp/B0BJDSSF19?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ONVIAN Motorcycle Disc Brake Lock with 120dB Alarm, Rechargeable Waterproof Motorcycle Locks Anti Theft for 7mm Motorcycle Brake Helmet Scooter Wheel Lock 5FT Reminder Cable (Black)" src="https://m.media-amazon.com/images/I/410aQKqpZ0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BJDSSF19?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ONVIAN Motorcycle Disc Brake Lock with 120dB Alarm, Rechargeable Waterproof Motorcycle Locks Anti Theft for 7mm Motorcycle Brake Helmet Scooter Wheel Lock 5FT Reminder Cable (Black)" src="https://m.media-amazon.com/images/I/410aQKqpZ0L._SL500_.jpg"/></a>
 
 
 The **ONVIAN Motorcycle Disc Brake Lock with 120dB Alarm** is ideal for motorcycle, scooter, and helmet owners who seek a reliable and compact anti-theft solution. If you want to protect your vehicle from theft with a device that offers both physical security and an audible alarm, this lock is perfect for you. Riders looking for a waterproof, rechargeable, and easy-to-use brake lock will find this product especially beneficial.
@@ -260,10 +260,10 @@ The **ONVIAN Motorcycle Disc Brake Lock** combines security and convenience by f
 
 Built with a **waterproof** exterior, this lock is well-suited for riders who frequently face varying weather conditions. The **rechargeable** battery system adds to its practicality, reducing ongoing costs and environmental impact from disposable batteries. Overall, the ONVIAN lock offers peace of mind by blending robust protection with user-friendly features tailored to safeguard your motorcycle, scooter, or helmet effectively.
 
-## <a href="https://www.amazon.com/dp/B0F45M7N99?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kryptonite Keeper Alarm Disc Lock</a>
+## <a href="https://www.amazon.com/dp/B0F45M7N99?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kryptonite Keeper Alarm Disc Lock</a>
 
 
-<a href="https://www.amazon.com/dp/B0F45M7N99?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kryptonite Keeper Alarm Disc Lock, Heavy Duty Anti-Theft Motorcycle Disc Break Lock Waterproof 100db Alarm, 5.5mm Pin Powersport Disc Break Lock for Motorbikes Scooters" src="https://m.media-amazon.com/images/I/41Nhn9iV6ML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F45M7N99?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kryptonite Keeper Alarm Disc Lock, Heavy Duty Anti-Theft Motorcycle Disc Break Lock Waterproof 100db Alarm, 5.5mm Pin Powersport Disc Break Lock for Motorbikes Scooters" src="https://m.media-amazon.com/images/I/41Nhn9iV6ML._SL500_.jpg"/></a>
 
 
 The **Kryptonite Keeper Alarm Disc Lock** is an excellent choice for motorcycle and scooter owners looking for enhanced **anti-theft protection**. This product is ideal for those who frequently park their vehicles in public spaces and want the assurance of a **heavy-duty security solution**. If you're a motorbike enthusiast who values both **security and convenience**, this disc lock is designed with you in mind.

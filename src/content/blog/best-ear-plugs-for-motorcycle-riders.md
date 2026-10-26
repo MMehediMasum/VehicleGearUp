@@ -23,10 +23,10 @@ They suit bikers who want comfort and safety on every ride. Using ear plugs like
 
 
 
-## <a href="https://www.amazon.com/dp/B096745ZKZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Earasers Noise Cancelling Earplugs</a>
+## <a href="https://www.amazon.com/dp/B096745ZKZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Earasers Noise Cancelling Earplugs</a>
 
 
-<a href="https://www.amazon.com/dp/B096745ZKZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EARasers Noise Cancelling Earplugs - Reusable Soft Silicone Noise Reduction Motorsports Standard Ear Plugs for Motorcycles, Bikers – Full Helmet – 19dB Peak Reduction (Large)" src="https://m.media-amazon.com/images/I/31qKJbHAeuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B096745ZKZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EARasers Noise Cancelling Earplugs - Reusable Soft Silicone Noise Reduction Motorsports Standard Ear Plugs for Motorcycles, Bikers – Full Helmet – 19dB Peak Reduction (Large)" src="https://m.media-amazon.com/images/I/31qKJbHAeuL._SL500_.jpg"/></a>
 
 
 The **EARasers Noise Cancelling Earplugs** are ideal for individuals who are frequently exposed to loud environments, such as **motorcycle riders**, **bikers**, and motorsports enthusiasts. If you wear a full helmet and require effective noise reduction to protect your hearing without compromising comfort, these earplugs offer an excellent solution. They are designed for users who want reusable, durable, and high-performance ear protection with a significant peak noise reduction.

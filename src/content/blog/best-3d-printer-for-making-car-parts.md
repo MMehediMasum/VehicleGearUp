@@ -22,10 +22,10 @@ These parts support smooth printer operation and enhance print quality. For exam
 
 
 
-## <a href="https://www.amazon.com/dp/B0CY23NDDG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nilight 2pcs Switch Power Socket</a>
+## <a href="https://www.amazon.com/dp/B0CY23NDDG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nilight 2pcs Switch Power Socket</a>
 
 
-<a href="https://www.amazon.com/dp/B0CY23NDDG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nilight 2Pcs Switch Power Socket 10A 250V AC Inlet Module On Off Switches Built-in Fuse Led Light 3 Pin Outlet for 3D Printers Computers Home Appliance" src="https://m.media-amazon.com/images/I/41vUayUjEeL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CY23NDDG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nilight 2Pcs Switch Power Socket 10A 250V AC Inlet Module On Off Switches Built-in Fuse Led Light 3 Pin Outlet for 3D Printers Computers Home Appliance" src="https://m.media-amazon.com/images/I/41vUayUjEeL._SL500_.jpg"/></a>
 
 
 The **Nilight 2Pcs Switch Power Socket 10A 250V AC Inlet Module** is ideal for users who need a reliable and convenient way to control power for their **3D printers, computers, and home appliances**. If you are someone looking for an easy-to-install power switch with built-in safety features, this product is designed to meet your needs perfectly. Whether you're a DIY enthusiast, a professional technician, or a homeowner seeking safer power management, this item offers an efficient solution.
@@ -48,10 +48,10 @@ The **Nilight Switch Power Socket** stands out with its compact design and integ
 
 Furthermore, the socket’s 10A 250V AC rating ensures it can handle most standard electronic devices without issues, making it a practical choice for everyday use. The high-quality construction from Nilight guarantees durability and long-lasting performance, while the easy on/off switch feature simplifies power control, reducing the need to unplug devices physically. Overall, this power socket module is an excellent blend of safety, convenience, and functionality for anyone needing reliable power management solutions.
 
-## <a href="https://www.amazon.com/dp/B0DP9PBPML?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mkbklljy Rocker Switch Power Socket Inlet Module Plug</a>
+## <a href="https://www.amazon.com/dp/B0DP9PBPML?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mkbklljy Rocker Switch Power Socket Inlet Module Plug</a>
 
 
-<a href="https://www.amazon.com/dp/B0DP9PBPML?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MKBKLLJY 2PCS Rocker Switch Power Socket Inlet Module Plug Male 10A 250V AC 3D Printer Arcade Power Switch Adapter Power Connector 3 Pin AC-14-F16A with 18AWG Wiring Fuse Sheath Screw Cable Ties" src="https://m.media-amazon.com/images/I/41X11qweQhL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DP9PBPML?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MKBKLLJY 2PCS Rocker Switch Power Socket Inlet Module Plug Male 10A 250V AC 3D Printer Arcade Power Switch Adapter Power Connector 3 Pin AC-14-F16A with 18AWG Wiring Fuse Sheath Screw Cable Ties" src="https://m.media-amazon.com/images/I/41X11qweQhL._SL500_.jpg"/></a>
 
 
 The **MKBKLLJY 2PCS Rocker Switch Power Socket Inlet Module** is ideal for hobbyists and professionals who require a reliable and durable power connection for their **3D printers**, arcade machines, or other electronic projects. If you are looking for a compact and efficient **power switch adapter** that supports up to **10A 250V AC** with easy installation, this item is designed to meet those needs.
@@ -74,10 +74,10 @@ The **MKBKLLJY Rocker Switch Power Socket Inlet Module** features a sturdy build
 
 Additionally, the product’s design focuses on ease of installation, with screw cable ties that allow users to secure the wiring efficiently. This makes it especially useful for setups in **3D printing** environments or arcade machines where space and reliability are critical. Overall, this power socket module combines safety, convenience, and performance, making it a practical choice for anyone needing a dependable power switch solution.
 
-## <a href="https://www.amazon.com/dp/B0F3HNFC16?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">3d Printer Parts Compatible With Neptune 3 4 Extruder Cables Assembly Kit</a>
+## <a href="https://www.amazon.com/dp/B0F3HNFC16?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">3d Printer Parts Compatible With Neptune 3 4 Extruder Cables Assembly Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0F3HNFC16?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="3D Printer Parts Compatible with Neptune 3 4 Extruder Cables Extruder Extenaion Cables Assembly Kit,Compatible with Neptune 4 Pro Max Plus 3D Printer Parts(for 3 Max)" src="https://m.media-amazon.com/images/I/416f6CptpKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F3HNFC16?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="3D Printer Parts Compatible with Neptune 3 4 Extruder Cables Extruder Extenaion Cables Assembly Kit,Compatible with Neptune 4 Pro Max Plus 3D Printer Parts(for 3 Max)" src="https://m.media-amazon.com/images/I/416f6CptpKL._SL500_.jpg"/></a>
 
 
 Ideal for **3D printing enthusiasts** and professionals using the **Neptune 3, Neptune 4 Pro, Max, or Plus 3D printers**, this **3D Printer Parts Compatible with Neptune 3 4 Extruder Cables Assembly Kit** is designed to ensure seamless connectivity and reliable performance. Those looking to maintain or upgrade their printer's extruder cables will find this kit perfectly suited for their needs, providing compatibility and ease of installation.
@@ -99,10 +99,10 @@ The **extruder cables assembly kit** is crafted to deliver reliable electrical c
 
 Additionally, the kit's manufacturer, **JJNLDYO**, is known for producing robust and dependable 3D printer components, giving users confidence in the longevity of their investment. By using this kit, users can expect improved printer uptime and reduced maintenance interruptions, ultimately enhancing the overall 3D printing experience.
 
-## <a href="https://www.amazon.com/dp/B092S16JLK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lysee 3d Printer Parts &amp; Accessories</a>
+## <a href="https://www.amazon.com/dp/B092S16JLK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lysee 3d Printer Parts &amp; Accessories</a>
 
 
-<a href="https://www.amazon.com/dp/B092S16JLK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Lysee 3D Printer Parts &amp; Accessories - 1 pcs 12V Bond Button Bistable Relay Module Car Modification Switch One Key Start and Stop Self-Locking" src="https://m.media-amazon.com/images/I/411f0jCptHL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B092S16JLK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Lysee 3D Printer Parts &amp; Accessories - 1 pcs 12V Bond Button Bistable Relay Module Car Modification Switch One Key Start and Stop Self-Locking" src="https://m.media-amazon.com/images/I/411f0jCptHL._SL500_.jpg"/></a>
 
 
 The **Lysee 3D Printer Parts & Accessories - 1 pcs 12V Bond Button Bistable Relay Module Car Modification Switch One Key Start and Stop Self-Locking** is ideal for hobbyists, DIY enthusiasts, and professionals who want to enhance their 3D printer or car modification projects with a reliable and efficient control switch. If you are looking for a compact, easy-to-install module that offers a simple one-key start and stop function with self-locking capability, this product is perfect for you.
@@ -125,10 +125,10 @@ The **Lysee 12V Bond Button Bistable Relay Module** stands out for its precise c
 
 Constructed by **Lysee**, a trusted manufacturer in the accessories market, this module combines durability with performance. Its compact size makes it adaptable for various modifications, while the simple wiring design supports quick integration into existing systems. Whether upgrading a 3D printer or adding a custom switch to your vehicle, this module delivers consistent results and improved user experience.
 
-## <a href="https://www.amazon.com/dp/B0FCM1HXDN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Qinlu-3d Printer Belt Htd2m Rubber Timing Belt</a>
+## <a href="https://www.amazon.com/dp/B0FCM1HXDN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Qinlu-3d Printer Belt Htd2m Rubber Timing Belt</a>
 
 
-<a href="https://www.amazon.com/dp/B0FCM1HXDN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Qinlu-3D Printer Belt HTD2M Rubber Timing Belt Length 118 120 126 130 136 142 150 158 160 162 168mm Width 4/5/6mm 2M Drive Belt Vacuum Cleaner Parts, 3D Printer Accessories(176mm-2M-(88 Teeth),4mm)" src="https://m.media-amazon.com/images/I/21RbYLd5eiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FCM1HXDN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Qinlu-3D Printer Belt HTD2M Rubber Timing Belt Length 118 120 126 130 136 142 150 158 160 162 168mm Width 4/5/6mm 2M Drive Belt Vacuum Cleaner Parts, 3D Printer Accessories(176mm-2M-(88 Teeth),4mm)" src="https://m.media-amazon.com/images/I/21RbYLd5eiL._SL500_.jpg"/></a>
 
 
 The **Qinlu-3D Printer Belt HTD2M Rubber Timing Belt** is ideal for hobbyists and professionals who require precise and reliable motion control in their **3D printers** or vacuum cleaner parts. If you are looking for a durable and versatile timing belt with various length and width options, this product is designed to meet your needs, ensuring smooth and accurate operation of your machinery.
@@ -151,10 +151,10 @@ The **Qinlu-3D Printer Belt HTD2M** features an advanced rubber construction tha
 
 Additionally, the belt comes in a variety of lengths and widths, allowing users to select the perfect fit for their specific machines. This versatility is beneficial for those who work with different models or custom builds. The lightweight yet durable design reduces wear on motor components and supports long-term reliability, making it a cost-effective choice for both casual users and professionals alike.
 
-## <a href="https://www.amazon.com/dp/B0FGTBDPW4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Buiedfza Ljpshop-timing Belt Htd-3m Rubber Timing Belt</a>
+## <a href="https://www.amazon.com/dp/B0FGTBDPW4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Buiedfza Ljpshop-timing Belt Htd-3m Rubber Timing Belt</a>
 
 
-<a href="https://www.amazon.com/dp/B0FGTBDPW4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BUIEDFZA LJPshop-Timing Belt HTD-3M Rubber Timing Belt Width 15mm Closed Loop Length 252 255 261 270 273 285 300 309 315 327 345mm HTD3M Synchronous Belt, for 3D Printer(300mm,1pc)" src="https://m.media-amazon.com/images/I/41ewzHRXmLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FGTBDPW4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BUIEDFZA LJPshop-Timing Belt HTD-3M Rubber Timing Belt Width 15mm Closed Loop Length 252 255 261 270 273 285 300 309 315 327 345mm HTD3M Synchronous Belt, for 3D Printer(300mm,1pc)" src="https://m.media-amazon.com/images/I/41ewzHRXmLL._SL500_.jpg"/></a>
 
 
 The **BUIEDFZA LJPshop-Timing Belt HTD-3M Rubber Timing Belt** is ideal for hobbyists and professionals who own **3D printers** and require a reliable, synchronous belt to ensure precise movement and timing. If you are looking to upgrade or replace your printer's timing belt to maintain accuracy and efficiency, this product is designed specifically to meet those needs.
@@ -176,10 +176,10 @@ The **BUIEDFZA LJPshop-Timing Belt HTD-3M** offers a robust and reliable solutio
 
 Additionally, the 15mm width provides enhanced stability during high-speed printing, reducing the chances of belt slippage or stretching over time. This results in improved print quality and less frequent maintenance or replacement. Whether you are a casual 3D printing enthusiast or a professional, investing in the **BUIEDFZA HTD-3M timing belt** can significantly contribute to smoother and more reliable printing operations.
 
-## <a href="https://www.amazon.com/dp/B0DLVKY42B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Foryon 2gt Timing Belt</a>
+## <a href="https://www.amazon.com/dp/B0DLVKY42B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Foryon 2gt Timing Belt</a>
 
 
-<a href="https://www.amazon.com/dp/B0DLVKY42B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="FORYON 2GT Belt Width 6/10/15mm GT2 Timing Belt Perimeter 302mm~650mm Closed Loop Rubber Timing Synchronous Belt 3D Printer Belt Parts(650mm,Width 15mm)" src="https://m.media-amazon.com/images/I/31RdPYu-m1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DLVKY42B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="FORYON 2GT Belt Width 6/10/15mm GT2 Timing Belt Perimeter 302mm~650mm Closed Loop Rubber Timing Synchronous Belt 3D Printer Belt Parts(650mm,Width 15mm)" src="https://m.media-amazon.com/images/I/31RdPYu-m1L._SL500_.jpg"/></a>
 
 
 The **FORYON 2GT Belt Width 15mm GT2 Timing Belt** is ideal for hobbyists and professionals who require reliable and precise motion control in their projects, particularly those working with **3D printers** or other machinery needing synchronized timing belts. If you are looking for a durable, high-quality belt that ensures smooth and accurate operation, this product is a perfect choice.
@@ -201,10 +201,10 @@ The **FORYON 2GT Timing Belt** features a closed loop design that guarantees con
 
 Additionally, the availability of different belt widths and perimeter lengths adds to the belt's adaptability across various devices and projects. The precision engineering behind the belt ensures smooth operation, minimizing the risk of slippage or backlash which is essential for maintaining accuracy in printing or mechanical applications. Overall, the FORYON timing belt offers a reliable and efficient solution for users seeking enhanced performance in their equipment.
 
-## <a href="https://www.amazon.com/dp/B0DLNK1WS2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Foryon 3d Printer Gt2 Timing Belt</a>
+## <a href="https://www.amazon.com/dp/B0DLNK1WS2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Foryon 3d Printer Gt2 Timing Belt</a>
 
 
-<a href="https://www.amazon.com/dp/B0DLNK1WS2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="FORYON 3D Printer GT2 Width 10mm Closed Loop Rubber 2GT Timing Belt Length 162 192 210 232 244 340 420 436 444 450 550 mm(2GT-420mm)" src="https://m.media-amazon.com/images/I/21QSvd1rULL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DLNK1WS2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="FORYON 3D Printer GT2 Width 10mm Closed Loop Rubber 2GT Timing Belt Length 162 192 210 232 244 340 420 436 444 450 550 mm(2GT-420mm)" src="https://m.media-amazon.com/images/I/21QSvd1rULL._SL500_.jpg"/></a>
 
 
 The **FORYON 3D Printer GT2 Timing Belt** is an ideal choice for **3D printing enthusiasts** and **professional makers** who demand precision and reliability in their projects. If you are someone who regularly works with 3D printers and needs a **durable and efficient timing belt**, this product is designed for you. Its various length options make it suitable for a range of **3D printer models**, ensuring that your machine operates smoothly and accurately.
@@ -224,10 +224,10 @@ The **FORYON 3D Printer GT2 Timing Belt** is constructed from **high-quality rub
 
 One of the standout features of this timing belt is its availability in a variety of **lengths** ranging from **162mm to 550mm**. This flexibility allows users to select the perfect length for their specific 3D printer model, ensuring a snug fit and optimal performance. Whether you're working on a small desktop 3D printer or a larger industrial machine, the **FORYON GT2 Timing Belt** can accommodate your needs, providing a seamless integration into your equipment and enhancing the overall printing quality.
 
-## <a href="https://www.amazon.com/dp/B0FJRDRRYS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">3d Printer Parts 6mm Closed Loop Rubber Timing Belt</a>
+## <a href="https://www.amazon.com/dp/B0FJRDRRYS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">3d Printer Parts 6mm Closed Loop Rubber Timing Belt</a>
 
 
-<a href="https://www.amazon.com/dp/B0FJRDRRYS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="1pcs 3D Printer Parts 6mm Closed Loop Rubber Timing Belt 162 164 166 168 170 172 174 176 178 180 182 184 186 188 190mm(2GT-176mm)" src="https://m.media-amazon.com/images/I/31cLRUr2VoL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FJRDRRYS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="1pcs 3D Printer Parts 6mm Closed Loop Rubber Timing Belt 162 164 166 168 170 172 174 176 178 180 182 184 186 188 190mm(2GT-176mm)" src="https://m.media-amazon.com/images/I/31cLRUr2VoL._SL500_.jpg"/></a>
 
 
 The **1pcs 3D Printer Parts 6mm Closed Loop Rubber Timing Belt** is ideal for hobbyists, engineers, and professionals who require precise and reliable motion control in their **3D printers** or CNC machines. If you are looking to upgrade or replace your printer’s timing belt for enhanced performance and durability, this product is an excellent choice. It is especially suited for users who need various length options to fit different printer models.
@@ -250,10 +250,10 @@ This **6mm closed loop rubber timing belt** offers precise and consistent perfor
 
 Constructed by **Jendfert**, a reputable manufacturer in the 3D printing accessories market, this timing belt provides reliable durability and resistance to wear over prolonged use. The lightweight design minimizes additional strain on stepper motors, contributing to quieter operation and extended motor lifespan. Overall, this timing belt is a practical upgrade for anyone seeking improved print precision and mechanical stability in their 3D printing projects.
 
-## <a href="https://www.amazon.com/dp/B09TNJ93D4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Replacement Knob Switch Run Choke For Craftsman Inverter Generator 2200i Or 2500i</a>
+## <a href="https://www.amazon.com/dp/B09TNJ93D4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Replacement Knob Switch Run Choke For Craftsman Inverter Generator 2200i Or 2500i</a>
 
 
-<a href="https://www.amazon.com/dp/B09TNJ93D4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Replacement Knob Switch Run Choke for Craftsman Inverter Generator 2200i or 2500i - 3D printed part - new, 3d printed part" src="https://m.media-amazon.com/images/I/31KOmxoeHRL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09TNJ93D4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Replacement Knob Switch Run Choke for Craftsman Inverter Generator 2200i or 2500i - 3D printed part - new, 3d printed part" src="https://m.media-amazon.com/images/I/31KOmxoeHRL._SL500_.jpg"/></a>
 
 
 The **Replacement Knob Switch Run Choke** is ideal for owners of **Craftsman Inverter Generators 2200i or 2500i** who need a reliable and affordable replacement part. If your original knob switch is worn out, broken, or missing, this **3D printed part** offers a quick and efficient solution to restore your generator’s functionality without the hassle of sourcing OEM parts. Perfect for DIY enthusiasts and professionals looking to maintain their equipment with ease.

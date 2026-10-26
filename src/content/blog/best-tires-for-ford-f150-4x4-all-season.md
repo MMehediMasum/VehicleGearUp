@@ -22,10 +22,10 @@ RockTrix wheels fit various Ford F150 models and Bronco Raptors, giving style an
 
 
 
-## <a href="https://www.amazon.com/dp/B0BG2S7T6C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Evoluxx Capricorn 4x4 Hp All-season Truck/suv Touring Radial Tire </a>
+## <a href="https://www.amazon.com/dp/B0BG2S7T6C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Evoluxx Capricorn 4x4 Hp All-season Truck/suv Touring Radial Tire </a>
 
 
-<a href="https://www.amazon.com/dp/B0BG2S7T6C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Evoluxx Capricorn 4X4 HP All-Season Truck/SUV Touring Radial Tire-255/70R17 255/70/17 255/70-17 112T Load Range SL 4-Ply BSW UTQG 480AA" src="https://m.media-amazon.com/images/I/41VamopxHGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BG2S7T6C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Evoluxx Capricorn 4X4 HP All-Season Truck/SUV Touring Radial Tire-255/70R17 255/70/17 255/70-17 112T Load Range SL 4-Ply BSW UTQG 480AA" src="https://m.media-amazon.com/images/I/41VamopxHGL._SL500_.jpg"/></a>
 
 
 The **Evoluxx Capricorn 4X4 HP All-Season Truck/SUV Touring Radial Tire** is ideal for drivers who own trucks or SUVs and require a reliable, durable tire capable of performing well in a variety of weather conditions. If you are looking for a tire that balances performance, longevity, and all-season traction, this product is a great choice. It is especially suited for those who value consistent handling and safety during both wet and dry conditions throughout the year.
@@ -48,10 +48,10 @@ The **Evoluxx Capricorn 4X4 HP** tire is designed with a robust radial construct
 
 Additionally, the tire features a **UTQG 480AA** rating, which highlights its excellent treadwear and traction capabilities. This means users can expect a longer lifespan and reliable performance, reducing the need for frequent replacements. The 4-ply construction combined with the **Load Range SL** ensures enhanced sidewall strength, which improves resistance to punctures and impacts. Overall, the Evoluxx Capricorn tire offers a balanced combination of durability, performance, and affordability for truck and SUV owners seeking dependable all-season traction.
 
-## <a href="https://www.amazon.com/dp/B08DCWFSN1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rocktrix Rt110 17 Inch Wheel</a>
+## <a href="https://www.amazon.com/dp/B08DCWFSN1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rocktrix Rt110 17 Inch Wheel</a>
 
 
-<a href="https://www.amazon.com/dp/B08DCWFSN1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RockTrix RT110 17 inch Wheel Compatible with 2009-2024 Ford F150 17x9 6x135 Wheels (-12mm Offset, 4.5in Backspace) 87.1mm Bore, Black Wheels, Also fits 2022+ Bronco Raptor Rims" src="https://m.media-amazon.com/images/I/51nRufRufUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08DCWFSN1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RockTrix RT110 17 inch Wheel Compatible with 2009-2024 Ford F150 17x9 6x135 Wheels (-12mm Offset, 4.5in Backspace) 87.1mm Bore, Black Wheels, Also fits 2022+ Bronco Raptor Rims" src="https://m.media-amazon.com/images/I/51nRufRufUL._SL500_.jpg"/></a>
 
 
 The **RockTrix RT110 17 inch Wheel** is ideal for Ford F150 owners from 2009 to 2024 and 2022+ Bronco Raptor drivers who seek durable, stylish, and performance-enhancing wheels. If you are looking to upgrade your vehicle's appearance while maintaining compatibility and reliability, this wheel is an excellent choice. Enthusiasts who want a perfect fit with a **17x9 size**, **6x135 bolt pattern**, and a **-12mm offset** will benefit from these wheels.
@@ -74,10 +74,10 @@ The **RockTrix RT110 wheel** stands out with its robust construction and precise
 
 In addition to its technical specifications, the wheel’s **matte black color** adds a modern and aggressive aesthetic to your vehicle, making it stand out on the road or off-road. Weighing just over 31 pounds, it strikes a balance between strength and weight, contributing to better fuel efficiency and improved driving dynamics. Overall, the RockTrix RT110 offers a combination of durability, performance, and style that meets the demands of truck enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B0CJ1W5JL9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rocktrix Rt114 18 Inch Wheel</a>
+## <a href="https://www.amazon.com/dp/B0CJ1W5JL9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rocktrix Rt114 18 Inch Wheel</a>
 
 
-<a href="https://www.amazon.com/dp/B0CJ1W5JL9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RockTrix RT114 18 inch Wheel Compatible with 2009-2024 Ford F150 18x9 6x135 Wheels (-12mm Offset, 4.5in Backspace) 87.1mm Bore, Black Wheels, Also fits 2022+ Bronco Raptor Rims" src="https://m.media-amazon.com/images/I/51Q8wg-X8oL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CJ1W5JL9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RockTrix RT114 18 inch Wheel Compatible with 2009-2024 Ford F150 18x9 6x135 Wheels (-12mm Offset, 4.5in Backspace) 87.1mm Bore, Black Wheels, Also fits 2022+ Bronco Raptor Rims" src="https://m.media-amazon.com/images/I/51Q8wg-X8oL._SL500_.jpg"/></a>
 
 
 The **RockTrix RT114 18 inch Wheel** is an excellent choice for truck owners who demand both style and performance. Ideal for those driving a **2009-2024 Ford F150** or a **2022+ Bronco Raptor**, this wheel is perfect for enthusiasts looking to upgrade their vehicle’s aesthetics without compromising on durability or fit. If you want a robust, matte black wheel that offers precise compatibility and a sleek design, this product is tailored for you.
@@ -99,10 +99,10 @@ The **RockTrix RT114 18 inch Wheel** combines a perfect balance of robust engine
 
 Additionally, the wheel’s compatibility with both the Ford F150 and Bronco Raptor models means that it offers versatility for truck owners who want a reliable upgrade without worrying about fitment issues. With a sturdy weight of 39 pounds, these wheels promise enhanced stability and durability, especially under rugged conditions. Overall, the RockTrix RT114 is a high-quality option that delivers both functional benefits and a bold aesthetic upgrade for your vehicle.
 
-## <a href="https://www.amazon.com/dp/B0DT2JPMXM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rocktrix Rt116 18 Inch Wheel</a>
+## <a href="https://www.amazon.com/dp/B0DT2JPMXM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rocktrix Rt116 18 Inch Wheel</a>
 
 
-<a href="https://www.amazon.com/dp/B0DT2JPMXM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RockTrix RT116 18 inch Wheel Compatible with 2009-2024 Ford F150, 18x9 6x135 Wheels (-12mm Offset, 4.5in Backspace) 87.1mm Bore, Black Wheels, Also fits 2022+ Bronco Raptor Rims" src="https://m.media-amazon.com/images/I/516MZwwEsFL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DT2JPMXM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RockTrix RT116 18 inch Wheel Compatible with 2009-2024 Ford F150, 18x9 6x135 Wheels (-12mm Offset, 4.5in Backspace) 87.1mm Bore, Black Wheels, Also fits 2022+ Bronco Raptor Rims" src="https://m.media-amazon.com/images/I/516MZwwEsFL._SL500_.jpg"/></a>
 
 
 The **RockTrix RT116 18 inch Wheel** is ideal for truck owners who drive a **2009-2024 Ford F150** or a **2022+ Bronco Raptor** and are looking to upgrade their vehicle's style and performance. This wheel is perfect for those who want a durable, stylish, and compatible wheel that can handle both daily driving and off-road adventures with ease. If you value a combination of rugged aesthetics and reliable engineering, this wheel is an excellent choice.
@@ -126,10 +126,10 @@ The **RockTrix RT116 18 inch Wheel** boasts a robust design tailored specificall
 
 Additionally, the **4.5-inch backspace** provides ample room for larger tires, making it a fantastic option for off-road enthusiasts who want to enhance their vehicle’s capability without compromising style. Manufactured by **RockTrix**, known for their quality automotive accessories, this wheel promises durability and long-term reliability. Whether you’re upgrading your truck’s appearance or seeking performance improvements, the RT116 wheel delivers a perfect combination of function and form.
 
-## <a href="https://www.amazon.com/dp/B0BHYQCHK5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Atlas Paraller 4x4 Hp All-season Truck/suv Performance Radial Tire</a>
+## <a href="https://www.amazon.com/dp/B0BHYQCHK5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Atlas Paraller 4x4 Hp All-season Truck/suv Performance Radial Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B0BHYQCHK5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Atlas Paraller 4x4 HP All-Season Truck/SUV Performance Radial Tire-235/70R17 235/70/17 235/70-17 109T Load Range XL 4-Ply BSW Black Side Wall" src="https://m.media-amazon.com/images/I/4129PT5-f-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BHYQCHK5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Atlas Paraller 4x4 HP All-Season Truck/SUV Performance Radial Tire-235/70R17 235/70/17 235/70-17 109T Load Range XL 4-Ply BSW Black Side Wall" src="https://m.media-amazon.com/images/I/4129PT5-f-L._SL500_.jpg"/></a>
 
 
 The **Atlas Paraller 4x4 HP All-Season Truck/SUV Performance Radial Tire** is ideal for truck and SUV owners who demand reliable, year-round performance. If you are looking for a durable tire that can handle various road conditions while providing a smooth ride and strong traction, this tire is an excellent choice for you. It suits drivers who prioritize safety, longevity, and versatility in their vehicle tires.
@@ -152,10 +152,10 @@ The **Atlas Paraller 4x4 HP** tire features a robust design with **4-ply radial 
 
 Additionally, the tire's **Black Side Wall (BSW)** adds a sleek aesthetic to your vehicle while protecting the sidewalls from curb damage. The balanced construction helps reduce road noise and improve ride comfort, giving users a smoother driving experience. Overall, this tire combines performance, durability, and versatility, making it an excellent investment for drivers who need dependable traction and load capacity without compromising comfort.
 
-## <a href="https://www.amazon.com/dp/B0B2VHTN9R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rocktrix Rt107 20 Inch Wheel</a>
+## <a href="https://www.amazon.com/dp/B0B2VHTN9R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rocktrix Rt107 20 Inch Wheel</a>
 
 
-<a href="https://www.amazon.com/dp/B0B2VHTN9R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RockTrix RT107 20 inch Wheel Compatible with 2009-2024 Ford F150 20x9 6x135 Wheels (-12mm Offset, 4.5in Backspace) 87.1mm Bore, Black Wheels, Also fits 2022+ Bronco Raptor Rims" src="https://m.media-amazon.com/images/I/51rCZeC0C5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B2VHTN9R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RockTrix RT107 20 inch Wheel Compatible with 2009-2024 Ford F150 20x9 6x135 Wheels (-12mm Offset, 4.5in Backspace) 87.1mm Bore, Black Wheels, Also fits 2022+ Bronco Raptor Rims" src="https://m.media-amazon.com/images/I/51rCZeC0C5L._SL500_.jpg"/></a>
 
 
 The **RockTrix RT107 20 inch Wheel** is ideal for truck owners who want to upgrade their vehicle’s appearance and performance, specifically those driving a **2009-2024 Ford F150** or a **2022+ Bronco Raptor**. If you are looking for durable, stylish, and precisely engineered wheels that fit perfectly with your truck’s specifications, this product is designed for you. Enthusiasts who prioritize both aesthetics and functionality will find this wheel a perfect match for their rugged, high-performance vehicles.
@@ -178,10 +178,10 @@ The **RockTrix RT107 wheel** stands out due to its precise engineering tailored 
 
 Beyond functionality, the **matte black finish** adds a bold, aggressive aesthetic that complements the rugged design of trucks while resisting scratches and corrosion. This wheel’s weight of **36 pounds** strikes a balance between durability and performance, providing robustness for off-road adventures or daily driving without compromising too much on fuel efficiency or handling. Overall, the RockTrix RT107 wheel is a compelling choice for truck enthusiasts seeking a dependable, visually appealing upgrade that enhances both the look and capability of their vehicle.
 
-## <a href="https://www.amazon.com/dp/B0CJ1YCV3P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rocktrix Rt112 20 Inch Wheel</a>
+## <a href="https://www.amazon.com/dp/B0CJ1YCV3P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rocktrix Rt112 20 Inch Wheel</a>
 
 
-<a href="https://www.amazon.com/dp/B0CJ1YCV3P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RockTrix RT112 20 inch Wheel Compatible with 2009-2024 Ford F150 18x9 6x135 Wheels (-12mm Offset, 4.5in Backspace) 87.1mm Bore, Black Wheels, Also fits 2022+ Bronco Raptor Rims" src="https://m.media-amazon.com/images/I/51Z87Z0OadL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CJ1YCV3P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RockTrix RT112 20 inch Wheel Compatible with 2009-2024 Ford F150 18x9 6x135 Wheels (-12mm Offset, 4.5in Backspace) 87.1mm Bore, Black Wheels, Also fits 2022+ Bronco Raptor Rims" src="https://m.media-amazon.com/images/I/51Z87Z0OadL._SL500_.jpg"/></a>
 
 
 The **RockTrix RT112 20 inch Wheel** is ideal for truck owners who want to upgrade their **2009-2024 Ford F150** or **2022+ Bronco Raptor** with stylish, durable, and high-performance wheels. This wheel is perfect for enthusiasts looking to enhance both the aesthetic appeal and driving performance of their vehicle with a reliable, matte black finish wheel that fits a wide range of models.
@@ -205,10 +205,10 @@ The **RockTrix RT112** wheel stands out for its robust design tailored to fit po
 
 Beyond performance, the wheel’s **matte black finish** adds a modern and aggressive look, complementing the rugged aesthetics of the Ford F150 and Bronco Raptor. Its durable construction, with a weight of **41.5 pounds**, strikes a balance between strength and endurance, making it a reliable choice for drivers who demand longevity from their vehicle upgrades. Overall, the RockTrix RT112 combines functionality, compatibility, and style, making it an excellent investment for truck enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B0CGTGCS6H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rocktrix Rt117 17 Inch Wheel</a>
+## <a href="https://www.amazon.com/dp/B0CGTGCS6H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rocktrix Rt117 17 Inch Wheel</a>
 
 
-<a href="https://www.amazon.com/dp/B0CGTGCS6H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RockTrix RT117 17 inch Wheel Compatible with 2009-2024 Ford F150, 17x9 6x135 Wheels (-12mm Offset, 4.5in Backspace) 87.1mm Bore, Gunmetal Polished Wheels, Also fits 2022+ Bronco Raptor Rims" src="https://m.media-amazon.com/images/I/510tXnXyYCL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CGTGCS6H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RockTrix RT117 17 inch Wheel Compatible with 2009-2024 Ford F150, 17x9 6x135 Wheels (-12mm Offset, 4.5in Backspace) 87.1mm Bore, Gunmetal Polished Wheels, Also fits 2022+ Bronco Raptor Rims" src="https://m.media-amazon.com/images/I/510tXnXyYCL._SL500_.jpg"/></a>
 
 
 The **RockTrix RT117 17 inch Wheel** is ideal for owners of the **2009-2024 Ford F150** and **2022+ Bronco Raptor** who are looking to enhance their vehicle's appearance and performance with durable, stylish wheels. This product is perfect for truck enthusiasts seeking a balance between ruggedness and aesthetic appeal, offering a precise fit with a **17x9 size** and **6x135 bolt pattern**. If you want wheels that combine function with a sleek **machined gunmetal finish**, the RockTrix RT117 is a great choice.
@@ -231,10 +231,10 @@ The **RockTrix RT117** features a **17x9 inch size** with a **6x135 bolt pattern
 
 Constructed from high-grade materials, the wheels boast a **machined gunmetal finish** that not only enhances durability but also adds a sleek, polished appearance to your vehicle. The relatively light weight of 27.2 pounds per wheel helps reduce unsprung weight, which can contribute to improved acceleration, braking, and fuel efficiency. Overall, these wheels provide a blend of aesthetics, performance, and quality that truck owners will appreciate.
 
-## <a href="https://www.amazon.com/dp/B0CJ21MZHJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rocktrix Rt111 20 Inch Wheel</a>
+## <a href="https://www.amazon.com/dp/B0CJ21MZHJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rocktrix Rt111 20 Inch Wheel</a>
 
 
-<a href="https://www.amazon.com/dp/B0CJ21MZHJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RockTrix RT111 20 inch Wheel Compatible with 2009-2024 Ford F150 20x9 6x135 Wheels (-12mm Offset, 4.5in Backspace) 87.1mm Bore, Gunmetal Wheels, Also fits 2022+ Bronco Raptor Rims" src="https://m.media-amazon.com/images/I/51nlxCRBKzL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CJ21MZHJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RockTrix RT111 20 inch Wheel Compatible with 2009-2024 Ford F150 20x9 6x135 Wheels (-12mm Offset, 4.5in Backspace) 87.1mm Bore, Gunmetal Wheels, Also fits 2022+ Bronco Raptor Rims" src="https://m.media-amazon.com/images/I/51nlxCRBKzL._SL500_.jpg"/></a>
 
 
 The **RockTrix RT111 20 inch Wheel** is an ideal purchase for **Ford F150** and **Bronco Raptor** enthusiasts looking to upgrade their vehicle's aesthetic and performance. Designed specifically for models ranging from **2009 to 2024**, these wheels are perfect for those who prioritize both style and functionality. Car enthusiasts and off-road adventurers who seek reliability and a bold look will find these wheels particularly appealing.
@@ -255,10 +255,10 @@ The **RockTrix RT111** wheels feature a **matte gunmetal** finish that not only 
 
 With an **87.1mm bore** and a **4.5-inch backspace**, the **RT111** ensures a **secure fit** and **enhanced handling**, offering drivers a smoother and more controlled driving experience. This is particularly advantageous for those who often venture off-road, as the wheels provide stability and support across various terrains. Additionally, the **-12mm offset** enhances the vehicle's stance, giving it a more aggressive look without compromising performance.
 
-## <a href="https://www.amazon.com/dp/B0CT5C3G6M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Fullway Premium Truck Suv Tires </a>
+## <a href="https://www.amazon.com/dp/B0CT5C3G6M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Fullway Premium Truck Suv Tires </a>
 
 
-<a href="https://www.amazon.com/dp/B0CT5C3G6M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fullway Premium Truck SUV Tires 305/40R22 4-Ply All Season Radial Tire High Performance 305/40/22 114V Load Range XL HS266 with Black Side Wall 420AA" src="https://m.media-amazon.com/images/I/61qPHfRoNvL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CT5C3G6M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fullway Premium Truck SUV Tires 305/40R22 4-Ply All Season Radial Tire High Performance 305/40/22 114V Load Range XL HS266 with Black Side Wall 420AA" src="https://m.media-amazon.com/images/I/61qPHfRoNvL._SL500_.jpg"/></a>
 
 
 The **Fullway Premium Truck SUV Tires 305/40R22** are ideal for truck and SUV owners who demand both durability and high performance from their tires. These tires are perfect for drivers who seek reliable traction in all weather conditions while maintaining a stylish look with the **black sidewall** design. If you prioritize safety, load capacity, and year-round usability, this tire is an excellent choice for your vehicle.

@@ -22,10 +22,10 @@ A good scan tool saves time and money by spotting issues before they get worse. 
 
 
 
-## <a href="https://www.amazon.com/dp/B0B452YDWT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ancel Heavy Duty Truck Scanner Hd601</a>
+## <a href="https://www.amazon.com/dp/B0B452YDWT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ancel Heavy Duty Truck Scanner Hd601</a>
 
 
-<a href="https://www.amazon.com/dp/B0B452YDWT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ANCEL Heavy Duty Truck Scanner HD601 All System Diesel Diagnostic Scan Tool fits for Cummins, Detroit, Freightliner, International, Paccar, Check Engine for Truck &amp; Car 2 in 1 Code Reader" src="https://m.media-amazon.com/images/I/51ogjpGgJ0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B452YDWT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ANCEL Heavy Duty Truck Scanner HD601 All System Diesel Diagnostic Scan Tool fits for Cummins, Detroit, Freightliner, International, Paccar, Check Engine for Truck &amp; Car 2 in 1 Code Reader" src="https://m.media-amazon.com/images/I/51ogjpGgJ0L._SL500_.jpg"/></a>
 
 
 The **ANCEL Heavy Duty Truck Scanner HD601** is ideal for professional mechanics and truck owners who need a reliable and versatile diagnostic tool. This device is perfect for those working with diesel engines from brands like **Cummins, Detroit, Freightliner, International,** and **Paccar**. If you require a comprehensive 2-in-1 code reader that can handle both trucks and cars, this scanner offers an efficient solution for identifying and troubleshooting engine issues.
@@ -48,10 +48,10 @@ The **ANCEL HD601** scanner combines advanced diagnostic capabilities with user-
 
 Additionally, its compact size and sturdy construction make it highly portable and durable, suitable for both workshop and field use. Users benefit from detailed diagnostic information that helps in accurate repairs and maintenance, improving vehicle performance and reliability. Overall, the **ANCEL Heavy Duty Truck Scanner HD601** offers professional-grade features that meet the demanding needs of diesel engine diagnostics in a versatile and efficient package.
 
-## <a href="https://www.amazon.com/dp/B09R3L5BP2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ancel Hd3400 Pro Heavy Duty Truck Scanner</a>
+## <a href="https://www.amazon.com/dp/B09R3L5BP2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ancel Hd3400 Pro Heavy Duty Truck Scanner</a>
 
 
-<a href="https://www.amazon.com/dp/B09R3L5BP2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ANCEL HD3400 Pro Heavy Duty Truck Scanner | DPF Regeneration, Lifetime Free Update, Compatible with Commercial Vehicles with Cummins, Paccar, Caterpillar, Detroit, Volvo, Mack, International Engines" src="https://m.media-amazon.com/images/I/51a1FIqsNeL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09R3L5BP2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ANCEL HD3400 Pro Heavy Duty Truck Scanner | DPF Regeneration, Lifetime Free Update, Compatible with Commercial Vehicles with Cummins, Paccar, Caterpillar, Detroit, Volvo, Mack, International Engines" src="https://m.media-amazon.com/images/I/51a1FIqsNeL._SL500_.jpg"/></a>
 
 
 The **ANCEL HD3400 Pro Heavy Duty Truck Scanner** is ideal for professional mechanics, fleet operators, and commercial vehicle owners who need a reliable diagnostic tool compatible with a wide range of heavy-duty engines such as **Cummins, Paccar, Caterpillar, Detroit, Volvo, Mack,** and **International**. If you are looking for an advanced scanner that supports **DPF regeneration** and offers **lifetime free updates**, this device is designed to streamline your maintenance and repair processes efficiently.
@@ -73,10 +73,10 @@ The **ANCEL HD3400 Pro** stands out with its broad compatibility across leading 
 
 Another significant advantage is the **lifetime free updates**, which keep the scanner current with the latest diagnostic protocols and software improvements. This feature extends the scanner's usability and protects your investment over time. Additionally, its user-friendly design simplifies complex diagnostics, enabling quicker problem identification and resolution for heavy-duty trucks, ultimately enhancing fleet uptime and operational efficiency.
 
-## <a href="https://www.amazon.com/dp/B0F23LBRW6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Kzyee Kc601 4-in-1 Heavy Duty Truck Scanner</a>
+## <a href="https://www.amazon.com/dp/B0F23LBRW6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Kzyee Kc601 4-in-1 Heavy Duty Truck Scanner</a>
 
 
-<a href="https://www.amazon.com/dp/B0F23LBRW6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="KZYEE KC601 4-in-1 Heavy Duty Truck Scanner – Full-System Diesel Code Reader for Cummins, CAT, Freightliner &amp; More – ECU Info, Fault Code Read &amp; Clear, Live Data, Free Lifetime Updates &amp; Bag" src="https://m.media-amazon.com/images/I/512JwbxEEJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F23LBRW6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="KZYEE KC601 4-in-1 Heavy Duty Truck Scanner – Full-System Diesel Code Reader for Cummins, CAT, Freightliner &amp; More – ECU Info, Fault Code Read &amp; Clear, Live Data, Free Lifetime Updates &amp; Bag" src="https://m.media-amazon.com/images/I/512JwbxEEJL._SL500_.jpg"/></a>
 
 
 The **KZYEE KC601 4-in-1 Heavy Duty Truck Scanner** is ideal for professional mechanics, fleet managers, and truck owners who need a reliable and comprehensive diagnostic tool for their diesel vehicles. If you work with brands like **Cummins, CAT, Freightliner**, or other heavy-duty trucks, this scanner offers a powerful solution for maintaining and troubleshooting engine issues efficiently. It is perfect for those who want to save time and money by performing in-depth diagnostics without visiting a service center.
@@ -101,10 +101,10 @@ The **KZYEE KC601** scanner stands out with its ability to provide comprehensive
 
 Additionally, the scanner offers the benefit of free lifetime updates, ensuring that it stays compatible with the latest models and diagnostic protocols. This feature provides long-term value and peace of mind for users who depend on accurate and up-to-date information. The included carrying bag enhances portability, making it easy to transport the scanner between different trucks or job sites. Overall, the **KZYEE KC601 4-in-1 Heavy Duty Truck Scanner** is a robust and versatile tool that supports efficient diagnostics and maintenance for heavy-duty diesel trucks.
 
-## <a href="https://www.amazon.com/dp/B0DBH27CQS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ancel Hd430 Heavy Duty Truck Scanner</a>
+## <a href="https://www.amazon.com/dp/B0DBH27CQS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ancel Hd430 Heavy Duty Truck Scanner</a>
 
 
-<a href="https://www.amazon.com/dp/B0DBH27CQS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ANCEL HD430 Heavy Duty Truck Scanner, DPF Reset &amp; Forced Regeneration for Cummins &amp; Caterpillar Engine, Full System HDOBD Diesel Scanner OBD2 Diagnostic Scan Tool Code Reader for Diesel Trucks &amp; Cars" src="https://m.media-amazon.com/images/I/51kWXb1v6EL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DBH27CQS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ANCEL HD430 Heavy Duty Truck Scanner, DPF Reset &amp; Forced Regeneration for Cummins &amp; Caterpillar Engine, Full System HDOBD Diesel Scanner OBD2 Diagnostic Scan Tool Code Reader for Diesel Trucks &amp; Cars" src="https://m.media-amazon.com/images/I/51kWXb1v6EL._SL500_.jpg"/></a>
 
 
 The **ANCEL HD430 Heavy Duty Truck Scanner** is an essential tool for professionals working with **heavy-duty diesel trucks** and **cars**, particularly those equipped with **Cummins** and **Caterpillar engines**. If you're a **diesel technician**, **fleet manager**, or a **truck enthusiast** looking to maintain and diagnose your vehicles efficiently, this **full system HDOBD diesel scanner** is designed for you. It offers advanced diagnostic capabilities, making it ideal for those who need reliable and comprehensive **engine analysis**.
@@ -125,10 +125,10 @@ The **ANCEL HD430** boasts an impressive range of features that cater to the nee
 
 Additionally, the scanner's ability to provide **full system diagnostics** ensures that users can quickly identify and address issues across the vehicle. This comprehensive approach not only saves time but also improves the accuracy of diagnostics, leading to faster repairs and reduced labor costs. The **compatibility with Cummins and Caterpillar engines** further enhances its utility, making it a versatile tool for various heavy-duty applications.
 
-## <a href="https://www.amazon.com/dp/B0CQ4V8X9L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ancel Hd100 Heavy Duty Truck Scanner</a>
+## <a href="https://www.amazon.com/dp/B0CQ4V8X9L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ancel Hd100 Heavy Duty Truck Scanner</a>
 
 
-<a href="https://www.amazon.com/dp/B0CQ4V8X9L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ANCEL HD100 Heavy Duty Truck Scanner with DPF Reset &amp; Forced Regen (Cummins &amp; CAT Only), Full System Diesel Diagnostics, HDOBD &amp; OBD2 Code Reader for Semi Trucks &amp; Buses" src="https://m.media-amazon.com/images/I/51n-X-r8E3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CQ4V8X9L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ANCEL HD100 Heavy Duty Truck Scanner with DPF Reset &amp; Forced Regen (Cummins &amp; CAT Only), Full System Diesel Diagnostics, HDOBD &amp; OBD2 Code Reader for Semi Trucks &amp; Buses" src="https://m.media-amazon.com/images/I/51n-X-r8E3L._SL500_.jpg"/></a>
 
 
 The **ANCEL HD100 Heavy Duty Truck Scanner** is ideal for professional mechanics, fleet operators, and truck enthusiasts who require an advanced diagnostic tool specifically designed for heavy-duty diesel engines. This device is perfect for those who own or service **semi trucks** and **buses**, especially models equipped with **Cummins** and **CAT engines**, offering comprehensive diagnostic capabilities including DPF reset and forced regeneration.
@@ -151,10 +151,10 @@ The **ANCEL HD100** delivers robust features that cater specifically to the heav
 
 Designed with both functionality and convenience in mind, the scanner’s compatibility with **HDOBD and OBD2** protocols means it can be used across a wide range of heavy-duty vehicles, making it a versatile tool for workshops and fleet maintenance. Its compact size and intuitive design allow for easy handling in busy garage environments, providing mechanics with quick access to critical diagnostic information and enabling faster, more accurate repairs.
 
-## <a href="https://www.amazon.com/dp/B0D7M4Q46L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Foxwell Hd500 Heavy Duty Truck Scanner</a>
+## <a href="https://www.amazon.com/dp/B0D7M4Q46L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Foxwell Hd500 Heavy Duty Truck Scanner</a>
 
 
-<a href="https://www.amazon.com/dp/B0D7M4Q46L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="FOXWELL HD500 Heavy Duty Truck Scanner with DPF Regen/Injector Cutoff/Limit Setting, Full System Diesel Diagnostic Scan Tool for Cummins, Detroit, Caterpillar, Paccar, Hino &amp; More Pickup Semi Trucks" src="https://m.media-amazon.com/images/I/51JlgbcFytL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D7M4Q46L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="FOXWELL HD500 Heavy Duty Truck Scanner with DPF Regen/Injector Cutoff/Limit Setting, Full System Diesel Diagnostic Scan Tool for Cummins, Detroit, Caterpillar, Paccar, Hino &amp; More Pickup Semi Trucks" src="https://m.media-amazon.com/images/I/51JlgbcFytL._SL500_.jpg"/></a>
 
 
 The **FOXWELL HD500 Heavy Duty Truck Scanner** is ideal for professional diesel mechanics, fleet operators, and truck owners who require a reliable and comprehensive diagnostic tool for heavy-duty pickup and semi trucks. If you work with brands like **Cummins, Detroit, Caterpillar, Paccar, and Hino**, this scanner provides advanced functions tailored to keep your vehicles running efficiently. Its robust features make it perfect for those needing full system diagnostics and specialized functions such as DPF regeneration and injector cutoff.
@@ -177,10 +177,10 @@ The **FOXWELL HD500 Heavy Duty Truck Scanner** offers extensive diagnostic capab
 
 Designed with durability and ease of use in mind, the scanner’s lightweight and ergonomic design make it convenient for mechanics on the go. Its compatibility with multiple leading truck brands ensures versatility, while detailed readouts provide actionable insights, enabling faster repairs and better fleet management. Overall, the FOXWELL HD500 is a valuable investment for anyone serious about heavy-duty truck maintenance and diagnostics.
 
-## <a href="https://www.amazon.com/dp/B0FFYF6D2H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Cummins Inline 7 Data Link Adapter</a>
+## <a href="https://www.amazon.com/dp/B0FFYF6D2H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Cummins Inline 7 Data Link Adapter</a>
 
 
-<a href="https://www.amazon.com/dp/B0FFYF6D2H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="for Cummins Inline 7 Data Link Adapter Truck Diagnostic Tool with Insite 8.7 Software" src="https://m.media-amazon.com/images/I/412TjhIazLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FFYF6D2H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="for Cummins Inline 7 Data Link Adapter Truck Diagnostic Tool with Insite 8.7 Software" src="https://m.media-amazon.com/images/I/412TjhIazLL._SL500_.jpg"/></a>
 
 
 The **Cummins Inline 7 Data Link Adapter Truck Diagnostic Tool with Insite 8.7 Software** is ideal for professional mechanics, fleet operators, and truck owners who require advanced diagnostic capabilities for their Cummins engines. If you need precise engine data, efficient troubleshooting, and reliable software integration, this tool is designed to meet your needs with ease and accuracy.
@@ -201,10 +201,10 @@ The **Xigugo** branded **INLINE 7** adapter acts as a crucial interface between 
 
 Moreover, the tool’s robust construction ensures it withstands the rigors of the workshop or roadside use, making it a dependable choice for professionals. By providing accurate and timely engine data, this diagnostic adapter not only saves time but also helps reduce repair costs by pinpointing problems early. Overall, it is a smart investment for anyone serious about maintaining the health and efficiency of their Cummins-powered trucks.
 
-## <a href="https://www.amazon.com/dp/B0DPH5KRBX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ancel Heavy Duty Truck Scanner Hd3300 Plus+</a>
+## <a href="https://www.amazon.com/dp/B0DPH5KRBX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ancel Heavy Duty Truck Scanner Hd3300 Plus+</a>
 
 
-<a href="https://www.amazon.com/dp/B0DPH5KRBX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ANCEL Heavy Duty Truck Scanner HD3300 Plus+, DPF Reset/Force Regen, Full System Truck Scanner for Detroit, Cummins, Caterpillar, Paccar, Volvo Engine &amp; Commercial Trucks, Lifetime Free Update" src="https://m.media-amazon.com/images/I/51AtBOZSnrL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DPH5KRBX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ANCEL Heavy Duty Truck Scanner HD3300 Plus+, DPF Reset/Force Regen, Full System Truck Scanner for Detroit, Cummins, Caterpillar, Paccar, Volvo Engine &amp; Commercial Trucks, Lifetime Free Update" src="https://m.media-amazon.com/images/I/51AtBOZSnrL._SL500_.jpg"/></a>
 
 
 The **ANCEL Heavy Duty Truck Scanner HD3300 Plus+** is ideal for professional mechanics, truck fleet operators, and serious DIY enthusiasts who work with heavy-duty trucks from brands like **Detroit, Cummins, Caterpillar, Paccar, and Volvo**. This tool is perfect for anyone seeking a reliable, full-system diagnostic scanner that offers advanced features such as **DPF Reset and Force Regen** capabilities to maintain engine health and improve truck performance.
@@ -226,10 +226,10 @@ The **ANCEL HD3300 Plus+** scanner stands out with its ability to perform full s
 
 Moreover, the scanner’s **lifetime free update** policy ensures that users always have access to the latest software enhancements and new truck models without additional costs. This makes the ANCEL HD3300 Plus+ a future-proof investment for any heavy-duty truck professional looking to maximize efficiency and accuracy in diagnostics.
 
-## <a href="https://www.amazon.com/dp/B0BZ82WQ4Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ancel X7hd Heavy Duty Truck Scanner</a>
+## <a href="https://www.amazon.com/dp/B0BZ82WQ4Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ancel X7hd Heavy Duty Truck Scanner</a>
 
 
-<a href="https://www.amazon.com/dp/B0BZ82WQ4Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ANCEL X7HD 10'' Heavy Duty Truck Scanner, Semi Trucks Full System Diagnostic Tool, Bidirectional Diesel Scan Tool with DPF, ECU Coding, 40+ Reset for Cummins, Detroit, Caterpillar, Volvo, Paccar etc" src="https://m.media-amazon.com/images/I/516bJItc+1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BZ82WQ4Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ANCEL X7HD 10'' Heavy Duty Truck Scanner, Semi Trucks Full System Diagnostic Tool, Bidirectional Diesel Scan Tool with DPF, ECU Coding, 40+ Reset for Cummins, Detroit, Caterpillar, Volvo, Paccar etc" src="https://m.media-amazon.com/images/I/516bJItc+1L._SL500_.jpg"/></a>
 
 
 The **ANCEL X7HD 10'' Heavy Duty Truck Scanner** is ideal for professional mechanics, fleet managers, and truck owners who need a comprehensive diagnostic tool for heavy-duty and semi trucks. This device is perfect for those working with brands like **Cummins, Detroit, Caterpillar, Volvo, and Paccar**, providing full system diagnostics and advanced functionalities to maintain and repair diesel engines efficiently.
@@ -253,10 +253,10 @@ The **ANCEL X7HD** scanner stands out with its extensive support for multiple tr
 
 Equipped with advanced features like **DPF regeneration** and **ECU coding**, this tool empowers users to carry out complex repairs and resets without needing additional equipment. The inclusion of over 40 reset functions further broadens its capability, allowing users to handle a wide range of system errors efficiently. Its rugged build ensures it withstands tough environments, making it a reliable companion for both garage and on-road diagnostics.
 
-## <a href="https://www.amazon.com/dp/B0DN685YQ2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Heavy Duty Truck Scanner</a>
+## <a href="https://www.amazon.com/dp/B0DN685YQ2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Heavy Duty Truck Scanner</a>
 
 
-<a href="https://www.amazon.com/dp/B0DN685YQ2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Heavy Duty Truck Scanner,Full System Diesel Diagnostic Scan Tool and Code Reader for Cummings, Detroit,Freightliner,International,Paccar,Check Truck Engine and Car 2 in 1 Code Reader/OBD2 Scanner" src="https://m.media-amazon.com/images/I/51om2fZXdUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DN685YQ2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Heavy Duty Truck Scanner,Full System Diesel Diagnostic Scan Tool and Code Reader for Cummings, Detroit,Freightliner,International,Paccar,Check Truck Engine and Car 2 in 1 Code Reader/OBD2 Scanner" src="https://m.media-amazon.com/images/I/51om2fZXdUL._SL500_.jpg"/></a>
 
 
 The **Heavy Duty Truck Scanner** is ideal for professional mechanics, fleet managers, and diesel truck owners who need a reliable and comprehensive diagnostic tool. If you operate or maintain trucks from brands like **Cummings, Detroit, Freightliner, International,** or **Paccar**, this device is designed to help you quickly identify and resolve engine issues, saving time and reducing downtime.

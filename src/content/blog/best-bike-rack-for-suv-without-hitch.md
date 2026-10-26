@@ -23,10 +23,10 @@ These racks use straps and hooks to secure your bikes. They suit different bike 
 
 
 
-## <a href="https://www.amazon.com/dp/B00TRTSAZM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Allen Sports Deluxe 2-bike Trunk Mount Rack</a>
+## <a href="https://www.amazon.com/dp/B00TRTSAZM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Allen Sports Deluxe 2-bike Trunk Mount Rack</a>
 
 
-<a href="https://www.amazon.com/dp/B00TRTSAZM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Allen Sports Deluxe 2-Bike Trunk Mount Rack, Model 102DN-R, Black" src="https://m.media-amazon.com/images/I/41Kg9Z-8T1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00TRTSAZM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Allen Sports Deluxe 2-Bike Trunk Mount Rack, Model 102DN-R, Black" src="https://m.media-amazon.com/images/I/41Kg9Z-8T1L._SL500_.jpg"/></a>
 
 
 The **Allen Sports Deluxe 2-Bike Trunk Mount Rack, Model 102DN-R**, is ideal for cyclists who need a reliable and compact solution for transporting up to two bikes. Whether you're a weekend warrior, a casual rider, or someone who enjoys family bike outings, this trunk mount rack offers convenience and ease of use, especially for those who prefer trunk attachment over hitch-mounted options.
@@ -49,10 +49,10 @@ The **Allen Sports Deluxe 2-Bike Trunk Mount Rack** is designed with user-friend
 
 With a focus on durability and convenience, this rack is constructed from high-quality materials by **Allen Sports**, a trusted name in bike transport solutions. The easy installation process means no special tools are required, and the rack can be quickly mounted or removed, saving time and effort. This product is perfect for those who want a reliable, no-fuss way to take their bikes on the road without investing in a more expensive hitch-mounted rack.
 
-## <a href="https://www.amazon.com/dp/B00AK9YMIM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Maxxhaul 70210 Hitch Mount Bike Rack 4-bike Rack</a>
+## <a href="https://www.amazon.com/dp/B00AK9YMIM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Maxxhaul 70210 Hitch Mount Bike Rack 4-bike Rack</a>
 
 
-<a href="https://www.amazon.com/dp/B00AK9YMIM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MaxxHaul 70210 Hitch Mount Bike Rack 4-Bike Rack, Black For Cars Trucks SUV's Minivans, Large" src="https://m.media-amazon.com/images/I/415DqPJJKGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00AK9YMIM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MaxxHaul 70210 Hitch Mount Bike Rack 4-Bike Rack, Black For Cars Trucks SUV's Minivans, Large" src="https://m.media-amazon.com/images/I/415DqPJJKGL._SL500_.jpg"/></a>
 
 
 The **MaxxHaul 70210 Hitch Mount Bike Rack** is ideal for outdoor enthusiasts and families who own cars, trucks, SUVs, or minivans and need a reliable solution to transport multiple bikes. If you often go on biking adventures or weekend trips with friends and family, this **4-bike rack** offers a convenient and secure way to carry your bikes without taking up interior space.
@@ -75,10 +75,10 @@ The **MaxxHaul 70210** features a robust design that ensures your bikes stay sec
 
 With the ability to carry up to **4 bikes**, this bike rack is perfect for families and groups who want to travel together. Its manageable weight of **25 pounds** allows for easier handling compared to heavier racks, while the compact dimensions ensure it does not obstruct rear visibility when mounted. Overall, the **MaxxHaul 70210 Hitch Mount Bike Rack** combines practicality, durability, and versatility for avid cyclists looking for a dependable bike transport solution.
 
-## <a href="https://www.amazon.com/dp/B0012SBVSY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Yakima Doubledown 4 Tilting Aluminum Hitch Bike Rack</a>
+## <a href="https://www.amazon.com/dp/B0012SBVSY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Yakima Doubledown 4 Tilting Aluminum Hitch Bike Rack</a>
 
 
-<a href="https://www.amazon.com/dp/B0012SBVSY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Yakima DoubleDown 4 Tilting Aluminum Hitch Bike Rack for Car, SUV, and Truck with 1.25 or 2 Inch Bike Rack Hitch Receivers, Black" src="https://m.media-amazon.com/images/I/31b1uRl-z2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0012SBVSY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Yakima DoubleDown 4 Tilting Aluminum Hitch Bike Rack for Car, SUV, and Truck with 1.25 or 2 Inch Bike Rack Hitch Receivers, Black" src="https://m.media-amazon.com/images/I/31b1uRl-z2L._SL500_.jpg"/></a>
 
 
 The **Yakima DoubleDown 4 Tilting Aluminum Hitch Bike Rack** is ideal for avid cyclists who frequently travel with their bikes. Whether you own a **car, SUV, or truck** equipped with a 1.25 or 2-inch bike rack hitch receiver, this bike rack offers a reliable and versatile solution. Perfect for families or groups who need to transport multiple bikes safely, it is especially suited for those seeking a durable, lightweight, and easy-to-use bike rack.
@@ -101,10 +101,10 @@ The **Yakima DoubleDown 4** bike rack stands out for its **tilting design**, whi
 
 Additionally, the rack’s compatibility with both **1.25 and 2-inch hitch receivers** means it fits a wide range of vehicles, from smaller cars to larger trucks and SUVs. This versatility, combined with the capacity to carry up to four bikes, makes it a practical choice for active families or groups of cyclists. The sleek **black finish** not only looks stylish but also resists the elements, helping maintain the rack’s appearance over time.
 
-## <a href="https://www.amazon.com/dp/B0D98JVQ36?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Soarify Bike Rack For Car, Suv, Rv</a>
+## <a href="https://www.amazon.com/dp/B0D98JVQ36?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Soarify Bike Rack For Car, Suv, Rv</a>
 
 
-<a href="https://www.amazon.com/dp/B0D98JVQ36?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Soarify Bike Rack for Car, SUV, RV, Mount Hitch Bike Back 4, Up to 143 lbs Load Bicycle Rack Carrier Rubber Straps, Tilt Release with 2" src="https://m.media-amazon.com/images/I/31+GIJyLZhL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D98JVQ36?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Soarify Bike Rack for Car, SUV, RV, Mount Hitch Bike Back 4, Up to 143 lbs Load Bicycle Rack Carrier Rubber Straps, Tilt Release with 2" src="https://m.media-amazon.com/images/I/31+GIJyLZhL._SL500_.jpg"/></a>
 
 
 The **Soarify Bike Rack for Car, SUV, RV** is the perfect solution for avid cyclists and outdoor enthusiasts who frequently travel with their **bicycles**. If you're someone who enjoys road trips, camping, or exploring new trails and needs a reliable way to transport up to two bikes, this rack is an ideal choice. It's designed to accommodate a variety of vehicle types, including cars, SUVs, and RVs, making it versatile for different lifestyles.
@@ -125,10 +125,10 @@ The **Soarify Bike Rack** boasts a **sturdy build** with a load capacity of up t
 
 Another notable benefit is the **easy installation process** thanks to the **2" hitch system**, which makes it user-friendly, even for those who are not mechanically inclined. The **durable construction** of the rack speaks to its longevity, promising years of reliable use. However, while the **black and orange color scheme** is stylish, it may not match every vehicle's aesthetic. Despite this minor drawback, the **Soarify Bike Rack** remains a top contender for those in need of a **dependable bike transport solution**.
 
-## <a href="https://www.amazon.com/dp/B07GBPBW1T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Maxxhaul 50027 Hitch Mount Bike Rack Platform</a>
+## <a href="https://www.amazon.com/dp/B07GBPBW1T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Maxxhaul 50027 Hitch Mount Bike Rack Platform</a>
 
 
-<a href="https://www.amazon.com/dp/B07GBPBW1T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MaxxHaul 50027 Hitch Mount Bike Rack Platform - Style 2-Bike Rack for Cars Trucks SUVs Minivans with Hitch Tightener, Great For E-bikes With Standard Width Tires" src="https://m.media-amazon.com/images/I/41HcfI8QDdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07GBPBW1T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MaxxHaul 50027 Hitch Mount Bike Rack Platform - Style 2-Bike Rack for Cars Trucks SUVs Minivans with Hitch Tightener, Great For E-bikes With Standard Width Tires" src="https://m.media-amazon.com/images/I/41HcfI8QDdL._SL500_.jpg"/></a>
 
 
 The **MaxxHaul 50027 Hitch Mount Bike Rack Platform** is ideal for outdoor enthusiasts and cyclists who own **cars, trucks, SUVs, or minivans** equipped with a hitch receiver. This bike rack is perfect for those who frequently transport **e-bikes or standard bikes with wider tires** and require a sturdy, secure solution to carry two bikes comfortably on the road.
@@ -151,10 +151,10 @@ The **MaxxHaul 50027** features a robust platform design that offers a stable ba
 
 Constructed with a focus on durability, the bike rack's black powder-coated finish helps protect it against rust and corrosion, extending its lifespan even in harsh weather conditions. Additionally, the platform design is especially beneficial for transporting **e-bikes with standard width tires**, providing ample space and a secure hold. Its relatively lightweight build allows for easy handling and installation, making it a practical option for frequent cyclists who value convenience and reliability.
 
-## <a href="https://www.amazon.com/dp/B07G5VLMN1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Maxxhaul 50025 Hitch Mount 2 Bike Rack</a>
+## <a href="https://www.amazon.com/dp/B07G5VLMN1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Maxxhaul 50025 Hitch Mount 2 Bike Rack</a>
 
 
-<a href="https://www.amazon.com/dp/B07G5VLMN1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MaxxHaul 50025 Hitch Mount 2 Bike Rack For Cars, Trucks, SUV's, Minivans - 100 lb. Capacity" src="https://m.media-amazon.com/images/I/31uB2rUIxFL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07G5VLMN1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MaxxHaul 50025 Hitch Mount 2 Bike Rack For Cars, Trucks, SUV's, Minivans - 100 lb. Capacity" src="https://m.media-amazon.com/images/I/31uB2rUIxFL._SL500_.jpg"/></a>
 
 
 The **MaxxHaul 50025 Hitch Mount 2 Bike Rack** is ideal for outdoor enthusiasts and families who frequently travel with their bikes. Whether you own a **car, truck, SUV, or minivan**, this bike rack is designed for those seeking a reliable and easy-to-use solution to transport up to two bicycles securely. If you want a sturdy, compact, and affordable bike rack that offers convenience without compromising on capacity, this product is a perfect choice.
@@ -177,10 +177,10 @@ The **MaxxHaul 50025** features a robust construction from the trusted **MAXXHAU
 
 With a maximum capacity of **100 pounds**, this bike rack can safely carry two bicycles, making it suitable for small families or couples who enjoy biking adventures. The hitch mount design provides a stable connection to the vehicle, reducing wobble and ensuring safe transport on the road. Overall, the **MaxxHaul 50025** combines ease of use, versatility, and strength to enhance your biking trips, delivering excellent value for outdoor enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B000ELUXFC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Allen Sports Deluxe 2-bike Trunk Mount Rack</a>
+## <a href="https://www.amazon.com/dp/B000ELUXFC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Allen Sports Deluxe 2-bike Trunk Mount Rack</a>
 
 
-<a href="https://www.amazon.com/dp/B000ELUXFC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Allen Sports Deluxe 2-Bike Trunk Mount Rack, Model 102DB, Black/ Silver, 23 x 15 x 4 inches" src="https://m.media-amazon.com/images/I/41XcVSoGZHL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000ELUXFC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Allen Sports Deluxe 2-Bike Trunk Mount Rack, Model 102DB, Black/ Silver, 23 x 15 x 4 inches" src="https://m.media-amazon.com/images/I/41XcVSoGZHL._SL500_.jpg"/></a>
 
 
 The **Allen Sports Deluxe 2-Bike Trunk Mount Rack** is an ideal choice for avid cyclists who need a reliable and easy-to-use solution for transporting their bikes. Perfect for casual riders, weekend adventurers, and families with multiple bikes, this rack is designed to securely carry two bicycles on the trunk of most vehicles. If you want a compact, lightweight, and budget-friendly bike rack, this model is a great fit.
@@ -203,10 +203,10 @@ The **Allen Sports Deluxe 2-Bike Trunk Mount Rack** features a user-friendly des
 
 In addition to its practical design, this rack offers excellent value for the price. The durable materials used in its construction guarantee that it can withstand regular use and various weather conditions. Whether you are heading out for a weekend ride or a longer cycling trip, the **Allen Sports Deluxe 2-Bike Trunk Mount Rack** delivers dependable performance, making bike transport effortless and stress-free.
 
-## <a href="https://www.amazon.com/dp/B0DTNYJSGK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rockland Aluminum 2-bike Rack</a>
+## <a href="https://www.amazon.com/dp/B0DTNYJSGK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rockland Aluminum 2-bike Rack</a>
 
 
-<a href="https://www.amazon.com/dp/B0DTNYJSGK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rockland Aluminum 2-Bike Rack, 70 lbs Capacity, Lightweight Trunk Mount Bike Rack with Hooks and Loops, Fits 2" src="https://m.media-amazon.com/images/I/41CBB8yJeGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DTNYJSGK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rockland Aluminum 2-Bike Rack, 70 lbs Capacity, Lightweight Trunk Mount Bike Rack with Hooks and Loops, Fits 2" src="https://m.media-amazon.com/images/I/41CBB8yJeGL._SL500_.jpg"/></a>
 
 
 The **Rockland Aluminum 2-Bike Rack** is ideal for outdoor enthusiasts, cyclists, and families who frequently travel with their bikes. It is perfect for owners of **cars, SUVs, and minivans** looking for a lightweight, durable, and easy-to-install bike rack that can securely transport up to two bicycles without hassle. If you want a reliable and compact solution for weekend rides or road trips, this bike rack fits the bill.
@@ -230,10 +230,10 @@ The **Rockland Aluminum 2-Bike Rack** features a robust yet lightweight aluminum
 
 Designed to fit a 2" receiver hitch, this bike rack offers great versatility for various vehicle types including cars, SUVs, and minivans. Its compact size also means it occupies minimal space when stored, which is advantageous for users with limited storage areas. The silver finish not only adds a sleek appearance but also provides resistance against weather elements, extending the product’s lifespan. Overall, this bike rack balances practicality with durability, making it an excellent choice for casual riders and weekend adventurers alike.
 
-## <a href="https://www.amazon.com/dp/B00ASSR020?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Allen Sports Premier 2-bike Trunk Rack</a>
+## <a href="https://www.amazon.com/dp/B00ASSR020?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Allen Sports Premier 2-bike Trunk Rack</a>
 
 
-<a href="https://www.amazon.com/dp/B00ASSR020?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Allen Sports Premier 2-Bike Trunk Rack, Model S102, Black" src="https://m.media-amazon.com/images/I/41kNRTxuF7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00ASSR020?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Allen Sports Premier 2-Bike Trunk Rack, Model S102, Black" src="https://m.media-amazon.com/images/I/41kNRTxuF7L._SL500_.jpg"/></a>
 
 
 The **Allen Sports Premier 2-Bike Trunk Rack**, Model S102, is ideal for cyclists who need a reliable and easy-to-use solution for transporting up to two bikes on the back of their vehicle. Perfect for casual riders, weekend adventurers, and families with multiple bikes, this trunk rack offers convenience and durability without requiring a hitch mount.
@@ -256,10 +256,10 @@ The **Allen Sports Premier 2-Bike Trunk Rack** stands out with its compact and l
 
 Designed for convenience, this trunk rack supports up to two bicycles, making it a great choice for couples or solo riders who frequently transport their bikes. Its straightforward installation means users can spend less time setting up and more time enjoying their ride. Although it lacks advanced security features, its affordability and ease of use make it an excellent option for casual cyclists looking for dependable transport solutions.
 
-## <a href="https://www.amazon.com/dp/B00TRTSRVE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Allen Sports Deluxe 3-bike Hitch Mount Rack</a>
+## <a href="https://www.amazon.com/dp/B00TRTSRVE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Allen Sports Deluxe 3-bike Hitch Mount Rack</a>
 
 
-<a href="https://www.amazon.com/dp/B00TRTSRVE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Allen Sports Deluxe 3-Bike Hitch Mount Rack, Model 532RR-R" src="https://m.media-amazon.com/images/I/41Dn+wbUkBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00TRTSRVE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Allen Sports Deluxe 3-Bike Hitch Mount Rack, Model 532RR-R" src="https://m.media-amazon.com/images/I/41Dn+wbUkBL._SL500_.jpg"/></a>
 
 
 The **Allen Sports Deluxe 3-Bike Hitch Mount Rack, Model 532RR-R** is ideal for avid cyclists and outdoor enthusiasts who need a reliable and convenient way to transport up to three bikes. Whether you're planning a weekend getaway or daily rides, this rack is perfect for those who own a vehicle with a hitch receiver and want a secure, easy-to-use bike carrier that won’t damage their bicycles.

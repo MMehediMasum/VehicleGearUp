@@ -22,10 +22,10 @@ Some light bars include additional LED pods for fog or work lighting. Mounting o
 
 
 
-## <a href="https://www.amazon.com/dp/B09P3W6BB1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nilight 52inch Led Light Bar</a>
+## <a href="https://www.amazon.com/dp/B09P3W6BB1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nilight 52inch Led Light Bar</a>
 
 
-<a href="https://www.amazon.com/dp/B09P3W6BB1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nilight 52Inch Led Light Bar Spot Flood 2Pcs 18W 4Inch Spot LED Pods Windshield Frame Mounting Bracket on Wrangler JK 2007-2017 with Off Road Wiring Harness- 3 Leads" src="https://m.media-amazon.com/images/I/510IYes9g-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09P3W6BB1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nilight 52Inch Led Light Bar Spot Flood 2Pcs 18W 4Inch Spot LED Pods Windshield Frame Mounting Bracket on Wrangler JK 2007-2017 with Off Road Wiring Harness- 3 Leads" src="https://m.media-amazon.com/images/I/510IYes9g-L._SL500_.jpg"/></a>
 
 
 The **Nilight 52Inch Led Light Bar Spot Flood** with **2Pcs 18W 4Inch Spot LED Pods** and **Windshield Frame Mounting Bracket** is ideal for off-road enthusiasts and Jeep Wrangler JK owners from 2007 to 2017. If you are looking to enhance your vehicle's nighttime visibility and add a durable lighting solution for rugged terrains, this complete set with an **off-road wiring harness** and mounting bracket is perfect for you.
@@ -48,10 +48,10 @@ The **Nilight 52Inch Led Light Bar** delivers exceptional lighting performance b
 
 The package comes complete with a **windshield frame mounting bracket** tailored specifically for Jeep Wrangler JK models from 2007 to 2017, ensuring a secure and aesthetically pleasing fit. The **off-road wiring harness** with three leads simplifies the installation process, allowing users to wire the light bar efficiently without the hassle of sourcing extra parts. Overall, this product offers a powerful, reliable, and convenient lighting upgrade for Jeep owners seeking enhanced off-road performance.
 
-## <a href="https://www.amazon.com/dp/B06XTZYJL3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nilight Led Light Bar And Pods Combo</a>
+## <a href="https://www.amazon.com/dp/B06XTZYJL3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nilight Led Light Bar And Pods Combo</a>
 
 
-<a href="https://www.amazon.com/dp/B06XTZYJL3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nilight - ZH003 20Inch 126W Spot Flood Combo Led Light Bar 4PCS 4Inch 18W Spot LED Pods Fog Lights for Jeep Wrangler Boat Truck Tractor Trailer Off-Road, 2 Years Warranty" src="https://m.media-amazon.com/images/I/51m6KLr5+nL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B06XTZYJL3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nilight - ZH003 20Inch 126W Spot Flood Combo Led Light Bar 4PCS 4Inch 18W Spot LED Pods Fog Lights for Jeep Wrangler Boat Truck Tractor Trailer Off-Road, 2 Years Warranty" src="https://m.media-amazon.com/images/I/51m6KLr5+nL._SL500_.jpg"/></a>
 
 
 The **Nilight ZH003 20Inch 126W Spot Flood Combo LED Light Bar** with **4PCS 4Inch 18W Spot LED Pods** is ideal for off-road enthusiasts, Jeep Wrangler owners, boat and truck drivers, and anyone who requires enhanced lighting for outdoor and low-visibility conditions. This product is perfect for those looking to upgrade their vehicle’s lighting system for improved safety and performance during nighttime driving or in challenging environments.
@@ -73,10 +73,10 @@ The **Nilight ZH003 LED Light Bar** combines a **20-inch 126W spot flood combo l
 
 Constructed with durability in mind, this lighting system features a robust housing designed to withstand rough environments, including water exposure and dust. The compact dimensions of the LED pods (4.0 x 4.0 inches) allow for flexible mounting options on your vehicle or equipment. Additionally, the product is backed by a **2-year warranty**, reflecting Nilight’s confidence in its longevity and performance, giving users reassurance when investing in enhanced lighting solutions.
 
-## <a href="https://www.amazon.com/dp/B0BHVZRJVM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Feelon 52" Rgb Led Light Bar + 2x 4" Flood Led Pods</a>
+## <a href="https://www.amazon.com/dp/B0BHVZRJVM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Feelon 52" Rgb Led Light Bar + 2x 4" Flood Led Pods</a>
 
 
-<a href="https://www.amazon.com/dp/B0BHVZRJVM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="FEELON 52" src="https://m.media-amazon.com/images/I/51+Hc9iD-FL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BHVZRJVM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="FEELON 52" src="https://m.media-amazon.com/images/I/51+Hc9iD-FL._SL500_.jpg"/></a>
 
 
 The **FEELON 52" RGB LED Light Bar** is perfect for **off-road enthusiasts** and **Wrangler JK owners** looking to enhance their vehicle's appearance and functionality. If you love customizing your vehicle with vibrant lighting and often venture into off-road terrains, this light bar is an ideal addition to your gear.
@@ -97,10 +97,10 @@ The **FEELON 52" RGB LED Light Bar** stands out with its **multi-color chasing h
 
 This light bar is designed with **durability** in mind, capable of withstanding harsh conditions typical of off-road adventures. The **easy installation** process is enhanced by the included **wiring harness**, making it accessible even for those with minimal technical skills. However, some users might still prefer professional installation to ensure perfect setup. While the initial investment may be higher due to its advanced features, the long-term benefits and enhanced driving experience make it a worthy purchase for serious off-roaders and vehicle enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B0711QGZZ6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nilight Led Light Bar</a>
+## <a href="https://www.amazon.com/dp/B0711QGZZ6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nilight Led Light Bar</a>
 
 
-<a href="https://www.amazon.com/dp/B0711QGZZ6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nilight - 18015C-A LED Light Bar, 52Inch, 783W, 78000LM, Curved Triple Row Flood Spot Combo Beam Off Road Driving Lights for Boat, Trucks, 2 Years Warranty" src="https://m.media-amazon.com/images/I/41FGsRV7qGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0711QGZZ6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nilight - 18015C-A LED Light Bar, 52Inch, 783W, 78000LM, Curved Triple Row Flood Spot Combo Beam Off Road Driving Lights for Boat, Trucks, 2 Years Warranty" src="https://m.media-amazon.com/images/I/41FGsRV7qGL._SL500_.jpg"/></a>
 
 
 The **Nilight 18015C-A LED Light Bar** is ideal for outdoor enthusiasts and professionals who require powerful and reliable lighting solutions for their **boats, trucks, and off-road vehicles**. If you need enhanced visibility in challenging environments and want a durable, high-performance lighting accessory, this **52-inch curved LED light bar** is a perfect choice.
@@ -123,10 +123,10 @@ The **Nilight 18015C-A LED Light Bar** features a robust triple row LED setup th
 
 Constructed with a **durable black shell**, this light bar is built to withstand harsh outdoor conditions including water, dust, and impacts. Despite its sturdy build, it remains relatively lightweight, allowing for easier installation on a variety of vehicles. The **2-year warranty** further adds peace of mind by protecting your investment, making this LED light bar a reliable and efficient lighting solution for demanding users.
 
-## <a href="https://www.amazon.com/dp/B0B2LTBF3T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">50 - 52 Inch A-pillar Led Light Bar Windshield Mount Brackets For Jeep 2018-2025 Wrangler Jl Jlu Unlimited, 2019-2025 Gladiator Jt</a>
+## <a href="https://www.amazon.com/dp/B0B2LTBF3T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">50 - 52 Inch A-pillar Led Light Bar Windshield Mount Brackets For Jeep 2018-2025 Wrangler Jl Jlu Unlimited, 2019-2025 Gladiator Jt</a>
 
 
-<a href="https://www.amazon.com/dp/B0B2LTBF3T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="50 - 52 inch A-Pillar LED Light Bar Windshield Mount Brackets for Jeep 2018-2025 Wrangler JL JLU Umlimited, 2019-2025 Gladiator JT, Hawkley Light Bar Mounting Bracket with 2X 4 inch LED Spot Light" src="https://m.media-amazon.com/images/I/51Tu35u-ZoL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B2LTBF3T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="50 - 52 inch A-Pillar LED Light Bar Windshield Mount Brackets for Jeep 2018-2025 Wrangler JL JLU Umlimited, 2019-2025 Gladiator JT, Hawkley Light Bar Mounting Bracket with 2X 4 inch LED Spot Light" src="https://m.media-amazon.com/images/I/51Tu35u-ZoL._SL500_.jpg"/></a>
 
 
 The **50 - 52 inch A-Pillar LED Light Bar Windshield Mount Brackets** by **Hawkley** are ideal for Jeep enthusiasts who own models such as the **2018-2025 Wrangler JL JLU Unlimited** and the **2019-2025 Gladiator JT**. If you are looking to enhance your vehicle's off-road lighting capabilities with a durable and stylish mounting solution, this product is designed specifically for you. It is perfect for those who require robust lighting for night-time adventures or improved visibility in challenging terrains.
@@ -149,10 +149,10 @@ The **Hawkley A-Pillar LED Light Bar Mounting Bracket** features a sturdy build 
 
 Installing this bracket on the **A-Pillar** leverages a strategic mounting point that maintains the vehicle’s integrity without requiring permanent alterations. The black finish complements the rugged look of Jeep models while providing protection against the elements. Users will appreciate the enhanced road awareness and the increased lighting range, which contribute to a safer and more enjoyable driving experience during night expeditions or adverse weather conditions.
 
-## <a href="https://www.amazon.com/dp/B096XW3WD2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Feelon Fit Jeep Wrangler Jl Gladiator Jt 52" Led Light Bar</a>
+## <a href="https://www.amazon.com/dp/B096XW3WD2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Feelon Fit Jeep Wrangler Jl Gladiator Jt 52" Led Light Bar</a>
 
 
-<a href="https://www.amazon.com/dp/B096XW3WD2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="FEELON Fit 18-22 Jeep Wrangler JL/ 20-22 Gladiator JT 52" src="https://m.media-amazon.com/images/I/41qx4GV0esL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B096XW3WD2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="FEELON Fit 18-22 Jeep Wrangler JL/ 20-22 Gladiator JT 52" src="https://m.media-amazon.com/images/I/41qx4GV0esL._SL500_.jpg"/></a>
 
 
 The **FEELON Fit 18-22 Jeep Wrangler JL / 20-22 Gladiator JT 52" inch LED Light Bar** is ideal for off-road enthusiasts and Jeep owners who want to enhance their vehicle's lighting capabilities. If you frequently drive in low-light conditions, rough terrains, or enjoy night-time adventures, this light bar provides powerful illumination and improved visibility. It is specifically designed for those who own a **2018-2019 Jeep Wrangler JL** or similar models and seek a reliable, durable lighting solution that complements their vehicle’s rugged style.
@@ -174,10 +174,10 @@ The **FEELON 52-inch LED Light Bar** offers a robust lighting solution tailored 
 
 With its durable construction, the light bar is built to withstand harsh off-road environments, providing reliable performance over time. The bright and versatile lighting enhances safety by increasing visibility in challenging conditions, making night driving safer and more enjoyable. Overall, this LED light bar is a practical upgrade for Jeep owners who want to boost their vehicle’s lighting capabilities while maintaining a sleek, factory-fit appearance.
 
-## <a href="https://www.amazon.com/dp/B06XPHPMQ4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nilight Zh002 20inch 126w Spot Flood Combo Off Road Led Light Bar</a>
+## <a href="https://www.amazon.com/dp/B06XPHPMQ4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nilight Zh002 20inch 126w Spot Flood Combo Off Road Led Light Bar</a>
 
 
-<a href="https://www.amazon.com/dp/B06XPHPMQ4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nilight - ZH002 20Inch 126W Spot Flood Combo Off Road Led Light Bar 2PCS 18w 4Inch LED Pods With 16AWG Wiring Harness Kit-3 Lead For Tractor, 2 Years Warranty" src="https://m.media-amazon.com/images/I/51LtvsXp+AL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B06XPHPMQ4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nilight - ZH002 20Inch 126W Spot Flood Combo Off Road Led Light Bar 2PCS 18w 4Inch LED Pods With 16AWG Wiring Harness Kit-3 Lead For Tractor, 2 Years Warranty" src="https://m.media-amazon.com/images/I/51LtvsXp+AL._SL500_.jpg"/></a>
 
 
 The **Nilight ZH002 20Inch 126W Spot Flood Combo Off Road LED Light Bar** with 2PCS 18W 4Inch LED Pods and a 16AWG Wiring Harness Kit is ideal for off-road enthusiasts, tractor owners, and anyone who requires powerful, reliable lighting in rugged environments. If you need enhanced visibility during nighttime driving or work in low-light conditions, this lighting kit is designed to meet those demands efficiently.
@@ -199,10 +199,10 @@ The **Nilight ZH002 Light Bar** features a 20-inch length and combines 126 watts
 
 Equipped with a 16AWG wiring harness and three leads, the installation process is straightforward, even for those with minimal electrical experience. The robust build quality and materials used in the **Nilight ZH002** provide durability against harsh weather and rough handling typical in agricultural or off-road environments. This lighting kit not only enhances safety but also increases productivity by delivering consistent and reliable illumination, backed by a reassuring two-year warranty.
 
-## <a href="https://www.amazon.com/dp/B00G620ZVU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nilight Led Pods 2pcs</a>
+## <a href="https://www.amazon.com/dp/B00G620ZVU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nilight Led Pods 2pcs</a>
 
 
-<a href="https://www.amazon.com/dp/B00G620ZVU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nilight Led Pods 2Pcs 18W 1260LM Spot Off Road Lights Super Bright Driving Fog Boat Lamp Work Lighting Bar for Trucks Van Camper Wagon Car Pickup Golf Cart ATV UTV SUV Boat 4x4" src="https://m.media-amazon.com/images/I/515Z9e7sA4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00G620ZVU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nilight Led Pods 2Pcs 18W 1260LM Spot Off Road Lights Super Bright Driving Fog Boat Lamp Work Lighting Bar for Trucks Van Camper Wagon Car Pickup Golf Cart ATV UTV SUV Boat 4x4" src="https://m.media-amazon.com/images/I/515Z9e7sA4L._SL500_.jpg"/></a>
 
 
 The **Nilight Led Pods 2Pcs 18W 1260LM Spot Off Road Lights** are ideal for outdoor enthusiasts and vehicle owners who need powerful, reliable lighting for off-road adventures or work environments. This product is perfect for drivers of **trucks, vans, campers, wagons, pickups, golf carts, ATVs, UTVs, SUVs, and boats** who want to enhance visibility during nighttime driving or in foggy conditions. If you require a durable and bright lighting solution for your vehicle, these LED pods are an excellent choice.
@@ -224,10 +224,10 @@ The **Nilight Led Pods** are engineered with an 18W power rating that delivers a
 
 Additionally, these LED pods are built to withstand rough outdoor conditions, ensuring longevity and reliable performance. Their energy-efficient design not only provides powerful illumination but also minimizes the impact on your vehicle’s battery. Whether you are navigating challenging trails or working late hours, these lighting pods offer a dependable and bright solution to improve visibility and safety.
 
-## <a href="https://www.amazon.com/dp/B0BV6N1K2V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nilight Led Light Bar 2pcs 60w 4inch Triple Row Spot Flood Combo Lights</a>
+## <a href="https://www.amazon.com/dp/B0BV6N1K2V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nilight Led Light Bar 2pcs 60w 4inch Triple Row Spot Flood Combo Lights</a>
 
 
-<a href="https://www.amazon.com/dp/B0BV6N1K2V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nilight LED Light Bar 2PCS 60W 4Inch Triple Row Spot Flood Combo Lights w/Wiring Kit for Fog Driving Work Lighting on Off-Road Truck Tractor SUV ATV UTV Golf Cart Boats" src="https://m.media-amazon.com/images/I/514JfK54VLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BV6N1K2V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nilight LED Light Bar 2PCS 60W 4Inch Triple Row Spot Flood Combo Lights w/Wiring Kit for Fog Driving Work Lighting on Off-Road Truck Tractor SUV ATV UTV Golf Cart Boats" src="https://m.media-amazon.com/images/I/514JfK54VLL._SL500_.jpg"/></a>
 
 
 The **Nilight LED Light Bar 2PCS 60W 4Inch Triple Row Spot Flood Combo Lights** are ideal for individuals who need powerful and versatile lighting solutions for their **off-road vehicles**, including trucks, tractors, SUVs, ATVs, UTVs, golf carts, and boats. If you frequently drive in low-visibility conditions such as fog, nighttime, or rugged terrain, this lighting kit is designed to enhance your safety and visibility.
@@ -251,10 +251,10 @@ The **Nilight LED Light Bar** features a robust triple row setup combining both 
 
 Designed with durability in mind, the light bar's construction withstands tough conditions commonly encountered in off-road and marine applications. Its compact dimensions allow it to fit seamlessly on various vehicles without obstructing other accessories. Additionally, the included wiring kit simplifies installation, saving users time and effort. Overall, the **Nilight LED Light Bar** provides a reliable and efficient lighting solution for anyone seeking to improve nighttime and low-visibility driving safety.
 
-## <a href="https://www.amazon.com/dp/B0841H7HQL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nilight Upper Windshield Frame Mounting Bracket A-pillar Mounts</a>
+## <a href="https://www.amazon.com/dp/B0841H7HQL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nilight Upper Windshield Frame Mounting Bracket A-pillar Mounts</a>
 
 
-<a href="https://www.amazon.com/dp/B0841H7HQL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nilight Upper Windshield Frame Mounting Bracket A-pillar Mounts for 52 Inch Light Bar and LED Pod Lamp on Wrangler JK 2007 2008 2009 2010 2011 2012 2013 2014 2015 2016 2017 2018" src="https://m.media-amazon.com/images/I/41g3NeL6QlL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0841H7HQL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Nilight Upper Windshield Frame Mounting Bracket A-pillar Mounts for 52 Inch Light Bar and LED Pod Lamp on Wrangler JK 2007 2008 2009 2010 2011 2012 2013 2014 2015 2016 2017 2018" src="https://m.media-amazon.com/images/I/41g3NeL6QlL._SL500_.jpg"/></a>
 
 
 The **Nilight Upper Windshield Frame Mounting Bracket** is ideal for Jeep Wrangler JK owners from model years 2007 to 2018 who want to enhance their vehicle's lighting system. This product is perfect for off-road enthusiasts and drivers who need a secure and reliable mounting solution for a **52 Inch Light Bar** or **LED Pod Lamp** on their A-pillar, offering improved visibility during night drives or challenging terrain conditions.

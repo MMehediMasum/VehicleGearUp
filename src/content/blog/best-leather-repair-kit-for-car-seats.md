@@ -23,10 +23,10 @@ They work on genuine leather, pleather, vinyl, and faux leather. Many kits inclu
 
 
 
-## <a href="https://www.amazon.com/dp/B07ZN8JK88?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Leather Repair Kit For Furniture, Sofa, Jacket, Car Seats And Purse</a>
+## <a href="https://www.amazon.com/dp/B07ZN8JK88?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Leather Repair Kit For Furniture, Sofa, Jacket, Car Seats And Purse</a>
 
 
-<a href="https://www.amazon.com/dp/B07ZN8JK88?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Leather Repair Kit for Furniture, Sofa, Jacket, Car Seats and Purse. Vinyl Repair Kit. Super Easy Instructions to Match Any Color, Restore Any Material, Bonded, Italian, Pleather, Genuine" src="https://m.media-amazon.com/images/I/51OkEZfq0EL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07ZN8JK88?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Leather Repair Kit for Furniture, Sofa, Jacket, Car Seats and Purse. Vinyl Repair Kit. Super Easy Instructions to Match Any Color, Restore Any Material, Bonded, Italian, Pleather, Genuine" src="https://m.media-amazon.com/images/I/51OkEZfq0EL._SL500_.jpg"/></a>
 
 
 The **Leather Repair Kit for Furniture, Sofa, Jacket, Car Seats and Purse** by **ARCSSAI** is ideal for anyone looking to easily restore and maintain their **leather**, **vinyl**, or **pleather** items. Whether you own a cherished leather sofa, a favorite jacket, car seats that need touch-ups, or a purse with scratches, this kit is designed for both beginners and experienced users who want a simple, effective solution to repair damages and extend the life of their belongings.
@@ -48,10 +48,10 @@ This **leather repair kit** boasts a versatile range of colors and materials com
 
 Additionally, the compact size and quality construction of the kit ensure it is easy to handle and store, making it accessible whenever damage occurs. By investing in the **ARCSSAI Leather Repair Kit**, users can maintain the aesthetic and functional value of their leather and vinyl items, ultimately extending their lifespan and reducing the need for costly replacements.
 
-## <a href="https://www.amazon.com/dp/B0F7QFVL55?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Leather Repair Kit</a>
+## <a href="https://www.amazon.com/dp/B0F7QFVL55?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Leather Repair Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0F7QFVL55?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Leather Repair Kit for Furniture, Sofa, Jacket and Car Seats, Vinyl Repair Kit with Super Easy Instructions, Fix Tears, Holes, Scratches &amp; Peeling, Customizable Colors for Any Glossy Leather Surface" src="https://m.media-amazon.com/images/I/51-8u4TM5KL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F7QFVL55?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Leather Repair Kit for Furniture, Sofa, Jacket and Car Seats, Vinyl Repair Kit with Super Easy Instructions, Fix Tears, Holes, Scratches &amp; Peeling, Customizable Colors for Any Glossy Leather Surface" src="https://m.media-amazon.com/images/I/51-8u4TM5KL._SL500_.jpg"/></a>
 
 
 The **Leather Repair Kit for Furniture, Sofa, Jacket and Car Seats** is ideal for anyone looking to restore the appearance of their **glossy leather surfaces** without professional help. Whether you own a damaged **sofa**, **car seats**, or a **leather jacket**, this kit is perfect for those who want a cost-effective and easy-to-use solution to fix **tears**, **holes**, **scratches**, and **peeling** leather. It is especially suited for DIY enthusiasts and homeowners who prefer quick repairs over expensive replacements.
@@ -73,10 +73,10 @@ This **vinyl repair kit** by **Guangzhou Aoyate Composite Materials Co., Ltd** o
 
 Beyond its aesthetic benefits, the kit helps prolong the lifespan of your valuable leather goods, saving you money on replacements. It effectively seals and protects the damaged areas from further wear and tear, restoring both function and appearance. Whether you want to fix a torn sofa seat or scratches on your leather jacket, this repair kit ensures a durable, long-lasting repair that blends naturally with your item’s surface. Its multicolor components provide flexibility, making it a practical investment for anyone who values maintaining their leather belongings in pristine condition.
 
-## <a href="https://www.amazon.com/dp/B0D947BRRY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Startso World Black Leather Repair Kit</a>
+## <a href="https://www.amazon.com/dp/B0D947BRRY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Startso World Black Leather Repair Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0D947BRRY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="STARTSO WORLD Black Leather Repair Kit, Vinyl Repair kit for Car Interiors, Furniture, Couches, Car Seat, Sofa, Jacket and Purse, Restores Faux, Artificial, Genuine Pleather" src="https://m.media-amazon.com/images/I/51y1xFjyBHL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D947BRRY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="STARTSO WORLD Black Leather Repair Kit, Vinyl Repair kit for Car Interiors, Furniture, Couches, Car Seat, Sofa, Jacket and Purse, Restores Faux, Artificial, Genuine Pleather" src="https://m.media-amazon.com/images/I/51y1xFjyBHL._SL500_.jpg"/></a>
 
 
 The **STARTSO WORLD Black Leather Repair Kit** is ideal for individuals looking to restore and maintain the appearance of their **car interiors**, **furniture**, **couches**, **car seats**, **sofas**, **jackets**, and **purses**. This kit is perfect for anyone who owns items made of **faux**, **artificial**, or **genuine pleather** and wants a convenient, cost-effective solution for repairing scratches, cracks, and wear without professional help. Whether you are a car enthusiast, furniture owner, or fashion lover, this kit offers a practical way to extend the life and look of your belongings.
@@ -99,10 +99,10 @@ The **STARTSO WORLD Black Leather Repair Kit** features specially formulated com
 
 Beyond just aesthetic improvements, this repair kit also helps protect the material from further deterioration caused by environmental factors like moisture or sunlight. By restoring the surface, it extends the lifespan of valuable possessions, maintaining their comfort and usability. The clear instructions included with the kit empower users to handle repairs confidently, even if they have no prior experience with leather or vinyl restoration. This makes the **STARTSO WORLD Black Leather Repair Kit** an essential tool for anyone looking to preserve the look and feel of their **pleather** items.
 
-## <a href="https://www.amazon.com/dp/B07QVFFV5P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Coconix Leather Care Pro</a>
+## <a href="https://www.amazon.com/dp/B07QVFFV5P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Coconix Leather Care Pro</a>
 
 
-<a href="https://www.amazon.com/dp/B07QVFFV5P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="COCONIX Leather Care PRO Professional Black Leather &amp; Vinyl Repair Kit" src="https://m.media-amazon.com/images/I/51pw7nQf6ML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07QVFFV5P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="COCONIX Leather Care PRO Professional Black Leather &amp; Vinyl Repair Kit" src="https://m.media-amazon.com/images/I/51pw7nQf6ML._SL500_.jpg"/></a>
 
 
 The **COCONIX Leather Care PRO Professional Black Leather & Vinyl Repair Kit** is an ideal choice for individuals who want to maintain the pristine condition of their **leather and vinyl items**. Whether you're a car enthusiast, a homeowner with leather furniture, or someone who owns multiple leather accessories, this kit provides an effective solution for repairing and restoring **black leather** surfaces.
@@ -123,10 +123,10 @@ The **COCONIX Leather Care PRO Kit** is specifically designed to cater to the ne
 
 In addition to its user-friendly nature, the kit is highly **versatile** and can be used on a variety of items including **furniture, car interiors, and clothing**. This versatility means that you can address multiple repair needs with a single purchase, making it a **cost-effective solution** for maintaining your leather goods. The high-quality materials provided in the kit ensure that repairs are durable and blend seamlessly with the original surface, restoring both the look and functionality of your items. However, it is essential to note that the kit is specifically designed for black leather, which may limit its use if you need to repair other colors.
 
-## <a href="https://www.amazon.com/dp/B0CF27WXNR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Leather Repair Patch Tape Kit</a>
+## <a href="https://www.amazon.com/dp/B0CF27WXNR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Leather Repair Patch Tape Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0CF27WXNR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Leather Repair Patch Tape Kit, Self Adhesive Leather Repair for Furniture, Couch, Sofa, Car Seats,Office Chair,Vinyl Repair Kit.3.1inx60in" src="https://m.media-amazon.com/images/I/41tMAM6naQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CF27WXNR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Leather Repair Patch Tape Kit, Self Adhesive Leather Repair for Furniture, Couch, Sofa, Car Seats,Office Chair,Vinyl Repair Kit.3.1inx60in" src="https://m.media-amazon.com/images/I/41tMAM6naQL._SL500_.jpg"/></a>
 
 
 The **Leather Repair Patch Tape Kit** is ideal for anyone looking to easily fix and restore damaged **leather** or **vinyl surfaces** without the need for professional help. Whether you own a **furniture piece**, **couch**, **sofa**, **car seats**, or an **office chair**, this kit offers a convenient and cost-effective solution for maintaining the appearance and durability of your items. Perfect for DIY enthusiasts and those who want a quick, mess-free repair, this product is especially beneficial for individuals who want to prolong the life of their belongings.
@@ -149,10 +149,10 @@ The **Leather Repair Patch Tape Kit** features a strong, self-adhesive backing t
 
 With a length of 60 inches and a width of 3.1 inches, this kit provides enough material to address multiple repair needs, offering great value for its size and price. The lightweight design means it is easy to handle and store, enabling quick access whenever a repair is needed. Ideal for everyday items such as **couches**, **car seats**, and **office chairs**, this product extends the lifespan of your belongings while maintaining a neat, professional look.
 
-## <a href="https://www.amazon.com/dp/B07JC7SFNS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Coconix Leather &amp; Vinyl Repair Kit</a>
+## <a href="https://www.amazon.com/dp/B07JC7SFNS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Coconix Leather &amp; Vinyl Repair Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B07JC7SFNS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="COCONIX Leather &amp; Vinyl Repair Kit | Fix Tears, Holes, Scratches, and Peeling on Leather and Vinyl Furniture, Car Seats, and Jackets | Easy Application with Customizable Colors" src="https://m.media-amazon.com/images/I/511aMet1biL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07JC7SFNS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="COCONIX Leather &amp; Vinyl Repair Kit | Fix Tears, Holes, Scratches, and Peeling on Leather and Vinyl Furniture, Car Seats, and Jackets | Easy Application with Customizable Colors" src="https://m.media-amazon.com/images/I/511aMet1biL._SL500_.jpg"/></a>
 
 
 The **COCONIX Leather & Vinyl Repair Kit** is ideal for anyone looking to restore and maintain the appearance of their **leather and vinyl furniture, car seats, or jackets**. Whether you're a car enthusiast, a homeowner with damaged upholstery, or someone who wants to extend the life of their favorite leather jacket, this kit offers an easy and effective solution to fix tears, holes, scratches, and peeling with customizable colors.
@@ -175,10 +175,10 @@ The **COCONIX Leather & Vinyl Repair Kit** features a multi-color palette that a
 
 This repair kit not only saves users from costly professional restoration services but also empowers them to handle minor damages independently. Its versatility across different materials and applications means that users can maintain the value and appearance of their belongings with minimal effort. Overall, the **COCONIX Leather & Vinyl Repair Kit** provides an effective, user-friendly, and affordable solution for leather and vinyl care.
 
-## <a href="https://www.amazon.com/dp/B01IU3G3NG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">J-b Weld Vinyl And Leather Repair Kit</a>
+## <a href="https://www.amazon.com/dp/B01IU3G3NG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">J-b Weld Vinyl And Leather Repair Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B01IU3G3NG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="J-B Weld 2130 Vinyl and Leather Repair Kit, 3 oz" src="https://m.media-amazon.com/images/I/51ZFz-0XtmL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01IU3G3NG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="J-B Weld 2130 Vinyl and Leather Repair Kit, 3 oz" src="https://m.media-amazon.com/images/I/51ZFz-0XtmL._SL500_.jpg"/></a>
 
 
 The **J-B Weld 2130 Vinyl and Leather Repair Kit, 3 oz.** is ideal for individuals seeking a reliable and easy-to-use solution for repairing damaged **vinyl** and **leather** surfaces. Whether you are a car owner, furniture refurbisher, or DIY enthusiast, this kit provides an effective way to restore your belongings without the need for professional assistance.
@@ -199,10 +199,10 @@ This **repair kit** features a specially formulated adhesive designed to bond se
 
 Additionally, the **J-B Weld 2130** kit is manufactured by **JBWeld**, a brand synonymous with high-quality bonding solutions. This assures users of the product's reliability and long-lasting performance. By choosing this kit, users benefit from a cost-effective and straightforward approach to extending the life of their **vinyl** and **leather** items without resorting to replacements or expensive professional repairs.
 
-## <a href="https://www.amazon.com/dp/B0FHV836WB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">2025 New Advanced Leather Repair Gel</a>
+## <a href="https://www.amazon.com/dp/B0FHV836WB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">2025 New Advanced Leather Repair Gel</a>
 
 
-<a href="https://www.amazon.com/dp/B0FHV836WB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="2025 New Advanced Leather Repair Gel, Leather Repair Kit for Car Seat Vinyl Repair Kit, Professional Leather Repair Coloured Cream Gel, Multifunctional Couch and Jacket Repair Kit (Black)" src="https://m.media-amazon.com/images/I/41cha5ygp4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FHV836WB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="2025 New Advanced Leather Repair Gel, Leather Repair Kit for Car Seat Vinyl Repair Kit, Professional Leather Repair Coloured Cream Gel, Multifunctional Couch and Jacket Repair Kit (Black)" src="https://m.media-amazon.com/images/I/41cha5ygp4L._SL500_.jpg"/></a>
 
 
 The **2025 New Advanced Leather Repair Gel** is ideal for individuals looking to restore and maintain their **car seats**, **vinyl surfaces**, **couches**, or **leather jackets**. Whether you are a car owner, furniture enthusiast, or someone who wants a professional-grade solution to fix scratches, cracks, or wear on **black leather items**, this repair kit offers an effective and convenient option. It is perfect for those seeking a simple, multifunctional product that delivers long-lasting results without the need for expensive replacements.
@@ -225,10 +225,10 @@ The **2025 New Advanced Leather Repair Gel** by **Auiepet** offers a high-qualit
 
 Beyond its cosmetic benefits, this repair gel also provides a durable finish that resists cracking and peeling, extending the life of your leather items. The ease of application means that even those without prior experience can achieve professional results, saving time and money on costly replacements. However, while it excels on minor to moderate damage, users should note its limitations on larger repairs or other leather colors. Overall, this product is a practical investment for anyone committed to keeping their black leather goods looking pristine.
 
-## <a href="https://www.amazon.com/dp/B0CCRGYSZJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Cream Leather Repair Kit</a>
+## <a href="https://www.amazon.com/dp/B0CCRGYSZJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Cream Leather Repair Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0CCRGYSZJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Cream Leather Repair Kit for Furniture, Car Seats, Sofa, Jacket and Purse, PU Leather Leather Repair Paint Gel for Repairing Tears &amp; Burn Holes, with Color Matching Guide &amp; Super Easy Instructions" src="https://m.media-amazon.com/images/I/51N0k9useNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CCRGYSZJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Cream Leather Repair Kit for Furniture, Car Seats, Sofa, Jacket and Purse, PU Leather Leather Repair Paint Gel for Repairing Tears &amp; Burn Holes, with Color Matching Guide &amp; Super Easy Instructions" src="https://m.media-amazon.com/images/I/51N0k9useNL._SL500_.jpg"/></a>
 
 
 The **Cream Leather Repair Kit** is ideal for anyone looking to restore the appearance of their **furniture, car seats, sofas, jackets, or purses** without the need for professional help. Whether you are a homeowner, car enthusiast, or fashion lover, this kit is perfect for those who want a quick, effective, and affordable solution to repair **tears** and **burn holes** in **PU leather** materials.
@@ -250,10 +250,10 @@ This **leather repair kit** features a specially formulated **paint gel** design
 
 The **super easy instructions** make the repair process accessible to users of all skill levels, eliminating the need for expensive professional repairs. By using this kit, customers can extend the life of their favorite leather items, saving money while achieving a polished, professional look. The versatility of this product means it can be used on a wide range of items, from household furniture to personal accessories, making it a valuable addition to any DIY repair toolkit.
 
-## <a href="https://www.amazon.com/dp/B0CLLPC9FS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Black Leather Repair Kit For Car Interior</a>
+## <a href="https://www.amazon.com/dp/B0CLLPC9FS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Black Leather Repair Kit For Car Interior</a>
 
 
-<a href="https://www.amazon.com/dp/B0CLLPC9FS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Black Leather Repair Kit for Car Interior, Leather Seat Repair Kit for Cars, Car Seats, Steering Wheel, Dashboard, Console, Easily Restores Faux, Artificial, Genuine Pleather With Easy Instructions" src="https://m.media-amazon.com/images/I/51P0MzR-hnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CLLPC9FS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Black Leather Repair Kit for Car Interior, Leather Seat Repair Kit for Cars, Car Seats, Steering Wheel, Dashboard, Console, Easily Restores Faux, Artificial, Genuine Pleather With Easy Instructions" src="https://m.media-amazon.com/images/I/51P0MzR-hnL._SL500_.jpg"/></a>
 
 
 The **Black Leather Repair Kit for Car Interior** by **MCTRHG** is ideal for car owners who want to maintain or restore the look of their **leather seats**, **steering wheels**, **dashboard**, and **console** without professional help. Whether you have **faux**, **artificial**, or **genuine pleather**, this repair kit is perfect for anyone seeking an easy and cost-effective solution to fix cracks, tears, or scratches in their car’s interior. It is especially suited for DIY enthusiasts and those looking to enhance the resale value of their vehicle.

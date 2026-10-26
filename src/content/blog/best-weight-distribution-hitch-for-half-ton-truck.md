@@ -23,10 +23,10 @@ Features such as shank size, drop or rise adjustment, and load capacity affect w
 
 
 
-## <a href="https://www.amazon.com/dp/B09MR9WS8F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Curt 17601 Trutrack 2p Round Bar Weight Distribution Hitch</a>
+## <a href="https://www.amazon.com/dp/B09MR9WS8F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Curt 17601 Trutrack 2p Round Bar Weight Distribution Hitch</a>
 
 
-<a href="https://www.amazon.com/dp/B09MR9WS8F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CURT 17601 TruTrack 2P Round Bar Weight Distribution Hitch with 2X Sway Control, Up to 10K, 2-in Shank, 2-5/16-Inch Ball" src="https://m.media-amazon.com/images/I/31ViCsDyHLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09MR9WS8F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CURT 17601 TruTrack 2P Round Bar Weight Distribution Hitch with 2X Sway Control, Up to 10K, 2-in Shank, 2-5/16-Inch Ball" src="https://m.media-amazon.com/images/I/31ViCsDyHLL._SL500_.jpg"/></a>
 
 
 The **CURT 17601 TruTrack 2P Round Bar Weight Distribution Hitch** is ideal for RV owners and trailer enthusiasts seeking enhanced towing stability and control. Perfect for those who frequently tow heavy loads up to **10,000 pounds**, this hitch is designed to provide superior sway control and weight distribution, making it a great choice for long trips and challenging road conditions. If you want to improve safety and handling while towing, this product is an excellent investment.
@@ -49,10 +49,10 @@ The **CURT 17601 TruTrack 2P** features a robust round bar design that effective
 
 Constructed from high-quality **carbon steel**, this hitch combines durability with strength, ensuring it can withstand tough towing conditions over time. The included **2-inch shank** and **2-5/16-inch ball** allow for flexible mounting options, accommodating a wide range of trailers. Overall, this hitch is engineered to provide users with confidence, stability, and improved towing performance on every journey.
 
-## <a href="https://www.amazon.com/dp/B004RCSKPO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Husky Towing Weight Distribution Hitch</a>
+## <a href="https://www.amazon.com/dp/B004RCSKPO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Husky Towing Weight Distribution Hitch</a>
 
 
-<a href="https://www.amazon.com/dp/B004RCSKPO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Husky Towing 30849 Weight Distribution Hitch" src="https://m.media-amazon.com/images/I/310Kc3vwG4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B004RCSKPO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Husky Towing 30849 Weight Distribution Hitch" src="https://m.media-amazon.com/images/I/310Kc3vwG4L._SL500_.jpg"/></a>
 
 
 The **Husky Towing 30849 Weight Distribution Hitch** is ideal for RV owners and trailer enthusiasts who frequently tow heavy loads and require enhanced stability and control. If you are looking to improve your towing experience by evenly distributing trailer weight across your vehicle’s axles, this hitch is designed for you. It is perfect for those who want to reduce trailer sway and improve braking performance on long journeys.
@@ -75,10 +75,10 @@ The **Husky Towing 30849 Weight Distribution Hitch** features a sturdy construct
 
 Additionally, the hitch’s design helps to minimize trailer sway, which is a common issue when towing heavy loads. By stabilizing the trailer, it enhances overall driving confidence and safety, especially on highways or uneven terrains. With the trusted backing of the **Husky** brand, users can expect a reliable and long-lasting towing solution that meets the demands of serious tow vehicle owners.
 
-## <a href="https://www.amazon.com/dp/B001GMTKUW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Curt 17124 Replacement Weight Distribution Hitch Shank</a>
+## <a href="https://www.amazon.com/dp/B001GMTKUW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Curt 17124 Replacement Weight Distribution Hitch Shank</a>
 
 
-<a href="https://www.amazon.com/dp/B001GMTKUW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CURT 17124 Replacement Weight Distribution Hitch Shank, 2-Inch Receiver, 8-3/4-Inch Drop" src="https://m.media-amazon.com/images/I/319-GWwFpVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B001GMTKUW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CURT 17124 Replacement Weight Distribution Hitch Shank, 2-Inch Receiver, 8-3/4-Inch Drop" src="https://m.media-amazon.com/images/I/319-GWwFpVL._SL500_.jpg"/></a>
 
 
 The **CURT 17124 Replacement Weight Distribution Hitch Shank** is ideal for trailer owners who need a reliable and sturdy connection between their towing vehicle and trailer. If you own a trailer with a 2-inch receiver and require an adjustable shank with an 8-3/4-inch drop, this product is perfect for you. It is especially suitable for those who prioritize safety, durability, and ease of installation in their towing setup.
@@ -100,10 +100,10 @@ The **CURT 17124 Replacement Weight Distribution Hitch Shank** is designed to pr
 
 Additionally, the black finish not only enhances the appearance but also protects the shank from rust and corrosion, increasing its lifespan. The compatibility with a 2-inch receiver makes it versatile and suitable for a wide range of towing vehicles. Overall, this hitch shank offers a practical and efficient solution for trailer owners seeking to enhance their towing experience with confidence and ease.
 
-## <a href="https://www.amazon.com/dp/B0B61YZP43?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Fastway Connect Weight Distribution Hitch</a>
+## <a href="https://www.amazon.com/dp/B0B61YZP43?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Fastway Connect Weight Distribution Hitch</a>
 
 
-<a href="https://www.amazon.com/dp/B0B61YZP43?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Fastway Connect™ Weight Distribution Hitch" src="https://m.media-amazon.com/images/I/31URi7WhldL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B61YZP43?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Fastway Connect™ Weight Distribution Hitch" src="https://m.media-amazon.com/images/I/31URi7WhldL._SL500_.jpg"/></a>
 
 
 The **Fastway Connect™ Weight Distribution Hitch** is an ideal choice for those who frequently tow trailers and are seeking enhanced control and safety during their journeys. Whether you're an avid camper, a boat owner, or someone who regularly hauls heavy loads, this hitch is designed to provide you with a smoother and more stable towing experience.
@@ -123,10 +123,10 @@ The **Fastway Connect™ Weight Distribution Hitch** features a robust design, e
 
 Additionally, the **black finish** of the hitch not only adds an aesthetic appeal but also provides a layer of protection against the elements. Manufactured by **Fastway Trailer Products**, a reputable name in the industry, this hitch promises reliability and quality. The ease of installation means you can spend less time setting up and more time enjoying your journey, making it a valuable investment for any serious towing enthusiast.
 
-## <a href="https://www.amazon.com/dp/B0DZCSYDFT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Weight Distribution Hitch With Sway Control Bar</a>
+## <a href="https://www.amazon.com/dp/B0DZCSYDFT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Weight Distribution Hitch With Sway Control Bar</a>
 
 
-<a href="https://www.amazon.com/dp/B0DZCSYDFT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Weight Distribution Hitch with Sway Control Bar, 14000lbs Towing Weight Distributing Hitches Kit, Anti Sway Control Hitch for Travel Trailer Camper, 2-Inch Shank, 2-5/16-Inch Ball" src="https://m.media-amazon.com/images/I/21jppVXhxpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DZCSYDFT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Weight Distribution Hitch with Sway Control Bar, 14000lbs Towing Weight Distributing Hitches Kit, Anti Sway Control Hitch for Travel Trailer Camper, 2-Inch Shank, 2-5/16-Inch Ball" src="https://m.media-amazon.com/images/I/21jppVXhxpL._SL500_.jpg"/></a>
 
 
 The **Weight Distribution Hitch with Sway Control Bar** is ideal for RV owners and travel trailer enthusiasts who require a reliable and sturdy towing solution. If you frequently tow heavy loads up to **14,000 lbs** or want enhanced stability for your travel trailer camper, this hitch kit is designed to provide optimal control and safety on the road. It’s perfect for those who value smooth towing experiences and want to reduce trailer sway, especially on long trips or challenging driving conditions.
@@ -147,10 +147,10 @@ The **Weight Distribution Hitch with Sway Control Bar** features a robust design
 
 Constructed by **Dollate**, this hitch kit is made with high-quality materials to withstand rigorous towing demands. Its compatibility with a **2-inch shank** and **2-5/16-inch ball** offers flexibility for various trailer setups, making it a versatile choice for many travel trailer and camper owners. Overall, this hitch provides an excellent balance of strength, stability, and ease of use, making it a valuable investment for serious tow vehicle owners.
 
-## <a href="https://www.amazon.com/dp/B07YLBJNX9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Reese 49912 Pro Round Bar Weight Distribution Hitch</a>
+## <a href="https://www.amazon.com/dp/B07YLBJNX9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Reese 49912 Pro Round Bar Weight Distribution Hitch</a>
 
 
-<a href="https://www.amazon.com/dp/B07YLBJNX9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Reese 49912 Pro Round Bar Weight Distribution Hitch with Sway Control, 8,000 lbs. Capacity, Fits Up to 7 Inch Trailer Frames, 8.5 Inch Drop Shank Included" src="https://m.media-amazon.com/images/I/31vjnkM9XIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07YLBJNX9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Reese 49912 Pro Round Bar Weight Distribution Hitch with Sway Control, 8,000 lbs. Capacity, Fits Up to 7 Inch Trailer Frames, 8.5 Inch Drop Shank Included" src="https://m.media-amazon.com/images/I/31vjnkM9XIL._SL500_.jpg"/></a>
 
 
 The **Reese 49912 Pro Round Bar Weight Distribution Hitch with Sway Control** is ideal for trailer owners who need to safely tow heavy loads with improved stability. If you frequently haul trailers weighing up to **8,000 lbs** and want to reduce trailer sway while maintaining control, this hitch is an excellent choice. It is particularly suitable for those with trailers that have frames up to **7 inches** wide and need the flexibility of an **8.5 inch drop shank** included for proper height adjustment.
@@ -173,10 +173,10 @@ The **Reese 49912 Pro Round Bar Weight Distribution Hitch** stands out for its r
 
 Featuring an **8.5 inch drop shank**, the hitch accommodates trailers with lower coupler heights, ensuring a level towing setup that is crucial for stability. The compatibility with trailer frames up to **7 inches** wide makes it versatile for a variety of trailer types. Overall, this product combines strength, safety, and adaptability, making it a dependable choice for serious trailer owners.
 
-## <a href="https://www.amazon.com/dp/B0CFDZNW56?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Veovr Weight Distribution Hitch</a>
+## <a href="https://www.amazon.com/dp/B0CFDZNW56?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Veovr Weight Distribution Hitch</a>
 
 
-<a href="https://www.amazon.com/dp/B0CFDZNW56?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="VEOVR Weight Distribution Hitch, 1,000 lbs Weight Distributing Hitches Kit with Sway Control for Trailer, 2-in Solid Steel Shank, 2-5/16 in Alloy Steel Ball, Powder Coated Load Leveling Hitch, Black" src="https://m.media-amazon.com/images/I/31MW7j5JxoL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CFDZNW56?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="VEOVR Weight Distribution Hitch, 1,000 lbs Weight Distributing Hitches Kit with Sway Control for Trailer, 2-in Solid Steel Shank, 2-5/16 in Alloy Steel Ball, Powder Coated Load Leveling Hitch, Black" src="https://m.media-amazon.com/images/I/31MW7j5JxoL._SL500_.jpg"/></a>
 
 
 The **VEVOR Weight Distribution Hitch** is ideal for trailer owners who frequently tow heavy loads and require enhanced stability and control. This product is perfect for individuals looking to improve their towing experience by evenly distributing the trailer's weight, minimizing sway, and enhancing safety on the road.
@@ -198,10 +198,10 @@ The **VEVOR Weight Distribution Hitch** is engineered with a robust **2-in solid
 
 This hitch kit features an integrated **sway control** system that significantly reduces trailer sway caused by wind or road conditions, enhancing safety and driver confidence. By distributing the trailer's tongue weight across the towing vehicle and trailer axles, it helps maintain proper load balance, reducing strain on the vehicle’s suspension and improving overall ride quality.
 
-## <a href="https://www.amazon.com/dp/B07GBFW1N1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Curt 17131 Replacement Weight Distribution Hitch Shank</a>
+## <a href="https://www.amazon.com/dp/B07GBFW1N1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Curt 17131 Replacement Weight Distribution Hitch Shank</a>
 
 
-<a href="https://www.amazon.com/dp/B07GBFW1N1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CURT 17131 Replacement Weight Distribution Hitch Shank, 2-1/2-Inch Receiver, 2-Inch Drop, 6-Inch Rise" src="https://m.media-amazon.com/images/I/41A0-9+ZvsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07GBFW1N1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CURT 17131 Replacement Weight Distribution Hitch Shank, 2-1/2-Inch Receiver, 2-Inch Drop, 6-Inch Rise" src="https://m.media-amazon.com/images/I/41A0-9+ZvsL._SL500_.jpg"/></a>
 
 
 The **CURT 17131 Replacement Weight Distribution Hitch Shank** is ideal for RV owners and towing enthusiasts who need a reliable and durable solution to adjust their hitch height. If you have a trailer with a 2-1/2-inch receiver and require a precise fit with a 2-inch drop and 6-inch rise, this hitch shank is designed to provide optimal towing stability and balance. It is perfect for those who want to enhance safety and control while towing heavy loads.
@@ -222,10 +222,10 @@ The **CURT 17131 Replacement Weight Distribution Hitch Shank** is engineered to 
 
 Installing this hitch shank allows users to customize their towing setup, accommodating trailers that require a drop or rise adjustment. This flexibility benefits users by improving trailer levelness, which leads to safer braking and handling. Overall, the CURT 17131 offers a dependable and straightforward solution for those needing a high-quality replacement shank in their weight distribution system.
 
-## <a href="https://www.amazon.com/dp/B01I3JCFA2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Curt 17512 Trutrack Weight Distribution Hitch Spring Bar Lift Handle</a>
+## <a href="https://www.amazon.com/dp/B01I3JCFA2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Curt 17512 Trutrack Weight Distribution Hitch Spring Bar Lift Handle</a>
 
 
-<a href="https://www.amazon.com/dp/B01I3JCFA2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CURT 17512 TruTrack Weight Distribution Hitch Spring Bar Lift Handle, CARBIDE BLACK POWDER COAT" src="https://m.media-amazon.com/images/I/21SZ8qwoecL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01I3JCFA2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CURT 17512 TruTrack Weight Distribution Hitch Spring Bar Lift Handle, CARBIDE BLACK POWDER COAT" src="https://m.media-amazon.com/images/I/21SZ8qwoecL._SL500_.jpg"/></a>
 
 
 The **CURT 17512 TruTrack Weight Distribution Hitch Spring Bar Lift Handle** in **CARBIDE BLACK POWDER COAT** is ideal for RV owners and trailer enthusiasts who require an efficient and durable solution for lifting and handling their weight distribution hitches. If you frequently tow heavy trailers or campers and want an easier way to manage your spring bars safely and comfortably, this product is designed for you.
@@ -247,10 +247,10 @@ The **CURT 17512 TruTrack Weight Distribution Hitch Spring Bar Lift Handle** fea
 
 Beyond its physical attributes, this handle significantly enhances user safety and convenience. By providing extra leverage, it reduces the physical strain typically involved in handling heavy spring bars, which is especially beneficial during frequent hitch adjustments. Its precise fit for CURT's TruTrack system ensures optimal performance, minimizing the risk of improper handling that could lead to trailer instability or damage. Overall, this handle is a practical accessory for those looking to improve their towing experience with reliable and user-friendly equipment.
 
-## <a href="https://www.amazon.com/dp/B001EOV4NS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Curt 17123 Replacement Weight Distribution Hitch Shank</a>
+## <a href="https://www.amazon.com/dp/B001EOV4NS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Curt 17123 Replacement Weight Distribution Hitch Shank</a>
 
 
-<a href="https://www.amazon.com/dp/B001EOV4NS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CURT 17123 Replacement Weight Distribution Hitch Shank, 2-Inch Receiver, 7-Inch Drop, 10-1/2-Inch Rise" src="https://m.media-amazon.com/images/I/31uFpIitwML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B001EOV4NS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CURT 17123 Replacement Weight Distribution Hitch Shank, 2-Inch Receiver, 7-Inch Drop, 10-1/2-Inch Rise" src="https://m.media-amazon.com/images/I/31uFpIitwML._SL500_.jpg"/></a>
 
 
 The **CURT 17123 Replacement Weight Distribution Hitch Shank** is ideal for RV owners and trailer enthusiasts who need a reliable and sturdy hitch component to ensure safe towing. This product is perfect for those looking to improve the balance and handling of their trailers, especially when dealing with heavier loads or uneven weight distribution.

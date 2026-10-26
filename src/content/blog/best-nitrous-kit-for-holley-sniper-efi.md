@@ -23,10 +23,10 @@ Quality fuel pumps and ignition kits ensure smooth power delivery during nitrous
 
 
 
-## <a href="https://www.amazon.com/dp/B0B149MX9G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Holley Sniper Efi 565-300k Hyperspark Distributor Master Kit</a>
+## <a href="https://www.amazon.com/dp/B0B149MX9G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Holley Sniper Efi 565-300k Hyperspark Distributor Master Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0B149MX9G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Holley Sniper EFI 565-300K HyperSpark Distributor Master Kit" src="https://m.media-amazon.com/images/I/310KFxB46NL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B149MX9G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Holley Sniper EFI 565-300K HyperSpark Distributor Master Kit" src="https://m.media-amazon.com/images/I/310KFxB46NL._SL500_.jpg"/></a>
 
 
 The **Holley Sniper EFI 565-300K HyperSpark Distributor Master Kit** is ideal for automotive enthusiasts and professionals looking to upgrade their engine's ignition system for improved performance and reliability. This kit is perfect for those who want a high-quality, easy-to-install distributor system compatible with electronic fuel injection setups, especially for classic car restorations or high-performance builds.
@@ -49,10 +49,10 @@ The **Holley Sniper EFI 565-300K HyperSpark Distributor Master Kit** features a 
 
 Additionally, the kit’s comprehensive nature means users receive all necessary components in one package, simplifying the upgrade process. The compact size of the kit allows it to fit easily into a variety of engine compartments without requiring extensive modifications. Overall, this kit offers a significant performance upgrade for those seeking better ignition control, improved throttle response, and enhanced fuel efficiency in their vehicle.
 
-## <a href="https://www.amazon.com/dp/B0062OSEP6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Msd 2900 Atomic Efi Master Kit</a>
+## <a href="https://www.amazon.com/dp/B0062OSEP6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Msd 2900 Atomic Efi Master Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0062OSEP6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MSD 2900 Atomic EFI Master Kit" src="https://m.media-amazon.com/images/I/41oFygRuqNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0062OSEP6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MSD 2900 Atomic EFI Master Kit" src="https://m.media-amazon.com/images/I/41oFygRuqNL._SL500_.jpg"/></a>
 
 
 The **MSD 2900 Atomic EFI Master Kit** is ideal for automotive enthusiasts and professional mechanics looking to upgrade their vehicle's fuel injection system for enhanced performance and reliability. This kit is perfect for those who want a comprehensive, all-in-one solution that simplifies the installation of electronic fuel injection (EFI) systems in classic cars, muscle cars, or custom builds.
@@ -75,10 +75,10 @@ The **MSD 2900 Atomic EFI Master Kit** features a compact design with dimensions
 
 One of the standout benefits of this kit is its ability to significantly enhance engine performance by providing precise fuel delivery and improved throttle response. Users will appreciate the increased fuel efficiency and smoother engine operation that comes with switching to an advanced EFI system like the MSD 2900. Furthermore, its robust build quality from the trusted MSD brand ensures long-lasting reliability and support, making it a worthy investment for any vehicle upgrade project.
 
-## <a href="https://www.amazon.com/dp/B07BHG28RF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Holley Sniper Efi Electric Fuel Pump</a>
+## <a href="https://www.amazon.com/dp/B07BHG28RF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Holley Sniper Efi Electric Fuel Pump</a>
 
 
-<a href="https://www.amazon.com/dp/B07BHG28RF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Holley Sniper EFI 19-369 340 LPH E85 In-Tank Electric Fuel Pump" src="https://m.media-amazon.com/images/I/31K1OyAIAeL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07BHG28RF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Holley Sniper EFI 19-369 340 LPH E85 In-Tank Electric Fuel Pump" src="https://m.media-amazon.com/images/I/31K1OyAIAeL._SL500_.jpg"/></a>
 
 
 The **Holley Sniper EFI 19-369 340 LPH E85 In-Tank Electric Fuel Pump** is ideal for automotive enthusiasts and professional mechanics seeking a reliable and efficient fuel delivery system compatible with **E85 fuel**. This pump is perfect for those upgrading their fuel systems for high-performance vehicles or anyone needing a durable in-tank solution that supports increased fuel flow requirements.
@@ -100,10 +100,10 @@ The **Holley Sniper EFI 19-369** fuel pump stands out with its impressive **340 
 
 Constructed with a compact and lightweight design, this in-tank electric fuel pump fits seamlessly into a variety of fuel tanks without adding unnecessary bulk. The precision engineering from **Holley Sniper EFI** ensures that the pump operates quietly and efficiently, reducing wear on the fuel system and improving overall vehicle performance. Users will appreciate the balance of power, durability, and convenience this pump delivers in demanding automotive environments.
 
-## <a href="https://www.amazon.com/dp/B0742RV889?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Holley Efi Wbo2 Sensor</a>
+## <a href="https://www.amazon.com/dp/B0742RV889?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Holley Efi Wbo2 Sensor</a>
 
 
-<a href="https://www.amazon.com/dp/B0742RV889?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Holley EFI Wbo2 Sensor, Sniper Tbi" src="https://m.media-amazon.com/images/I/411EOfTcRyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0742RV889?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Holley EFI Wbo2 Sensor, Sniper Tbi" src="https://m.media-amazon.com/images/I/411EOfTcRyL._SL500_.jpg"/></a>
 
 
 The **Holley EFI Wbo2 Sensor, Sniper Tbi** is an ideal choice for automotive enthusiasts and professionals who require precise air-fuel ratio monitoring for their fuel injection systems. If you are looking to enhance engine performance, achieve better fuel efficiency, and reduce emissions, this sensor is designed to integrate seamlessly with Holley's EFI systems, making it perfect for those using the Sniper throttle body injection setup.
@@ -126,10 +126,10 @@ The **Holley EFI Wbo2 Sensor** is engineered to provide precise feedback on the 
 
 Additionally, the sensor’s integration into the Holley EFI ecosystem means users can benefit from streamlined setup and reliable data communication. The improved efficiency not only enhances power output but also contributes to reduced fuel consumption and lower emissions, making it a practical choice for those who prioritize both performance and environmental responsibility.
 
-## <a href="https://www.amazon.com/dp/B09Z7B21VS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Holley Sniper Efi Digital Dash</a>
+## <a href="https://www.amazon.com/dp/B09Z7B21VS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Holley Sniper Efi Digital Dash</a>
 
 
-<a href="https://www.amazon.com/dp/B09Z7B21VS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Holley Sniper EFI 553-200 5-Inch Digital Dash" src="https://m.media-amazon.com/images/I/41TxYsX55CL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09Z7B21VS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Holley Sniper EFI 553-200 5-Inch Digital Dash" src="https://m.media-amazon.com/images/I/41TxYsX55CL._SL500_.jpg"/></a>
 
 
 The **Holley Sniper EFI 553-200 5-Inch Digital Dash** is ideal for automotive enthusiasts and professional racers looking to upgrade their vehicle's dashboard with a modern, easy-to-read digital display. This product is perfect for those who want precise engine monitoring and a sleek interface that enhances both performance and aesthetics. If you are seeking a reliable, feature-rich digital dash to replace traditional gauges, this item is a great choice.
@@ -150,10 +150,10 @@ The **Holley Sniper EFI 553-200 Digital Dash** features a vibrant 5-inch multico
 
 Beyond aesthetics, the digital dash enhances the driving experience by offering customizable alerts and data readouts that help users maintain engine health and performance. The lightweight construction contributes to ease of installation and reduces dashboard clutter. Overall, the **Holley Sniper EFI 553-200** combines advanced technology with user-friendly features, making it a valuable upgrade for anyone serious about engine management and vehicle monitoring.
 
-## <a href="https://www.amazon.com/dp/B0B3Q88HTD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Holley Sniper Efi Hyperspark Master Kit</a>
+## <a href="https://www.amazon.com/dp/B0B3Q88HTD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Holley Sniper Efi Hyperspark Master Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0B3Q88HTD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="NEW HOLLEY SNIPER EFI HYPERSPARK MASTER KIT, DISTRIBUTOR, IGNITION BOX, COIL, HARNESS, COMPATIBLE WITH СHEVY SMALL &amp; BIG BLOCK" src="https://m.media-amazon.com/images/I/31KSjjNB6hL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B3Q88HTD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="NEW HOLLEY SNIPER EFI HYPERSPARK MASTER KIT, DISTRIBUTOR, IGNITION BOX, COIL, HARNESS, COMPATIBLE WITH СHEVY SMALL &amp; BIG BLOCK" src="https://m.media-amazon.com/images/I/31KSjjNB6hL._SL500_.jpg"/></a>
 
 
 The **NEW HOLLEY SNIPER EFI HYPERSPARK MASTER KIT** is ideal for automotive enthusiasts and mechanics looking to upgrade or replace the ignition system in their **Chevy Small & Big Block** engines. This product is perfect for those who desire enhanced performance, reliability, and efficiency in their vehicle's ignition system.
@@ -174,10 +174,10 @@ The **NEW HOLLEY SNIPER EFI HYPERSPARK MASTER KIT** offers a complete solution f
 
 One of the standout features of this kit is its ability to significantly enhance **performance** and **efficiency**. The components are designed to work in harmony, providing a more reliable spark and improved combustion. This not only boosts the overall power of the engine but also contributes to better fuel economy. For those looking to maximize their engine's potential, the **NEW HOLLEY SNIPER EFI HYPERSPARK MASTER KIT** offers a comprehensive and efficient solution.
 
-## <a href="https://www.amazon.com/dp/B07TYWDPCG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Holley Sniper Efi</a>
+## <a href="https://www.amazon.com/dp/B07TYWDPCG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Holley Sniper Efi</a>
 
 
-<a href="https://www.amazon.com/dp/B07TYWDPCG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Holley Sniper EFI 553-115 Sniper EFI 3.5" src="https://m.media-amazon.com/images/I/4195zxwZMTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07TYWDPCG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Holley Sniper EFI 553-115 Sniper EFI 3.5" src="https://m.media-amazon.com/images/I/4195zxwZMTL._SL500_.jpg"/></a>
 
 
 The **Holley Sniper EFI 553-115 Sniper EFI 3.5" Touch Screen LCD** is ideal for automotive enthusiasts and professional mechanics looking to upgrade their engine management system with a user-friendly, advanced fuel injection controller. This product is perfect for those who want precise control over their vehicle's fuel delivery for improved performance, fuel efficiency, and drivability.
@@ -200,10 +200,10 @@ The **Holley Sniper EFI 553-115** features a bright and responsive **3.5-inch to
 
 Built by **Holley Sniper EFI**, this device integrates seamlessly with a variety of engine setups, offering precise control over fuel delivery. The benefits include improved horsepower, smoother idle, and enhanced throttle response. Additionally, users can expect better fuel economy and reduced emissions compared to traditional carburetor systems or less sophisticated EFI controllers. This product stands out as a reliable and effective upgrade for anyone serious about optimizing their vehicle's performance.
 
-## <a href="https://www.amazon.com/dp/B09QRR4ZQ9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Holley Sniper Efi Hyperspark Ignition Install Kit</a>
+## <a href="https://www.amazon.com/dp/B09QRR4ZQ9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Holley Sniper Efi Hyperspark Ignition Install Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B09QRR4ZQ9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Holley Sniper EFI Hyperspark Ignition Install Kit,Coil/Box/Wiring" src="https://m.media-amazon.com/images/I/51zKS3mgsHL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09QRR4ZQ9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Holley Sniper EFI Hyperspark Ignition Install Kit,Coil/Box/Wiring" src="https://m.media-amazon.com/images/I/51zKS3mgsHL._SL500_.jpg"/></a>
 
 
 The **Holley Sniper EFI Hyperspark Ignition Install Kit** is ideal for automotive enthusiasts and professionals looking to upgrade their vehicle's ignition system for improved performance and reliability. If you own a classic car, hot rod, or a custom build that requires a modern, efficient ignition solution, this kit offers a comprehensive package that simplifies installation and enhances engine management.
@@ -226,10 +226,10 @@ The **Holley Sniper EFI Hyperspark Ignition Install Kit** features a well-engine
 
 Additionally, the compact and organized wiring setup reduces installation time and minimizes potential electrical issues. Users benefit from a cleaner engine bay and a more straightforward troubleshooting process. Whether upgrading an older ignition system or building a new EFI setup, this install kit delivers consistent performance improvements and enhances the overall driving experience.
 
-## <a href="https://www.amazon.com/dp/B01EMSZI2U?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Holley Sniper Efi Fuel Rail Kit</a>
+## <a href="https://www.amazon.com/dp/B01EMSZI2U?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Holley Sniper Efi Fuel Rail Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B01EMSZI2U?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Holley Sniper EFI 850002 Fuel Rail Kit - Sniper EFI Manifold LS3/L92 V8" src="https://m.media-amazon.com/images/I/41OZzw3DaKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01EMSZI2U?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Holley Sniper EFI 850002 Fuel Rail Kit - Sniper EFI Manifold LS3/L92 V8" src="https://m.media-amazon.com/images/I/41OZzw3DaKL._SL500_.jpg"/></a>
 
 
 The **Holley Sniper EFI 850002 Fuel Rail Kit** is perfect for automotive enthusiasts and professional mechanics looking to upgrade or maintain their **LS3/L92 V8 engines**. Ideal for those who demand high performance and reliability from their fuel delivery systems, this kit is designed for users seeking precision and ease of installation in their fuel injection setup.
@@ -251,10 +251,10 @@ The **Holley Sniper EFI 850002 Fuel Rail Kit** offers exceptional fuel delivery 
 
 Additionally, the kit’s tailored design simplifies the installation process when paired with the **Sniper EFI Manifold LS3/L92 V8**. This integration reduces setup time and enhances fuel system performance, ultimately contributing to smoother engine operation and better throttle response. Its lightweight and compact form factor also help maintain overall engine bay organization and aesthetics.
 
-## <a href="https://www.amazon.com/dp/B000GVMPXS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Holley Sniper Twin Fuel Pump And Manifold Kit</a>
+## <a href="https://www.amazon.com/dp/B000GVMPXS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Holley Sniper Twin Fuel Pump And Manifold Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B000GVMPXS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Holley Sniper 12-270 3.5 GPM Twin Fuel Pump and Manifold Kit" src="https://m.media-amazon.com/images/I/41y28dyxSrL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000GVMPXS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Holley Sniper 12-270 3.5 GPM Twin Fuel Pump and Manifold Kit" src="https://m.media-amazon.com/images/I/41y28dyxSrL._SL500_.jpg"/></a>
 
 
 The **Holley Sniper 12-270 3.5 GPM Twin Fuel Pump and Manifold Kit** is ideal for automotive enthusiasts and professional mechanics who require a reliable and high-performance fuel delivery system. This kit is perfect for those upgrading their fuel system for enhanced engine performance or for custom EFI setups that demand consistent fuel flow and pressure.

@@ -23,10 +23,10 @@ Carbon fiber and stainless steel tips add style and strength. Proper installatio
 
 
 
-## <a href="https://www.amazon.com/dp/B0022ZAFOC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> E3 Spark Plugs E3.36 Premium Powersports Spark Plug </a>
+## <a href="https://www.amazon.com/dp/B0022ZAFOC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> E3 Spark Plugs E3.36 Premium Powersports Spark Plug </a>
 
 
-<a href="https://www.amazon.com/dp/B0022ZAFOC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="E3 Spark Plugs E3.36 Premium Powersports Spark Plug for V-Twin Motorcycles, Harley Davidson Engines, and Other High-Performance Powersport Vehicles, Pack of 1" src="https://m.media-amazon.com/images/I/31Ip909nbGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0022ZAFOC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="E3 Spark Plugs E3.36 Premium Powersports Spark Plug for V-Twin Motorcycles, Harley Davidson Engines, and Other High-Performance Powersport Vehicles, Pack of 1" src="https://m.media-amazon.com/images/I/31Ip909nbGL._SL500_.jpg"/></a>
 
 
 The **E3 Spark Plugs E3.36 Premium Powersports Spark Plug** is ideal for riders and enthusiasts who own **V-Twin motorcycles**, including **Harley Davidson engines** and other **high-performance powersport vehicles**. If you are looking to enhance your engine’s efficiency, improve fuel combustion, and maintain reliable performance under demanding conditions, this spark plug is designed to meet those needs.
@@ -48,10 +48,10 @@ The **E3.36 Premium Powersports Spark Plug** features a carefully engineered des
 
 With compact dimensions of **0.8 inches in height, 4.5 inches in width, and 6.5 inches in length**, this spark plug is designed to fit seamlessly into your engine setup without modifications. The enhanced combustion capability not only increases power output but also reduces emissions, making it an environmentally friendlier choice. For enthusiasts seeking to maintain or upgrade their motorcycle’s performance, the **E3 Spark Plugs E3.36** offers a reliable and efficient solution.
 
-## <a href="https://www.amazon.com/dp/B07QJV3FSP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sharkroad 4.0 Inch Slip Exhaust For Harley</a>
+## <a href="https://www.amazon.com/dp/B07QJV3FSP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sharkroad 4.0 Inch Slip Exhaust For Harley</a>
 
 
-<a href="https://www.amazon.com/dp/B07QJV3FSP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SHARKROAD 4.0 Inch Slip Exhaust for Harley-slip-on-mufflers Upgrade, Harley Mufflers for 2017-2023 Touring Street-glide-mufflers, Road-king-slip-on-exhaust, Road-glide-slip-ons etc." src="https://m.media-amazon.com/images/I/3184GEtAY4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07QJV3FSP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SHARKROAD 4.0 Inch Slip Exhaust for Harley-slip-on-mufflers Upgrade, Harley Mufflers for 2017-2023 Touring Street-glide-mufflers, Road-king-slip-on-exhaust, Road-glide-slip-ons etc." src="https://m.media-amazon.com/images/I/3184GEtAY4L._SL500_.jpg"/></a>
 
 
 The **SHARKROAD 4.0 Inch Slip Exhaust** is ideal for motorcycle enthusiasts who own Harley-Davidson Touring models from 2017 to 2023, including Street Glide, Road King, and Road Glide. If you're looking to upgrade your bike's exhaust system for enhanced performance and a deeper, more aggressive sound, this slip-on muffler is tailored for you. Riders seeking a balance between style, durability, and improved exhaust flow will find this product particularly beneficial.
@@ -74,10 +74,10 @@ The **SHARKROAD 4.0 Inch Slip Exhaust** offers a significant upgrade over stock 
 
 Beyond performance, this exhaust system is designed to elevate the auditory experience of your Harley-Davidson Touring bike. The deep, throaty roar produced by the SHARKROAD slip-on mufflers not only commands attention on the road but also enhances the overall riding pleasure. Additionally, the sleek **20BB color finish** adds a refined aesthetic that complements the classic Harley look, making it a popular choice for riders who want both form and function in their exhaust upgrade.
 
-## <a href="https://www.amazon.com/dp/B0DLV8J7B8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Comet-f End Cap</a>
+## <a href="https://www.amazon.com/dp/B0DLV8J7B8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Comet-f End Cap</a>
 
 
-<a href="https://www.amazon.com/dp/B0DLV8J7B8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img src="https://m.media-amazon.com/images/I/417dO1s8eEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DLV8J7B8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img src="https://m.media-amazon.com/images/I/417dO1s8eEL._SL500_.jpg"/></a>
 
 
 The **"Comet-F" End Cap** is ideal for vehicle owners looking to enhance the appearance and performance of their exhaust system. Specifically designed to fit **Tab Performance/Exhaust Muffler Tips** with a 4.5" diameter, this accessory is perfect for those who want a sleek, durable finish in **Glacier Black** that complements their vehicle's aesthetics. If you are seeking an affordable and easy-to-install solution to upgrade your exhaust tip, this product is a great choice.
@@ -100,10 +100,10 @@ The **"Comet-F" End Cap** offers a robust and stylish finish to your existing **
 
 Designed by **Just The Exhaust Tip**, the product ensures a perfect fit for 4.5" diameter tips, making installation straightforward and hassle-free. This means users can quickly upgrade their vehicle's exhaust without professional help or additional modifications. Ultimately, this end cap combines aesthetic appeal with practical protection, making it an excellent addition for car enthusiasts focused on both style and durability.
 
-## <a href="https://www.amazon.com/dp/B0FD3P9385?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">General Motorcycle Exhaust Pipe</a>
+## <a href="https://www.amazon.com/dp/B0FD3P9385?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">General Motorcycle Exhaust Pipe</a>
 
 
-<a href="https://www.amazon.com/dp/B0FD3P9385?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="General motorcycle exhaust pipe, high-performance carbon fiber muffler tip, suitable for Harley-Davidson, off-road motorcycles, motorcycle stainless steel and aluminum structure (black)" src="https://m.media-amazon.com/images/I/31Ir9d4RzAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FD3P9385?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="General motorcycle exhaust pipe, high-performance carbon fiber muffler tip, suitable for Harley-Davidson, off-road motorcycles, motorcycle stainless steel and aluminum structure (black)" src="https://m.media-amazon.com/images/I/31Ir9d4RzAL._SL500_.jpg"/></a>
 
 
 The **General motorcycle exhaust pipe** with a **high-performance carbon fiber muffler tip** is ideal for motorcycle enthusiasts who own a **Harley-Davidson** or off-road motorcycles and seek to upgrade their exhaust system for enhanced performance and style. This product is perfect for riders looking for a durable and lightweight exhaust component made from **stainless steel** and **aluminum** with a sleek black finish that complements their bike’s aesthetics.
@@ -126,10 +126,10 @@ The **General motorcycle exhaust pipe** features a robust construction combining
 
 With precise dimensions and a sleek black finish, this exhaust pipe effortlessly integrates with the design of **Harley-Davidson** and off-road motorcycles. Riders benefit from both aesthetic upgrades and functional improvements, such as reduced weight and enhanced exhaust efficiency. Whether upgrading for performance or style, this exhaust pipe offers an excellent balance of quality and compatibility, making it a worthy addition for riders seeking to elevate their motorcycle experience.
 
-## <a href="https://www.amazon.com/dp/B0C2GXW47G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Exhaust Gasket Seal Installer Tool</a>
+## <a href="https://www.amazon.com/dp/B0C2GXW47G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Exhaust Gasket Seal Installer Tool</a>
 
 
-<a href="https://www.amazon.com/dp/B0C2GXW47G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Exhaust Gasket Seal Installer Tool for Harley Davidson" src="https://m.media-amazon.com/images/I/41AXYlnducL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C2GXW47G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Exhaust Gasket Seal Installer Tool for Harley Davidson" src="https://m.media-amazon.com/images/I/41AXYlnducL._SL500_.jpg"/></a>
 
 
 The **Exhaust Gasket Seal Installer Tool for Harley Davidson** is perfect for motorcycle enthusiasts and professional mechanics who frequently work with **Harley Davidson** bikes. This tool is essential for those looking to maintain or upgrade their bike's exhaust system with precision and ease. Whether you're a DIY hobbyist or running a repair shop, this tool will streamline your workflow and ensure a secure installation.
@@ -149,10 +149,10 @@ The **Exhaust Gasket Seal Installer Tool** by **Bisrollnaa** offers a range of f
 
 One of the standout benefits of this tool is its **user-friendly design**. Even those new to motorcycle maintenance will find it easy to handle, thanks to its intuitive structure. Additionally, the tool's compatibility with a wide array of **Harley Davidson** models means it can be a staple in any mechanic’s toolkit, saving time and effort that would otherwise be spent on adjustments or modifications.
 
-## <a href="https://www.amazon.com/dp/B0DKFDZ1G9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Icyhaws Cone Exhaust Gasket</a>
+## <a href="https://www.amazon.com/dp/B0DKFDZ1G9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Icyhaws Cone Exhaust Gasket</a>
 
 
-<a href="https://www.amazon.com/dp/B0DKFDZ1G9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Icyhaws 2PCS Cone Exhaust Gasket, Made of Graphite and Steel, Compatible with 1984-Later Most Harley Davidson Touring, Sportster, Bikes, Softail, Dyna, etc." src="https://m.media-amazon.com/images/I/31fcXjFlOdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DKFDZ1G9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Icyhaws 2PCS Cone Exhaust Gasket, Made of Graphite and Steel, Compatible with 1984-Later Most Harley Davidson Touring, Sportster, Bikes, Softail, Dyna, etc." src="https://m.media-amazon.com/images/I/31fcXjFlOdL._SL500_.jpg"/></a>
 
 
 The **Icyhaws 2PCS Cone Exhaust Gasket** is ideal for motorcycle enthusiasts and owners of **Harley Davidson Touring, Sportster, Softail, Dyna** models from 1984 and later who are looking for a reliable and durable exhaust gasket solution. If you want to maintain optimal performance and prevent exhaust leaks on your bike, this product is designed to fit most Harley Davidson bikes, making it a perfect replacement part for routine maintenance or repairs.
@@ -174,10 +174,10 @@ The **Icyhaws 2PCS Cone Exhaust Gasket** combines **graphite and steel materials
 
 In addition to durability, the gasket's design facilitates an easy installation process, allowing users to replace worn-out or damaged gaskets efficiently. By maintaining a proper seal, the exhaust gasket helps improve engine noise control and reduces emissions. Overall, the **Icyhaws exhaust gasket** is an essential component for riders seeking to preserve their motorcycle’s performance and longevity.
 
-## <a href="https://www.amazon.com/dp/B0DT8T31BC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vpzmt 1.75" Muffler Exhaust Clamp</a>
+## <a href="https://www.amazon.com/dp/B0DT8T31BC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vpzmt 1.75" Muffler Exhaust Clamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0DT8T31BC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VPZMT 1.75" src="https://m.media-amazon.com/images/I/41mU1SEFlIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DT8T31BC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VPZMT 1.75" src="https://m.media-amazon.com/images/I/41mU1SEFlIL._SL500_.jpg"/></a>
 
 
 The **VPZMT 1.75" Muffler Exhaust Clamp** is ideal for motorcycle enthusiasts who own Harley models such as **Touring**, **Street Glide**, **Electra Glide**, **Road King**, or **Road Glide**. This product is perfect for riders seeking a reliable and durable exhaust clamp made from high-quality materials to ensure secure and long-lasting performance. If you want to maintain or upgrade your Harley's exhaust system with ease, this stainless steel clamp is designed specifically for you.
@@ -199,10 +199,10 @@ The **VPZMT 1.75" Muffler Exhaust Clamp** boasts a solid construction using **St
 
 Designed specifically for popular Harley-Davidson touring models, this clamp allows for a snug and secure fit. This reduces exhaust leaks and helps maintain optimal exhaust flow, contributing to better engine performance and a smoother ride. Additionally, the trusted manufacturing by **VPZMT** guarantees that you’re investing in a high-quality, reliable product made to withstand the demands of the open road. Overall, this exhaust clamp combines functionality, durability, and style in one compact package.
 
-## <a href="https://www.amazon.com/dp/B09BFHX9M5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">New Exhaust Flange Install Kit Pair</a>
+## <a href="https://www.amazon.com/dp/B09BFHX9M5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">New Exhaust Flange Install Kit Pair</a>
 
 
-<a href="https://www.amazon.com/dp/B09BFHX9M5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="New Exhaust Flange Install Kit Pair Flanges Gaskets C-Clips Nuts Washers for Harley Davidson" src="https://m.media-amazon.com/images/I/31miTtq9+9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09BFHX9M5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="New Exhaust Flange Install Kit Pair Flanges Gaskets C-Clips Nuts Washers for Harley Davidson" src="https://m.media-amazon.com/images/I/31miTtq9+9L._SL500_.jpg"/></a>
 
 
 The **New Exhaust Flange Install Kit Pair** is ideal for Harley Davidson owners who are looking to replace or upgrade their exhaust system components. This kit is perfect for riders who want to ensure a secure and reliable fit, prevent exhaust leaks, and maintain the performance and aesthetics of their motorcycle. Whether you are a DIY enthusiast or a professional mechanic, this install kit provides all the essential parts needed for a hassle-free installation.
@@ -224,10 +224,10 @@ This exhaust flange install kit features precision-engineered components that en
 
 By choosing this kit from **Jetuplusllc**, users benefit from high-quality materials designed to endure the demanding conditions of motorcycle riding. The corrosion-resistant finish extends the lifespan of these parts, even in harsh weather conditions. Overall, this install kit not only simplifies the maintenance process but also contributes to the longevity and efficiency of your Harley Davidson's exhaust system, making it a valuable addition for any rider aiming to keep their bike in top condition.
 
-## <a href="https://www.amazon.com/dp/B08GZ4C3DQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vanjoy Exhaust Flange Retaining Ring For Harley Davidson</a>
+## <a href="https://www.amazon.com/dp/B08GZ4C3DQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vanjoy Exhaust Flange Retaining Ring For Harley Davidson</a>
 
 
-<a href="https://www.amazon.com/dp/B08GZ4C3DQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="vanjoy Exhaust Flange Retaining Ring for Harley Davidson 1984-2020 Touring, Tri-Glide, Sportster, Softail, Dyna Exhaust Pipes Installing 1 Pair 2pcs" src="https://m.media-amazon.com/images/I/41NVzVhAidS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08GZ4C3DQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="vanjoy Exhaust Flange Retaining Ring for Harley Davidson 1984-2020 Touring, Tri-Glide, Sportster, Softail, Dyna Exhaust Pipes Installing 1 Pair 2pcs" src="https://m.media-amazon.com/images/I/41NVzVhAidS._SL500_.jpg"/></a>
 
 
 The **vanjoy Exhaust Flange Retaining Ring** is ideal for motorcycle enthusiasts and mechanics who own a **Harley Davidson** model from **1984 to 2020**, including **Touring, Tri-Glide, Sportster, Softail, and Dyna** series. If you're looking to maintain or upgrade your exhaust system with reliable components that ensure a secure fit, this pair of retaining rings is designed for you.
@@ -249,10 +249,10 @@ The **vanjoy Exhaust Flange Retaining Ring** offers a precise fit for your Harle
 
 Additionally, the ease of installation makes it a practical choice for both professionals and DIY enthusiasts. By replacing old or damaged retaining rings with this pair, you can extend the lifespan of your exhaust pipes and improve the overall reliability of your motorcycle. The compatibility with multiple Harley Davidson models enhances its value, making it a versatile and essential component for many riders.
 
-## <a href="https://www.amazon.com/dp/B09X2VYXM8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vpzmt Exhaust Adjustable Bracket Set</a>
+## <a href="https://www.amazon.com/dp/B09X2VYXM8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vpzmt Exhaust Adjustable Bracket Set</a>
 
 
-<a href="https://www.amazon.com/dp/B09X2VYXM8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VPZMT Exhaust Adjustable Bracket Set Center Your Exhaust with Stretched Bags and Fender Extension Fits for Harley Davidson Touring (Exhaust Bracket Set-Black)" src="https://m.media-amazon.com/images/I/41f5sLdl+xL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09X2VYXM8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VPZMT Exhaust Adjustable Bracket Set Center Your Exhaust with Stretched Bags and Fender Extension Fits for Harley Davidson Touring (Exhaust Bracket Set-Black)" src="https://m.media-amazon.com/images/I/41f5sLdl+xL._SL500_.jpg"/></a>
 
 
 The **VPZMT Exhaust Adjustable Bracket Set** is perfect for **Harley Davidson Touring** enthusiasts looking to enhance their bike's appearance and functionality. It's ideal for those who have installed **stretched bags** and a **fender extension**, and need a reliable solution to center their **exhaust**. This product is tailored for riders who prioritize both **style** and **performance**.

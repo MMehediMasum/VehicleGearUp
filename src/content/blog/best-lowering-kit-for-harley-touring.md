@@ -22,10 +22,10 @@ Popular models fit Harley Touring, Street Glide, Electra Glide, Road King, and U
 
 
 
-## <a href="https://www.amazon.com/dp/B0CF1W6PH9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Eumti Motorcycle Rear Lowering Kits Adjustable Compatible With Harley Touring</a>
+## <a href="https://www.amazon.com/dp/B0CF1W6PH9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Eumti Motorcycle Rear Lowering Kits Adjustable Compatible With Harley Touring</a>
 
 
-<a href="https://www.amazon.com/dp/B0CF1W6PH9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img src="https://m.media-amazon.com/images/I/41mkbes4ihL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CF1W6PH9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img src="https://m.media-amazon.com/images/I/41mkbes4ihL._SL500_.jpg"/></a>
 
 
 The **Eumti Motorcycle Rear Lowering Kits Adjustable 1"2"3"** is ideal for motorcycle enthusiasts who own Harley Touring models such as **Street Glide**, **Electra Glide**, **Ultra Glide**, and **Road King** from 2002 to 2016. Riders looking to improve their bike's handling, achieve a lower seat height for easier mounting and dismounting, or customize their ride's stance will find this kit highly beneficial. It’s perfect for those who want an adjustable and reliable solution to modify their motorcycle’s rear height without compromising performance.
@@ -48,10 +48,10 @@ The **Eumti Motorcycle Rear Lowering Kits** provide a versatile solution with th
 
 Beyond aesthetics, lowering the rear of the motorcycle improves rider ergonomics by reducing the seat height, making it easier for shorter riders to plant their feet firmly on the ground. This enhances confidence during stops and slow maneuvers. Additionally, the adjustable feature allows riders to fine-tune their bike’s stance for improved handling characteristics, which can contribute to a more enjoyable and safer riding experience overall.
 
-## <a href="https://www.amazon.com/dp/B0CBGTBR7R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tdz 2009-2025 Black 1.5'' Inch Lowering Link Blocks Kit For Harley Davidson Touring</a>
+## <a href="https://www.amazon.com/dp/B0CBGTBR7R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tdz 2009-2025 Black 1.5'' Inch Lowering Link Blocks Kit For Harley Davidson Touring</a>
 
 
-<a href="https://www.amazon.com/dp/B0CBGTBR7R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TDZ 2009-2025 Black 1.5'' Inch Lowering Link Blocks Kit for Harley Davidson Touring Street Glide/Road King/Electra Glide/Road Glide/Ultra Limited/Special/CVO" src="https://m.media-amazon.com/images/I/41LwfzN-kwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CBGTBR7R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TDZ 2009-2025 Black 1.5'' Inch Lowering Link Blocks Kit for Harley Davidson Touring Street Glide/Road King/Electra Glide/Road Glide/Ultra Limited/Special/CVO" src="https://m.media-amazon.com/images/I/41LwfzN-kwL._SL500_.jpg"/></a>
 
 
 The **TDZ 2009-2025 Black 1.5'' Inch Lowering Link Blocks Kit** is ideal for Harley Davidson owners who want to customize their **Touring Street Glide, Road King, Electra Glide, Road Glide, Ultra Limited, Special, or CVO** models. This product is perfect for riders seeking a lower center of gravity for improved handling and a more comfortable riding position, especially for those who find the standard seat height challenging.
@@ -74,10 +74,10 @@ The **TDZ Lowering Link Blocks Kit** offers an excellent upgrade for riders want
 
 With precise engineering tailored for a wide range of **Harley Davidson Touring models**, this kit maintains the bike’s handling characteristics while improving accessibility for riders of various heights. Its compact and lightweight design ensures that the lowering effect is achieved without compromising the motorcycle’s performance or aesthetic appeal, making it a practical and stylish modification for touring enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B09WJ4NTN7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vpzmt 2 Inch Lowering Blocks Kit</a>
+## <a href="https://www.amazon.com/dp/B09WJ4NTN7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vpzmt 2 Inch Lowering Blocks Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B09WJ4NTN7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VPZMT 2 Inch Lowering Blocks Kit Fits for 2002-2025 Harley Touring Street Glide Road Glide Road King Electra Glide, CVO Limited and Ultra Classic (Harley Type-4)" src="https://m.media-amazon.com/images/I/41U4jkO+z7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09WJ4NTN7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VPZMT 2 Inch Lowering Blocks Kit Fits for 2002-2025 Harley Touring Street Glide Road Glide Road King Electra Glide, CVO Limited and Ultra Classic (Harley Type-4)" src="https://m.media-amazon.com/images/I/41U4jkO+z7L._SL500_.jpg"/></a>
 
 
 The **VPZMT 2 Inch Lowering Blocks Kit** is ideal for motorcycle enthusiasts who own a **2002-2025 Harley Touring model**, including Street Glide, Road Glide, Road King, Electra Glide, CVO Limited, and Ultra Classic. This kit is perfect for riders looking to enhance their bike's stability and comfort by lowering the seat height, making it easier to handle and increasing confidence during rides, especially for those with shorter inseams.
@@ -100,10 +100,10 @@ The **VPZMT 2 Inch Lowering Blocks Kit** features robust construction that guara
 
 By lowering the bike by 2 inches, this kit significantly improves rider ergonomics, making it easier to place feet flat on the ground when stopped. This leads to increased confidence during slow maneuvers and better overall handling. Additionally, the lightweight design means your motorcycle’s performance remains unaffected, ensuring that you enjoy both style and function with this reliable accessory.
 
-## <a href="https://www.amazon.com/dp/B07W98MX86?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rear Adjustable Lowering Kits For Harley Davidson Touring Bikes</a>
+## <a href="https://www.amazon.com/dp/B07W98MX86?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rear Adjustable Lowering Kits For Harley Davidson Touring Bikes</a>
 
 
-<a href="https://www.amazon.com/dp/B07W98MX86?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="1-3" src="https://m.media-amazon.com/images/I/41QWg4o9-zL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07W98MX86?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="1-3" src="https://m.media-amazon.com/images/I/41QWg4o9-zL._SL500_.jpg"/></a>
 
 
 The **1-3" Rear Adjustable Lowering Kits** are ideal for riders who own **Harley Davidson Touring Bikes** such as **Street Glide, Electra Glide, Ultra Glide, and Road King** models from **2002 to 2016** with **hard saddlebags**. This kit is perfect for those looking to customize their bike's stance for improved handling, comfort, or a more aggressive look, especially riders who want to lower their bike's rear height without compromising performance or safety.
@@ -126,10 +126,10 @@ The **KASIMT 1-3" Rear Adjustable Lowering Kit**, manufactured by **TMCT**, feat
 
 Installing this lowering kit improves the overall balance and control of the motorcycle by reducing the rear ride height, which lowers the center of gravity. This results in enhanced cornering stability and more confident handling at lower speeds. Additionally, the kit’s compatibility with hard saddlebags ensures that riders maintain full storage capacity without any clearance issues. Overall, this product provides a reliable and customizable solution for Harley Davidson Touring enthusiasts seeking both style and performance improvements.
 
-## <a href="https://www.amazon.com/dp/B076HKGVK3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Motobiker Adjustable Rear Lowering Kit</a>
+## <a href="https://www.amazon.com/dp/B076HKGVK3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Motobiker Adjustable Rear Lowering Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B076HKGVK3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Motobiker 1-3'' Adjustable Rear Lowering Kit Compatible with 2002-2016 Touring Street Glide Rear（Fits 2002-2016 Touring Models)" src="https://m.media-amazon.com/images/I/51+-2G5ZO4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B076HKGVK3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Motobiker 1-3'' Adjustable Rear Lowering Kit Compatible with 2002-2016 Touring Street Glide Rear（Fits 2002-2016 Touring Models)" src="https://m.media-amazon.com/images/I/51+-2G5ZO4L._SL500_.jpg"/></a>
 
 
 The **Motobiker 1-3'' Adjustable Rear Lowering Kit** is ideal for motorcycle enthusiasts who own a **2002-2016 Touring Street Glide** model and are looking to customize their ride for improved comfort and style. This kit is perfect for riders seeking to lower their bike's rear height for better ground clearance, enhanced handling, or a more aggressive stance.
@@ -151,10 +151,10 @@ The **Motobiker Adjustable Rear Lowering Kit** offers a flexible solution for ri
 
 Constructed with high-quality materials, this kit guarantees durability and longevity even under demanding riding conditions. By lowering the rear end, the kit enhances the motorcycle's overall handling characteristics, making cornering and maneuvering more responsive. Additionally, it contributes to a more aggressive and customized appearance, allowing riders to express their personal style while enjoying practical benefits.
 
-## <a href="https://www.amazon.com/dp/B07T659VQV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Applianpar Rear Adjustable Slam Lowering Kit For Harley-davidson</a>
+## <a href="https://www.amazon.com/dp/B07T659VQV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Applianpar Rear Adjustable Slam Lowering Kit For Harley-davidson</a>
 
 
-<a href="https://www.amazon.com/dp/B07T659VQV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img src="https://m.media-amazon.com/images/I/41xDeB-9LiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07T659VQV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img src="https://m.media-amazon.com/images/I/41xDeB-9LiL._SL500_.jpg"/></a>
 
 
 The **ApplianPar 1"-3" Rear Adjustable Slam Lowering Kit** is ideal for Harley-Davidson enthusiasts who own models such as the **Street Glide, Electra Glide, and Road King** from 2002 to 2016. Riders looking to enhance their motorcycle's stance, improve handling, and achieve a more aggressive, slammed look will benefit greatly from this adjustable lowering kit. This product is perfect for those who want to customize their bike's rear suspension height with precision and ease.
@@ -177,10 +177,10 @@ The **ApplianPar Rear Adjustable Slam Lowering Kit** offers a versatile solution
 
 Constructed with quality materials by the reputable **ApplianPar** brand, this kit ensures durability and reliability for long-term use. By lowering the rear of the motorcycle, it not only gives a more aggressive look but also enhances stability during cornering and improves overall ride comfort. However, prospective buyers should consider the impact on ground clearance and ensure compatibility with their specific Harley-Davidson model to maximize the benefits of this product.
 
-## <a href="https://www.amazon.com/dp/B0CRY94TP4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rear Adjustable Lowering Kit For Harley Davidson Touring Bikes</a>
+## <a href="https://www.amazon.com/dp/B0CRY94TP4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rear Adjustable Lowering Kit For Harley Davidson Touring Bikes</a>
 
 
-<a href="https://www.amazon.com/dp/B0CRY94TP4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rear Adjustable Lowering Kit 1''-2" src="https://m.media-amazon.com/images/I/51fpEEktQVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CRY94TP4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rear Adjustable Lowering Kit 1''-2" src="https://m.media-amazon.com/images/I/51fpEEktQVL._SL500_.jpg"/></a>
 
 
 The **Rear Adjustable Lowering Kit 1''-2" Inch** is ideal for Harley Davidson enthusiasts who own Touring Bikes such as the **Electra Glide, Ultra Glide, Street Glide,** or **Road King Standards** from model years **1993-2001**. This kit is perfect for riders looking to customize their bike's stance and improve ground reach without compromising handling.
@@ -203,10 +203,10 @@ This **Rear Adjustable Lowering Kit** offers a versatile solution for riders see
 
 Designed specifically for the **Electra Glide, Ultra Glide, Street Glide,** and **Road King Standards** from **1993 to 2001**, this lowering kit provides a seamless fit that maintains the integrity of your motorcycle’s performance. The improved ground reach enhances rider confidence, especially when stopping or maneuvering at low speeds, making it an excellent upgrade for both new and experienced Harley riders.
 
-## <a href="https://www.amazon.com/dp/B0CKVD2SPT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">2 Inch Lowering Blocks Kit Fits Harley Davidson Touring Street Glide Rear Slam Lowering Blocks Kit</a>
+## <a href="https://www.amazon.com/dp/B0CKVD2SPT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">2 Inch Lowering Blocks Kit Fits Harley Davidson Touring Street Glide Rear Slam Lowering Blocks Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0CKVD2SPT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="2 Inch Lowering Blocks Kit fits Harley Davidson Touring Street Glide Rear Slam Lowering Blocks Kit（Fits 2002-2023 Harley/Davidson Touring Models)" src="https://m.media-amazon.com/images/I/31b3IiRsH7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CKVD2SPT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="2 Inch Lowering Blocks Kit fits Harley Davidson Touring Street Glide Rear Slam Lowering Blocks Kit（Fits 2002-2023 Harley/Davidson Touring Models)" src="https://m.media-amazon.com/images/I/31b3IiRsH7L._SL500_.jpg"/></a>
 
 
 The **2 Inch Lowering Blocks Kit** is ideal for **motorcycle enthusiasts** who want to achieve a **sleeker look** and **enhanced performance** for their **Harley Davidson Touring models**. This kit is perfect for riders who prefer a **lower center of gravity**, improving both the **aesthetic appeal** and **handling** of their bikes. Whether you're a long-time rider or new to the Harley community, this kit offers a practical solution for those looking to personalize their ride.
@@ -227,10 +227,10 @@ The **Lkonwee Lowering Blocks Kit** is designed to seamlessly integrate with **H
 
 By lowering the motorcycle by **2 inches**, riders will experience improved **stability and control**, especially at higher speeds or when navigating through tight corners. The kit's **durable construction** guarantees it can withstand the demands of regular use. However, riders should be aware that the reduced **ground clearance** may not be ideal for all road conditions, making it best suited for those who primarily ride on smooth, paved roads.
 
-## <a href="https://www.amazon.com/dp/B09M7SSDQ2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rear Shock 2" Lowering Kit Fits For Harley Touring Bikes</a>
+## <a href="https://www.amazon.com/dp/B09M7SSDQ2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rear Shock 2" Lowering Kit Fits For Harley Touring Bikes</a>
 
 
-<a href="https://www.amazon.com/dp/B09M7SSDQ2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rear Shock 2" src="https://m.media-amazon.com/images/I/41oSkqXYj5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09M7SSDQ2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rear Shock 2" src="https://m.media-amazon.com/images/I/41oSkqXYj5L._SL500_.jpg"/></a>
 
 
 The **Rear Shock 2" Lowering Kit** is ideal for riders who own **Harley Touring Bikes** including **Street Glide**, **Electra Glide**, **Ultra Glide**, and **Road King** models from 2002 to 2025. This kit is perfect for those looking to achieve a lower center of gravity, improved handling, and a more aggressive stance without compromising comfort. Whether you're a seasoned rider seeking enhanced control or a new rider wanting a more manageable bike height, this kit offers a tailored solution.
@@ -252,10 +252,10 @@ The **Rear Shock 2" Lowering Kit** by **Harvards Chrome** is designed to seamles
 
 Built with high-quality materials and manufactured by **LK-5**, this kit promises durability and long-lasting performance. Riders will appreciate the combination of improved ride quality and the stylish lowered stance that enhances the bike’s overall appearance. While installation might require some expertise, the benefits in terms of improved control and aesthetics make this kit a valuable upgrade for Harley enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B0CBMJQMYX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ryanstar Racing 2 Inch Lowering Blocks Kit Rear Slam Lowering Blocks</a>
+## <a href="https://www.amazon.com/dp/B0CBMJQMYX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ryanstar Racing 2 Inch Lowering Blocks Kit Rear Slam Lowering Blocks</a>
 
 
-<a href="https://www.amazon.com/dp/B0CBMJQMYX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RYANSTAR RACING 2 Inch Lowering Blocks Kit Rear Slam Lowering Blocks Compatible with Harley Davidson Touring Street Glide 2002-2023 Compatible with Harley Davidson Touring Models" src="https://m.media-amazon.com/images/I/51Nz9S1PYmL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CBMJQMYX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RYANSTAR RACING 2 Inch Lowering Blocks Kit Rear Slam Lowering Blocks Compatible with Harley Davidson Touring Street Glide 2002-2023 Compatible with Harley Davidson Touring Models" src="https://m.media-amazon.com/images/I/51Nz9S1PYmL._SL500_.jpg"/></a>
 
 
 The **RYANSTAR RACING 2 Inch Lowering Blocks Kit** is perfect for **motorcycle enthusiasts** and **Harley Davidson owners** looking to enhance their bike's aesthetic and handling. If you own a **Harley Davidson Touring Street Glide** or any compatible model from **2002-2023**, and you're aiming for a sleeker, lower profile without compromising on performance, this kit is designed for you. Ideal for riders who appreciate both style and functionality, this lowering kit can help you achieve a distinct look while potentially improving your bike's ride stability.

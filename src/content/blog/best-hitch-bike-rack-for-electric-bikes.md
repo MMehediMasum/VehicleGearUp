@@ -23,10 +23,10 @@ Capacity ranges up to 200 pounds, fitting fat tires and long wheelbases. Whether
 
 
 
-## <a href="https://www.amazon.com/dp/B0D143H9QB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Young Electric Hitch Mount Ebike Rack</a>
+## <a href="https://www.amazon.com/dp/B0D143H9QB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Young Electric Hitch Mount Ebike Rack</a>
 
 
-<a href="https://www.amazon.com/dp/B0D143H9QB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Young Electric 200 LBS. Hitch Mount Ebike Rack for Fat Tire Electric Bikes, Mountain Bicycles, fits Cars, SUVs, RVs, Trucks, Trailers with 2 Inch Receiver" src="https://m.media-amazon.com/images/I/31CxL7rTYtL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D143H9QB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Young Electric 200 LBS. Hitch Mount Ebike Rack for Fat Tire Electric Bikes, Mountain Bicycles, fits Cars, SUVs, RVs, Trucks, Trailers with 2 Inch Receiver" src="https://m.media-amazon.com/images/I/31CxL7rTYtL._SL500_.jpg"/></a>
 
 
 The **Young Electric 200 LBS. Hitch Mount Ebike Rack** is ideal for avid cyclists who own **fat tire electric bikes** or **mountain bicycles** and need a reliable, sturdy solution for transporting their bikes. This rack is perfect for those who frequently travel with their bikes using **cars, SUVs, RVs, trucks, or trailers** equipped with a **2-inch receiver**. If you are looking for a durable rack that can handle heavy ebikes with ease, this product is designed for you.
@@ -48,10 +48,10 @@ The **Young Electric 200 LBS. Hitch Mount Ebike Rack** is crafted to provide a s
 
 With this rack, users benefit from a hassle-free mounting system that makes loading and unloading bikes straightforward and efficient. The durable black finish not only enhances the rack’s aesthetic but also protects it against harsh weather conditions and corrosion. Overall, this product offers a dependable and practical solution for anyone looking to transport their fat tire electric or mountain bikes with confidence and ease.
 
-## <a href="https://www.amazon.com/dp/B0CM6S7VT5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hitch-mount Bike Rack For Ebike Heavy-duty</a>
+## <a href="https://www.amazon.com/dp/B0CM6S7VT5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hitch-mount Bike Rack For Ebike Heavy-duty</a>
 
 
-<a href="https://www.amazon.com/dp/B0CM6S7VT5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Hitch-Mount Bike Rack for Ebike Heavy-Duty - Comes with Cargo Carrier Fits 2 Electric Fat-Tire Mountain Bicycles Fits 2" src="https://m.media-amazon.com/images/I/51AUUQyxR9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CM6S7VT5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Hitch-Mount Bike Rack for Ebike Heavy-Duty - Comes with Cargo Carrier Fits 2 Electric Fat-Tire Mountain Bicycles Fits 2" src="https://m.media-amazon.com/images/I/51AUUQyxR9L._SL500_.jpg"/></a>
 
 
 The **Hitch-Mount Bike Rack for Ebike Heavy-Duty** is perfect for avid cyclists who own **electric fat-tire mountain bikes** and need a reliable way to transport them. Ideal for owners of **cars, trailers, SUVs, trucks, RVs, and minivans** with a **2-inch receiver**, this bike rack is designed for those who prioritize durability, convenience, and versatility when carrying their heavy-duty ebikes and additional cargo.
@@ -74,10 +74,10 @@ This **hitch-mount bike rack** by XtraEzzy stands out with its sturdy build and 
 
 The rack’s dimensions and weight capacity reflect its heavy-duty nature, providing peace of mind that your valuable ebikes will be safely secured during transport. While the weight of the rack requires some effort to handle, it also contributes to the overall durability and reliability of the product. Whether heading to mountain trails or simply commuting, this bike rack is a practical solution for those who need a robust and convenient way to carry their electric fat-tire bikes and extra cargo.
 
-## <a href="https://www.amazon.com/dp/B0FG1G95YG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Trailv2 Plus Hitch 2 Ebike Rack</a>
+## <a href="https://www.amazon.com/dp/B0FG1G95YG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Trailv2 Plus Hitch 2 Ebike Rack</a>
 
 
-<a href="https://www.amazon.com/dp/B0FG1G95YG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="TrailV2 Plus Hitch 2 Ebike Rack with Ramp, Tilt, Fold, Anti-Theft Hitch &amp; Wheel Locks, Heavy Duty 170 lbs Capacity, Fits 2" src="https://m.media-amazon.com/images/I/4190OSi8C+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FG1G95YG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="TrailV2 Plus Hitch 2 Ebike Rack with Ramp, Tilt, Fold, Anti-Theft Hitch &amp; Wheel Locks, Heavy Duty 170 lbs Capacity, Fits 2" src="https://m.media-amazon.com/images/I/4190OSi8C+L._SL500_.jpg"/></a>
 
 
 The **TrailV2 Plus Hitch 2 Ebike Rack** is perfect for avid cyclists and outdoor enthusiasts who own **electric bikes** with **fat tires**. If you frequently transport your e-bike using your car, SUV, truck, or RV, this robust rack is designed to provide a secure and convenient solution. Ideal for those who prioritize safety and ease of use, this rack is a great investment for weekend adventurers and daily commuters alike.
@@ -99,10 +99,10 @@ The **TrailV2 Plus Hitch 2 Ebike Rack** boasts a sturdy construction with a **he
 
 The rack's **ramp, tilt, and fold** features enhance user convenience by simplifying the bike loading process. The **ramp** allows for easy rolling of bikes onto the rack, while the **tilt** function provides rear vehicle access without unloading the bikes. Additionally, the rack's ability to **fold** when not in use saves space and improves aerodynamics during travel. Overall, the **TrailV2 Plus Hitch 2 Ebike Rack** is a comprehensive solution for e-bike transport, combining strength, security, and user-friendly features.
 
-## <a href="https://www.amazon.com/dp/B0DGXNKQB8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Paulinn Ebike Rack For Tow Hitch</a>
+## <a href="https://www.amazon.com/dp/B0DGXNKQB8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Paulinn Ebike Rack For Tow Hitch</a>
 
 
-<a href="https://www.amazon.com/dp/B0DGXNKQB8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PAULINN Ebike Rack for Tow Hitch, Heavy Duty 2 Bike Folding Bicycle Car SUV Racks for E Bike,Fat Tire and Standard, 2" src="https://m.media-amazon.com/images/I/41kftEt5IUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DGXNKQB8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PAULINN Ebike Rack for Tow Hitch, Heavy Duty 2 Bike Folding Bicycle Car SUV Racks for E Bike,Fat Tire and Standard, 2" src="https://m.media-amazon.com/images/I/41kftEt5IUL._SL500_.jpg"/></a>
 
 
 The **PAULINN Ebike Rack for Tow Hitch** is ideal for avid cyclists who need a reliable and sturdy solution to transport their **e-bikes**, **fat tire**, or standard bicycles using their car or SUV. This rack is perfect for outdoor enthusiasts and families who frequently travel with multiple bikes and require a heavy-duty carrier capable of handling up to **200 lbs**.
@@ -124,10 +124,10 @@ The **PAULINN Ebike Rack** boasts a robust frame designed for heavy-duty use, ma
 
 Beyond its sturdy build, this rack accommodates a range of bike types, including those with fat tires, which are often challenging to transport using standard racks. The thoughtful design ensures bikes remain secure during transit, reducing the risk of damage. Overall, the **PAULINN Ebike Rack** delivers both strength and versatility, making it a practical investment for anyone looking to safely and efficiently transport multiple bicycles with ease.
 
-## <a href="https://www.amazon.com/dp/B0F8HMCRCW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Roamease Hitch 2 Ebike Rack</a>
+## <a href="https://www.amazon.com/dp/B0F8HMCRCW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Roamease Hitch 2 Ebike Rack</a>
 
 
-<a href="https://www.amazon.com/dp/B0F8HMCRCW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="RoamEase Hitch 2 EBike Rack with Ramp, 170lbs Capacity Electric Bike Carrier Foldable for 2 Heavy Ebike, Up to 5-inch Fat Tire Bicycle, 2" src="https://m.media-amazon.com/images/I/41MdjICQfAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F8HMCRCW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="RoamEase Hitch 2 EBike Rack with Ramp, 170lbs Capacity Electric Bike Carrier Foldable for 2 Heavy Ebike, Up to 5-inch Fat Tire Bicycle, 2" src="https://m.media-amazon.com/images/I/41MdjICQfAL._SL500_.jpg"/></a>
 
 
 The **RoamEase Hitch 2 EBike Rack with Ramp** is ideal for avid e-bike enthusiasts and outdoor adventurers who frequently travel with their electric bikes. If you own heavy e-bikes or fat tire bicycles up to 5 inches wide and need a durable, foldable carrier that can handle substantial weight, this rack is designed for you. It perfectly suits owners of cars, SUVs, RVs, and trucks equipped with a 2-inch receiver looking for convenience and reliability in transporting their bikes.
@@ -151,10 +151,10 @@ The **RoamEase Hitch 2 EBike Rack** stands out for its impressive **170lbs weigh
 
 Additionally, the rack’s **foldable design** enhances convenience by allowing easy storage when the rack is not in use, saving space in your garage or vehicle. The robust construction combined with a sleek **black finish** not only offers durability against the elements but also adds a modern aesthetic to your vehicle setup. This bike carrier is a practical investment for anyone serious about protecting and transporting their heavy electric bikes efficiently and safely.
 
-## <a href="https://www.amazon.com/dp/B0D13GXXN1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Young Electric Hitch Mount Single Bike Rack</a>
+## <a href="https://www.amazon.com/dp/B0D13GXXN1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Young Electric Hitch Mount Single Bike Rack</a>
 
 
-<a href="https://www.amazon.com/dp/B0D13GXXN1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Young Electric Hitch Mount Single Bike Rack with Ramp for Electric Bike, 100 lbs. Capacity Bike Carrier for Truck, Trailer, RV, SUV" src="https://m.media-amazon.com/images/I/31i2A79pk7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D13GXXN1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Young Electric Hitch Mount Single Bike Rack with Ramp for Electric Bike, 100 lbs. Capacity Bike Carrier for Truck, Trailer, RV, SUV" src="https://m.media-amazon.com/images/I/31i2A79pk7L._SL500_.jpg"/></a>
 
 
 The **Young Electric Hitch Mount Single Bike Rack with Ramp** is ideal for electric bike owners who need a reliable and sturdy solution to transport their bike on various vehicles such as trucks, trailers, RVs, and SUVs. This bike carrier is perfect for outdoor enthusiasts, commuters, and anyone looking for a hassle-free way to load and unload their electric bike safely and efficiently.
@@ -176,10 +176,10 @@ The **Young Electric Hitch Mount Bike Rack** features a thoughtfully designed ra
 
 Additionally, this bike carrier's compatibility with various vehicle types such as trucks, trailers, RVs, and SUVs offers versatility and convenience. Its dimensions and weight are optimized for stability while driving, providing peace of mind that your electric bike will remain secure throughout the journey. For anyone looking to safely and easily transport their electric bike, this rack combines functionality with user-friendly features to enhance the overall outdoor biking experience.
 
-## <a href="https://www.amazon.com/dp/B0DWF8MMGN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rockland Foldable 2-bike Rack With Lock</a>
+## <a href="https://www.amazon.com/dp/B0DWF8MMGN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rockland Foldable 2-bike Rack With Lock</a>
 
 
-<a href="https://www.amazon.com/dp/B0DWF8MMGN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rockland Foldable 2-Bike Rack with Lock, 200 lbs Capacity, Hitch Mount Bike Rack, Fits up to 5" src="https://m.media-amazon.com/images/I/41b9vW4TNHL._SL500_.jpg" width=""/></a>
+<a href="https://www.amazon.com/dp/B0DWF8MMGN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rockland Foldable 2-Bike Rack with Lock, 200 lbs Capacity, Hitch Mount Bike Rack, Fits up to 5" src="https://m.media-amazon.com/images/I/41b9vW4TNHL._SL500_.jpg" width=""/></a>
 
 
 The **Rockland Foldable 2-Bike Rack with Lock** is ideal for outdoor enthusiasts, cyclists, and families who frequently travel with their bikes. If you own a **car, SUV, van, or RV** equipped with a **2" receiver hitch** and need a reliable, easy-to-use bike carrier that can handle **heavy-duty bikes including fat tire models**, this product is perfect for you. Its capacity to hold up to **200 lbs** and compatibility with bikes up to **5" fat tire width** and **50" wheelbase** makes it a versatile choice for a wide range of bike types and sizes.
@@ -203,10 +203,10 @@ The **Rockland Foldable 2-Bike Rack** stands out with its robust build and thoug
 
 Security is another key feature, as the integrated lock system provides users with confidence that their bikes will remain safe during transit. The compatibility with a standard **2" hitch receiver** means that this bike rack can be easily mounted on a wide range of vehicles, making it a versatile choice for anyone from casual cyclists to serious adventurers. Overall, this bike rack offers a solid combination of capacity, versatility, and convenience, making it a smart investment for transporting bikes hassle-free.
 
-## <a href="https://www.amazon.com/dp/B0DBJ3ZGCZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Yzona 2 Ebike Rack</a>
+## <a href="https://www.amazon.com/dp/B0DBJ3ZGCZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Yzona 2 Ebike Rack</a>
 
 
-<a href="https://www.amazon.com/dp/B0DBJ3ZGCZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="YZONA 2 EBike Rack with Ramp, up to 5" src="https://m.media-amazon.com/images/I/51PjwIVjCRL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DBJ3ZGCZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="YZONA 2 EBike Rack with Ramp, up to 5" src="https://m.media-amazon.com/images/I/51PjwIVjCRL._SL500_.jpg"/></a>
 
 
 The **YZONA 2 EBike Rack with Ramp** is perfect for outdoor enthusiasts and electric bike owners who need a reliable and sturdy solution for transporting their bikes. Ideal for those who own SUVs, cars, trucks, or vans with a 2" hitch, this rack is especially suited for riders with fat tire e-bikes up to 5" wide. If you are looking for a secure, easy-to-use, and foldable bike rack that can handle heavy electric bicycles, this product is an excellent choice.
@@ -229,10 +229,10 @@ The **YZONA 2 EBike Rack** features a robust platform designed to carry electric
 
 Constructed with durable materials and a foldable design, this rack is convenient for users who want both strength and portability. Its compatibility with a standard **2-inch hitch** means it fits a wide range of vehicles including SUVs, cars, trucks, and vans, offering flexibility for various transportation needs. Overall, the YZONA bike rack combines functionality and ease of use, making it a practical investment for avid cyclists.
 
-## <a href="https://www.amazon.com/dp/B0DK35MSHW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Young 200 Lbs. Capacity Hitch Mounted 2-bike Rack With Lock</a>
+## <a href="https://www.amazon.com/dp/B0DK35MSHW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Young 200 Lbs. Capacity Hitch Mounted 2-bike Rack With Lock</a>
 
 
-<a href="https://www.amazon.com/dp/B0DK35MSHW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Young 200 lbs. Capacity Hitch Mounted 2-Bike Rack with Lock for Standard, Mountain, Fat Tire Bikes, fit Car, SUV, Van, RV, Trailer, Truck" src="https://m.media-amazon.com/images/I/31Y39Ci632L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DK35MSHW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Young 200 lbs. Capacity Hitch Mounted 2-Bike Rack with Lock for Standard, Mountain, Fat Tire Bikes, fit Car, SUV, Van, RV, Trailer, Truck" src="https://m.media-amazon.com/images/I/31Y39Ci632L._SL500_.jpg"/></a>
 
 
 The **Young 200 lbs. Capacity Hitch Mounted 2-Bike Rack** is ideal for outdoor enthusiasts and families who frequently travel with their bicycles. Whether you own a **car, SUV, van, RV, trailer, or truck**, this bike rack is designed to securely transport two bikes, including **standard, mountain, and fat tire bikes**. If you value convenience, security, and versatility in carrying your bikes, this product is a perfect fit for your needs.
@@ -254,10 +254,10 @@ The **Young 200 lbs. Capacity Hitch Mounted 2-Bike Rack** stands out with its ro
 
 Installation and use are straightforward, thanks to its thoughtful dimensions and design. The bike rack's substantial size provides excellent stability, while the black finish adds an appealing aesthetic that complements most vehicles. Overall, this bike rack is a reliable and secure solution for anyone looking to transport two bikes with ease and confidence.
 
-## <a href="https://www.amazon.com/dp/B0DST86ZGG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">2-bike Hitch Bike Rack With Ramp</a>
+## <a href="https://www.amazon.com/dp/B0DST86ZGG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">2-bike Hitch Bike Rack With Ramp</a>
 
 
-<a href="https://www.amazon.com/dp/B0DST86ZGG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="2-Bike Hitch Bike Rack with Ramp - 200 LBS Capacity Fat Tire Ebike Rack, XXL Wheel Straps, Lockable, Foldable &amp; Tiltable - Fits 2" src="https://m.media-amazon.com/images/I/41rQBF23y9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DST86ZGG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="2-Bike Hitch Bike Rack with Ramp - 200 LBS Capacity Fat Tire Ebike Rack, XXL Wheel Straps, Lockable, Foldable &amp; Tiltable - Fits 2" src="https://m.media-amazon.com/images/I/41rQBF23y9L._SL500_.jpg"/></a>
 
 
 The **2-Bike Hitch Bike Rack with Ramp** is ideal for avid cyclists and e-bike owners who need a reliable and convenient way to transport their bikes. Perfect for those with **fat tire ebikes** or larger wheel sizes, this rack suits drivers of **cars, SUVs, trucks, and trailers** equipped with a 2" receiver. If you want a hassle-free setup without installation and a secure way to carry two bikes, this rack is an excellent choice.

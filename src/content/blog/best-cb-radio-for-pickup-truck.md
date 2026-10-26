@@ -23,10 +23,10 @@ Mounting options like the F150 Tailgate Antenna Holder keep antennas secure. Han
 
 
 
-## <a href="https://www.amazon.com/dp/B005ZLB0E4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Uniden Pro505xl 40-channel Cb Radio</a>
+## <a href="https://www.amazon.com/dp/B005ZLB0E4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Uniden Pro505xl 40-channel Cb Radio</a>
 
 
-<a href="https://www.amazon.com/dp/B005ZLB0E4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Uniden PRO505XL 40-Channel CB Radio. Pro-Series, Compact Design. Public Address (PA) Function. Instant Emergency Channel 9, External Speaker Jack, Large Easy to Read Display. - Black" src="https://m.media-amazon.com/images/I/41Jp3ZGOMNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B005ZLB0E4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Uniden PRO505XL 40-Channel CB Radio. Pro-Series, Compact Design. Public Address (PA) Function. Instant Emergency Channel 9, External Speaker Jack, Large Easy to Read Display. - Black" src="https://m.media-amazon.com/images/I/41Jp3ZGOMNL._SL500_.jpg"/></a>
 
 
 The **Uniden PRO505XL 40-Channel CB Radio** is ideal for individuals who require reliable and clear communication on the go. Whether you are a truck driver, off-road enthusiast, or someone who enjoys road trips and outdoor adventures, this compact CB radio offers convenience and essential features to keep you connected. Its user-friendly design and emergency functionalities make it suitable for both beginners and experienced users.
@@ -50,10 +50,10 @@ The **Uniden PRO505XL** features a robust build with dimensions of 1.75 inches i
 
 One of the standout features is the **Public Address (PA) function**, which enables users to broadcast messages through an external speaker, a great benefit for group communication or emergency announcements. The large, easy-to-read display improves user experience by making channel selection and monitoring straightforward, even in low-light conditions. Additionally, the instant access to **Emergency Channel 9** provides peace of mind by ensuring quick communication with emergency services when needed.
 
-## <a href="https://www.amazon.com/dp/B0BVGTZCLB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Cobra 29 Ltd Classic Am/fm Professional Cb Radio</a>
+## <a href="https://www.amazon.com/dp/B0BVGTZCLB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Cobra 29 Ltd Classic Am/fm Professional Cb Radio</a>
 
 
-<a href="https://www.amazon.com/dp/B0BVGTZCLB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Cobra 29 LTD Classic AM/FM Professional CB Radio - Easy to Operate, Emergency Radio, Instant Channel 9, 4-Watt Output, Full 40 Channels, Adjustable Receiver and SWR Calibration, Black" src="https://m.media-amazon.com/images/I/41G2Qg0x8HL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BVGTZCLB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Cobra 29 LTD Classic AM/FM Professional CB Radio - Easy to Operate, Emergency Radio, Instant Channel 9, 4-Watt Output, Full 40 Channels, Adjustable Receiver and SWR Calibration, Black" src="https://m.media-amazon.com/images/I/41G2Qg0x8HL._SL500_.jpg"/></a>
 
 
 The **Cobra 29 LTD Classic AM/FM Professional CB Radio** is ideal for truck drivers, emergency responders, and outdoor enthusiasts who need a reliable communication device. If you require instant access to emergency channels and a durable radio with adjustable features, this CB radio is designed to meet those needs efficiently.
@@ -77,10 +77,10 @@ The **Cobra 29 LTD Classic** radio stands out with its robust features tailored 
 
 Moreover, the device’s **adjustable receiver and SWR calibration** empower users to fine-tune the radio for optimal performance, reducing interference and improving signal clarity. The compact size and lightweight design facilitate easy installation and portability, making it an excellent companion for long-haul journeys or outdoor expeditions. Overall, the **Cobra 29 LTD Classic** delivers reliable, high-quality CB radio communication suited for a wide range of users.
 
-## <a href="https://www.amazon.com/dp/B01C5TF5XK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Uniden Pc78ltx 40-channel Trucker's Cb Radio</a>
+## <a href="https://www.amazon.com/dp/B01C5TF5XK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Uniden Pc78ltx 40-channel Trucker's Cb Radio</a>
 
 
-<a href="https://www.amazon.com/dp/B01C5TF5XK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Uniden PC78LTX 40-Channel Trucker's CB Radio with Integrated SWR Meter, PA Function, Hi Cut, Mic/RF Gain, and Instant Channel 9,Silver" src="https://m.media-amazon.com/images/I/41qNYMneUrL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01C5TF5XK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Uniden PC78LTX 40-Channel Trucker's CB Radio with Integrated SWR Meter, PA Function, Hi Cut, Mic/RF Gain, and Instant Channel 9,Silver" src="https://m.media-amazon.com/images/I/41qNYMneUrL._SL500_.jpg"/></a>
 
 
 The **Uniden PC78LTX 40-Channel Trucker's CB Radio** is ideal for professional truck drivers, long-haul travelers, and CB radio enthusiasts who require reliable communication on the road. If you need a durable and feature-rich CB radio with clear audio and easy channel access, this device is designed to meet those demands.
@@ -105,10 +105,10 @@ The **Uniden PC78LTX CB radio** boasts a robust design with a sleek silver finis
 
 Additional features like the **PA function** allow the radio to double as a public address system, providing versatility for various communication needs. The inclusion of **Hi Cut** technology minimizes background noise, delivering crisp and clear audio even in noisy environments. With adjustable **mic and RF gain controls**, users can personalize their transmission and reception settings, tailoring the device to different road conditions and communication requirements. The convenient **instant Channel 9 button** ensures emergency communication is always just a press away, making the Uniden PC78LTX a reliable companion on any journey.
 
-## <a href="https://www.amazon.com/dp/B0C89KFHQJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">F150 Tailgate Antenna Holder</a>
+## <a href="https://www.amazon.com/dp/B0C89KFHQJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">F150 Tailgate Antenna Holder</a>
 
 
-<a href="https://www.amazon.com/dp/B0C89KFHQJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="F150 Tailgate Antenna Holder, Rear Truck Bed CB Antenna Mount Bracket Compatible with 2015-2023 Ford F150, Passenger Side" src="https://m.media-amazon.com/images/I/419fiq2010L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C89KFHQJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="F150 Tailgate Antenna Holder, Rear Truck Bed CB Antenna Mount Bracket Compatible with 2015-2023 Ford F150, Passenger Side" src="https://m.media-amazon.com/images/I/419fiq2010L._SL500_.jpg"/></a>
 
 
 The **F150 Tailgate Antenna Holder** is ideal for Ford F150 owners, specifically those with models from **2015 to 2023**, who need a reliable and durable mounting solution for their CB antennas. If you use your truck for off-roading, long-haul driving, or work-related communication, this accessory is perfect for enhancing your vehicle’s communication capabilities without compromising style or utility.
@@ -130,10 +130,10 @@ The **NORTHYUN F150 Tailgate Antenna Holder** stands out with its precise compat
 
 Installing this antenna mount bracket on the passenger side of your rear truck bed allows for optimal antenna positioning, which can significantly improve signal reception and transmission. Its robust build not only offers durability but also protects your antenna from damage due to vibrations or impacts while driving. Overall, this product enhances your truck’s communication setup, making it an essential accessory for F150 owners who rely on CB radios for work or recreation.
 
-## <a href="https://www.amazon.com/dp/B0794H67JP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Cobra Hhrt50 Road Trip Cb Radio</a>
+## <a href="https://www.amazon.com/dp/B0794H67JP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Cobra Hhrt50 Road Trip Cb Radio</a>
 
 
-<a href="https://www.amazon.com/dp/B0794H67JP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Cobra HHRT50 Road Trip CB Radio - 2-Way Handheld Emergency Radio with Access to Full 40 Channels &amp; NOAA Alerts, Rooftop Magnet Mount Antenna and Omni-Directional Microphone, Black, 6.3" src="https://m.media-amazon.com/images/I/31uJzHYyd5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0794H67JP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Cobra HHRT50 Road Trip CB Radio - 2-Way Handheld Emergency Radio with Access to Full 40 Channels &amp; NOAA Alerts, Rooftop Magnet Mount Antenna and Omni-Directional Microphone, Black, 6.3" src="https://m.media-amazon.com/images/I/31uJzHYyd5L._SL500_.jpg"/></a>
 
 
 The **Cobra HHRT50 Road Trip CB Radio** is ideal for outdoor enthusiasts, long-distance travelers, and emergency preparedness advocates who need reliable communication on the go. Whether you are embarking on a road trip, camping in remote areas, or requiring a dependable two-way radio for safety, this handheld device offers comprehensive features tailored to meet your needs.
@@ -156,10 +156,10 @@ The **Cobra HHRT50 Road Trip CB Radio** boasts a compact yet robust design, maki
 
 Additionally, the **omni-directional microphone** enhances user experience by enabling hands-free operation, making it safer and more convenient to use while driving or multitasking. The radio’s lightweight build and intuitive controls make it accessible to users of all skill levels, ensuring reliable communication wherever the road takes you.
 
-## <a href="https://www.amazon.com/dp/B00S6YEPQC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Workman B2030 Cb Radio Metal Swivel Adjustable Floor Mount</a>
+## <a href="https://www.amazon.com/dp/B00S6YEPQC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Workman B2030 Cb Radio Metal Swivel Adjustable Floor Mount</a>
 
 
-<a href="https://www.amazon.com/dp/B00S6YEPQC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Workman B2030 Cb Radio Metal Swivel Adjustable Floor Mount" src="https://m.media-amazon.com/images/I/31nQnm73FcL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00S6YEPQC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Workman B2030 Cb Radio Metal Swivel Adjustable Floor Mount" src="https://m.media-amazon.com/images/I/31nQnm73FcL._SL500_.jpg"/></a>
 
 
 The **Workman B2030 CB Radio Metal Swivel Adjustable Floor Mount** is ideal for CB radio enthusiasts and professionals who require a sturdy, flexible mounting solution. Whether you're a truck driver, off-road adventurer, or someone who relies on CB communication for work or leisure, this mount offers the durability and adjustability needed for optimal radio placement.
@@ -181,10 +181,10 @@ The **Workman B2030** floor mount features a robust metal construction that ensu
 
 Measuring just 6 inches in height, width, and length, this mount is compact yet sturdy enough to support various CB radio models. The black finish not only provides a sleek look but also resists wear and tear, maintaining a professional appearance over time. Its floor installation design maximizes space within the vehicle, keeping your dashboard and other areas clutter-free while ensuring your communication device is always within reach.
 
-## <a href="https://www.amazon.com/dp/B073DH31LW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Workman Dxx-c Cb Radio Mounting Bracket</a>
+## <a href="https://www.amazon.com/dp/B073DH31LW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Workman Dxx-c Cb Radio Mounting Bracket</a>
 
 
-<a href="https://www.amazon.com/dp/B073DH31LW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="WORKMAN DXX-C ( Chrome ) CB RADIO MOUNTING BRACKET 8 1/4" src="https://m.media-amazon.com/images/I/41Urw33auLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B073DH31LW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="WORKMAN DXX-C ( Chrome ) CB RADIO MOUNTING BRACKET 8 1/4" src="https://m.media-amazon.com/images/I/41Urw33auLL._SL500_.jpg"/></a>
 
 
 The **WORKMAN DXX-C (Chrome) CB Radio Mounting Bracket** is ideal for CB radio enthusiasts, truck drivers, and off-road vehicle owners who need a reliable and sturdy mounting solution for their communication devices. If you are looking to securely install your CB radio in your vehicle with ease, this mounting bracket is designed to meet your needs.
@@ -207,10 +207,10 @@ The **WORKMAN DXX-C mounting bracket** boasts a robust build with a **chrome fin
 
 Installation is straightforward, making it accessible even to those without extensive technical skills. The bracket’s sturdy construction offers reliable support, which is essential for drivers who require uninterrupted communication on the road. Overall, this mounting bracket enhances the usability of your CB radio by providing a secure, practical, and stylish mounting option.
 
-## <a href="https://www.amazon.com/dp/B0DS57TJ3K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Radioddity Cb-606 Cb Radio</a>
+## <a href="https://www.amazon.com/dp/B0DS57TJ3K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Radioddity Cb-606 Cb Radio</a>
 
 
-<a href="https://www.amazon.com/dp/B0DS57TJ3K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Radioddity CB-606 CB Radio, 40 Channel Mobile CB Radio with AM/FM/PA Modes, 2.2’’ LCD Screen, Instant Channel 9/19, VOX, Roger Beep, TOT, ASQ/SQ, for Off-Road Adventure" src="https://m.media-amazon.com/images/I/41ztiJQFXCL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DS57TJ3K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Radioddity CB-606 CB Radio, 40 Channel Mobile CB Radio with AM/FM/PA Modes, 2.2’’ LCD Screen, Instant Channel 9/19, VOX, Roger Beep, TOT, ASQ/SQ, for Off-Road Adventure" src="https://m.media-amazon.com/images/I/41ztiJQFXCL._SL500_.jpg"/></a>
 
 
 The **Radioddity CB-606 CB Radio** is an ideal choice for **off-road adventurers** and outdoor enthusiasts who require reliable communication while exploring remote areas. With its **40 channels** and versatile modes, it's perfect for those who need a dependable device for keeping in touch with their group, ensuring safety and coordination during expeditions.
@@ -230,10 +230,10 @@ The **Radioddity CB-606** offers a host of features that make it a standout choi
 
 Additionally, the **Time-Out Timer (TOT)** is an excellent feature to prevent the radio from overheating due to prolonged transmission, thus ensuring the longevity of the device. The **Automatic Squelch Control (ASQ/SQ)** further enhances the listening experience by reducing background noise, which is particularly beneficial in noisy environments. Overall, the **Radioddity CB-606** is a reliable partner for those who seek adventure off the beaten path.
 
-## <a href="https://www.amazon.com/dp/B0DKJ62G69?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Retevis Mb3a 40-channel Am/fm Cb Radio Kit</a>
+## <a href="https://www.amazon.com/dp/B0DKJ62G69?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Retevis Mb3a 40-channel Am/fm Cb Radio Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0DKJ62G69?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Retevis MB3A 40-Channel AM/FM CB Radio Kit - Long Range Trucker Radio with Antenna, 12V/24V Cigarette Lighter, Noise Limiter, PA, Emergency Channels 9/19, Cooling System" src="https://m.media-amazon.com/images/I/41zqHDjNCtL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DKJ62G69?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Retevis MB3A 40-Channel AM/FM CB Radio Kit - Long Range Trucker Radio with Antenna, 12V/24V Cigarette Lighter, Noise Limiter, PA, Emergency Channels 9/19, Cooling System" src="https://m.media-amazon.com/images/I/41zqHDjNCtL._SL500_.jpg"/></a>
 
 
 The **Retevis MB3A 40-Channel AM/FM CB Radio Kit** is ideal for professional truckers, off-road enthusiasts, and anyone needing reliable long-range communication on the road. If you require a durable, easy-to-use radio with essential safety features and versatile connectivity, this CB radio kit is a perfect choice for maintaining clear communication during long hauls or outdoor adventures.
@@ -257,10 +257,10 @@ The **Retevis MB3A CB Radio** stands out with its 40-channel AM/FM capability, p
 
 Designed for practical use, this radio kit comes complete with an antenna and a convenient 12V/24V cigarette lighter power adapter, making installation and power supply straightforward for both personal vehicles and commercial trucks. The presence of emergency channels 9 and 19 adds a layer of safety, enabling users to quickly connect to essential services or other drivers in case of urgent situations. Additionally, the PA feature expands its utility by allowing announcements through an external speaker, making it ideal for group communication during road convoys or outdoor events.
 
-## <a href="https://www.amazon.com/dp/B0DDBX6HBV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">At-505pro Cb Radio</a>
+## <a href="https://www.amazon.com/dp/B0DDBX6HBV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">At-505pro Cb Radio</a>
 
 
-<a href="https://www.amazon.com/dp/B0DDBX6HBV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CB Radio 40 Channels AM/FM CB Radio Kit CB 27 MHz 40 Channel CB Radio Long Range CB Radio for Vehicle Truck Cars AT-505PRO CB Radio with Squeltch" src="https://m.media-amazon.com/images/I/41ht4vshApL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DDBX6HBV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CB Radio 40 Channels AM/FM CB Radio Kit CB 27 MHz 40 Channel CB Radio Long Range CB Radio for Vehicle Truck Cars AT-505PRO CB Radio with Squeltch" src="https://m.media-amazon.com/images/I/41ht4vshApL._SL500_.jpg"/></a>
 
 
 The **CB Radio 40 Channels AM/FM CB Radio Kit** is ideal for drivers who require reliable and long-range communication, such as truckers, off-road enthusiasts, and vehicle owners who travel in remote areas. This **CB 27 MHz radio** provides clear and consistent connectivity, making it a practical choice for those seeking an effective communication tool on the road.

@@ -23,10 +23,10 @@ Sizes such as 275/55R20 and LT265/70R18 fit many trucks and SUVs. Choosing the r
 
 
 
-## <a href="https://www.amazon.com/dp/B09XBDMF2P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Venom Power Terra Hunter X/t Xt Truck/suv All-terrain Mud Off-road Radial Tires</a>
+## <a href="https://www.amazon.com/dp/B09XBDMF2P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Venom Power Terra Hunter X/t Xt Truck/suv All-terrain Mud Off-road Radial Tires</a>
 
 
-<a href="https://www.amazon.com/dp/B09XBDMF2P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Set of 4 (FOUR) Venom Power Terra Hunter X/T XT Truck/SUV All-Terrain Mud Off-Road Radial Tires-275/55R20 275/55/20 275/55-20 117T Load Range XL 4-Ply BSW Black Side Wall" src="https://m.media-amazon.com/images/I/41Ve55TaskL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09XBDMF2P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Set of 4 (FOUR) Venom Power Terra Hunter X/T XT Truck/SUV All-Terrain Mud Off-Road Radial Tires-275/55R20 275/55/20 275/55-20 117T Load Range XL 4-Ply BSW Black Side Wall" src="https://m.media-amazon.com/images/I/41Ve55TaskL._SL500_.jpg"/></a>
 
 
 The **Set of 4 Venom Power Terra Hunter X/T XT Truck/SUV All-Terrain Mud Off-Road Radial Tires** is perfect for drivers who demand durability and performance in challenging environments. Ideal for off-road enthusiasts, truck and SUV owners, and anyone looking to upgrade their vehicle’s traction and handling on rough terrains, these tires offer a reliable solution for both mud and all-terrain driving needs.
@@ -49,10 +49,10 @@ The **Venom Power Terra Hunter X/T XT tires** are engineered with a robust 4-ply
 
 Additionally, these tires feature a **Black Side Wall (BSW)** aesthetic, which not only contributes to a bold, rugged appearance but also offers protection against sidewall damage. The specified size of **275/55R20** fits a wide range of trucks and SUVs, providing versatility for many vehicle owners. With a **Load Range XL** and a **117T** load index, these tires support heavier loads and higher speeds, making them suitable for both work and recreational use.
 
-## <a href="https://www.amazon.com/dp/B0CYY4QV7Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tire Lt265/70r18 121s All Country A/t2 Ironman07698</a>
+## <a href="https://www.amazon.com/dp/B0CYY4QV7Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tire Lt265/70r18 121s All Country A/t2 Ironman07698</a>
 
 
-<a href="https://www.amazon.com/dp/B0CYY4QV7Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tire LT265/70R18 121S fits ALL COUNTRY A/T2 Ironman07698 All Terrain All-Season Light Trucks, CUVs &amp; SUVs Black Wall E" src="https://m.media-amazon.com/images/I/4161M6LIRFL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CYY4QV7Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tire LT265/70R18 121S fits ALL COUNTRY A/T2 Ironman07698 All Terrain All-Season Light Trucks, CUVs &amp; SUVs Black Wall E" src="https://m.media-amazon.com/images/I/4161M6LIRFL._SL500_.jpg"/></a>
 
 
 The **Tire LT265/70R18 121S** fits **ALL COUNTRY A/T2 Ironman07698** is ideal for drivers of **light trucks, CUVs, and SUVs** who require durable and reliable performance in all terrains and seasons. If you frequently drive on rugged off-road paths or encounter varying weather conditions, this tire offers the robust traction and versatility you need. It’s perfect for those seeking a balance between everyday usability and enhanced off-road capability.

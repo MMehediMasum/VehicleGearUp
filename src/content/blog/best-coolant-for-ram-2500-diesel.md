@@ -23,10 +23,10 @@ Sinister Diesel’s Coolant Filtration System helps protect the heater core and 
 
 
 
-## <a href="https://www.amazon.com/dp/B017DP43ZC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mopar 10 Year/150,000 Mile Coolant 50/50 Premixed</a>
+## <a href="https://www.amazon.com/dp/B017DP43ZC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mopar 10 Year/150,000 Mile Coolant 50/50 Premixed</a>
 
 
-<a href="https://www.amazon.com/dp/B017DP43ZC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mopar 10 Year/150,000 Mile Coolant 50/50 Premixed" src="https://m.media-amazon.com/images/I/41aLF+cfO1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B017DP43ZC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mopar 10 Year/150,000 Mile Coolant 50/50 Premixed" src="https://m.media-amazon.com/images/I/41aLF+cfO1L._SL500_.jpg"/></a>
 
 
 The **Mopar 10 Year/150,000 Mile Coolant 50/50 Premixed** is ideal for vehicle owners who seek long-lasting and reliable engine cooling performance. This product is perfect for those who want to minimize maintenance efforts and ensure their engine stays protected against corrosion and overheating for an extended period. If you prioritize quality and durability in your vehicle’s cooling system, this coolant is a smart investment.
@@ -49,10 +49,10 @@ The **Mopar 10 Year/150,000 Mile Coolant 50/50 Premixed** features a carefully e
 
 Additionally, this coolant’s long service interval reduces the frequency of coolant changes, saving you both time and money over the life of your vehicle. With dimensions designed for easy handling and storage, and backed by the reputable Mopar brand, this coolant ensures your engine performs efficiently, even under demanding conditions.
 
-## <a href="https://www.amazon.com/dp/B017DP433O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mopar Antifreeze-coolant Concentrate</a>
+## <a href="https://www.amazon.com/dp/B017DP433O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mopar Antifreeze-coolant Concentrate</a>
 
 
-<a href="https://www.amazon.com/dp/B017DP433O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mopar 10 Year/150,000 Mile Antifreeze-Coolant Concentrate - 68163848AB" src="https://m.media-amazon.com/images/I/31LPdeARi8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B017DP433O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mopar 10 Year/150,000 Mile Antifreeze-Coolant Concentrate - 68163848AB" src="https://m.media-amazon.com/images/I/31LPdeARi8L._SL500_.jpg"/></a>
 
 
 The **Mopar 10 Year/150,000 Mile Antifreeze-Coolant Concentrate - 68163848AB** is ideal for vehicle owners who prioritize long-lasting engine protection and reliability. This product is perfect for those looking to maintain optimal engine temperature, prevent corrosion, and extend the life of their cooling system without frequent coolant changes. It's especially suitable for Mopar vehicle enthusiasts and anyone seeking a trusted, manufacturer-approved antifreeze solution.
@@ -75,10 +75,10 @@ The **Mopar Antifreeze-Coolant Concentrate** stands out with its impressive long
 
 Additionally, the concentrate format allows users to mix the antifreeze at the desired ratio, providing flexibility and cost-effectiveness. The product's compatibility with Mopar vehicles guarantees optimal chemical balance and performance, giving users peace of mind. Investing in this antifreeze means fewer coolant changes and less maintenance hassle, making it a smart choice for drivers focused on long-term vehicle care.
 
-## <a href="https://www.amazon.com/dp/B0773GKNKY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Genuine Coolant Antifreeze</a>
+## <a href="https://www.amazon.com/dp/B0773GKNKY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Genuine Coolant Antifreeze</a>
 
 
-<a href="https://www.amazon.com/dp/B0773GKNKY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Genuine Coolant Antifreeze, 50/50 68163849AB" src="https://m.media-amazon.com/images/I/51Vb7OEYCZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0773GKNKY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Genuine Coolant Antifreeze, 50/50 68163849AB" src="https://m.media-amazon.com/images/I/51Vb7OEYCZL._SL500_.jpg"/></a>
 
 
 The **Genuine Coolant Antifreeze, 50/50 68163849AB** is ideal for vehicle owners who prioritize maintaining their engine’s optimal temperature and preventing corrosion. This product is perfect for those who want a reliable and efficient coolant solution that is specifically designed for compatibility with Mopar vehicles, ensuring maximum performance and protection.
@@ -100,10 +100,10 @@ The **Genuine Coolant Antifreeze** features a precise 50/50 mix of antifreeze an
 
 Using a **manufacturer-approved Mopar coolant** guarantees compatibility with your vehicle’s materials and systems, reducing the risk of damage caused by improper fluids. This product’s easy-to-use pre-mixed design saves time and eliminates guesswork, offering convenience without sacrificing performance. Overall, this coolant supports efficient engine operation, contributing to better fuel economy and lower repair costs over time.
 
-## <a href="https://www.amazon.com/dp/B0763KFF3Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Zerex Hd Nitrite Free Extended Life Concentrate Antifreeze/coolant</a>
+## <a href="https://www.amazon.com/dp/B0763KFF3Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Zerex Hd Nitrite Free Extended Life Concentrate Antifreeze/coolant</a>
 
 
-<a href="https://www.amazon.com/dp/B0763KFF3Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Zerex HD Nitrite Free Extended Life Concentrate Antifreeze/Coolant 1 GA" src="https://m.media-amazon.com/images/I/41r6ysjwEjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0763KFF3Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Zerex HD Nitrite Free Extended Life Concentrate Antifreeze/Coolant 1 GA" src="https://m.media-amazon.com/images/I/41r6ysjwEjL._SL500_.jpg"/></a>
 
 
 The **Zerex HD Nitrite Free Extended Life Concentrate Antifreeze/Coolant 1 GA** is ideal for vehicle owners who prioritize long-term engine protection and are looking for a reliable, high-quality antifreeze solution. It is particularly suited for those who have heavy-duty vehicles or equipment requiring a nitrite-free formula to prevent cavitation and corrosion.
@@ -124,10 +124,10 @@ The **Zerex HD Nitrite Free Extended Life Concentrate Antifreeze/Coolant** stand
 
 Additionally, its **concentrate formula** provides flexibility, allowing users to adjust the dilution according to their specific needs, ensuring optimal performance in various climates and conditions. While the product's **yellow color** aids in easy identification, its compatibility with a wide range of vehicles ensures it is a versatile choice for many. Despite its benefits, users should note that the need for dilution might require additional effort, and its **heavier weight** may need consideration during handling and storage.
 
-## <a href="https://www.amazon.com/dp/B0B9J7ZXMJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Coolant Reservoir Tank Level Sensor</a>
+## <a href="https://www.amazon.com/dp/B0B9J7ZXMJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Coolant Reservoir Tank Level Sensor</a>
 
 
-<a href="https://www.amazon.com/dp/B0B9J7ZXMJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Coolant Reservoir Tank Level Sensor 68354536AA for 13-18 Dodge RAMm Diesel Radiator RAMm 2500 3500 4500 5500 coolant Level Sensor" src="https://m.media-amazon.com/images/I/31bCP46xZyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B9J7ZXMJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Coolant Reservoir Tank Level Sensor 68354536AA for 13-18 Dodge RAMm Diesel Radiator RAMm 2500 3500 4500 5500 coolant Level Sensor" src="https://m.media-amazon.com/images/I/31bCP46xZyL._SL500_.jpg"/></a>
 
 
 The **Coolant Reservoir Tank Level Sensor 68354536AA** is ideal for owners of **2013-2018 Dodge RAM Diesel models** including the **RAM 2500, 3500, 4500, and 5500** series who need an accurate and reliable way to monitor their radiator coolant levels. If you want to maintain optimal engine performance and prevent overheating issues, this sensor is designed specifically for your vehicle’s cooling system requirements.
@@ -150,10 +150,10 @@ This **Coolant Reservoir Tank Level Sensor** is engineered to fit perfectly with
 
 Additionally, the sensor’s design facilitates seamless integration with the vehicle’s existing monitoring system, allowing for timely alerts when coolant levels drop below safe thresholds. This proactive feature enables drivers to take immediate action, reducing downtime and repair expenses. Overall, investing in this sensor is a smart choice for Dodge RAM Diesel owners focused on maintaining engine health and maximizing their truck’s operational lifespan.
 
-## <a href="https://www.amazon.com/dp/B08K1QJ9JN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sinister Diesel Coolant Filtration System For 2013-2018 Dodge Ram 2500/3500 6.7l Cummins</a>
+## <a href="https://www.amazon.com/dp/B08K1QJ9JN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sinister Diesel Coolant Filtration System For 2013-2018 Dodge Ram 2500/3500 6.7l Cummins</a>
 
 
-<a href="https://www.amazon.com/dp/B08K1QJ9JN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Sinister Diesel Coolant Filtration System for 2013-2018 Dodge Ram 2500/3500 6.7L Cummins – Protects Heater Core, Reduces Contaminants, Easy Bolt-On Install, Includes Filter &amp; Hoses" src="https://m.media-amazon.com/images/I/41ZNKFPoMEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08K1QJ9JN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Sinister Diesel Coolant Filtration System for 2013-2018 Dodge Ram 2500/3500 6.7L Cummins – Protects Heater Core, Reduces Contaminants, Easy Bolt-On Install, Includes Filter &amp; Hoses" src="https://m.media-amazon.com/images/I/41ZNKFPoMEL._SL500_.jpg"/></a>
 
 
 The **Sinister Diesel Coolant Filtration System** is ideal for owners of **2013-2018 Dodge Ram 2500/3500** trucks equipped with the **6.7L Cummins** engine who want to enhance their vehicle’s cooling system reliability. If you are looking to protect your **heater core** from damage caused by contaminants or want an easy-to-install solution that maintains engine performance, this filtration system is a perfect choice.
@@ -176,10 +176,10 @@ The **Sinister Diesel Coolant Filtration System** features a robust filter desig
 
 Beyond just protection, this filtration system contributes to maintaining optimal engine temperatures by ensuring coolant flow remains clean and efficient. This means improved overall engine performance and longevity. For owners of **Dodge Ram 2500/3500 trucks** with the **6.7L Cummins** engine, investing in this filtration system offers peace of mind and a proactive approach to vehicle maintenance.
 
-## <a href="https://www.amazon.com/dp/B08HNGKZD8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Peak All Vehicles 50/50 Prediluted Antifreeze And Coolant</a>
+## <a href="https://www.amazon.com/dp/B08HNGKZD8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Peak All Vehicles 50/50 Prediluted Antifreeze And Coolant</a>
 
 
-<a href="https://www.amazon.com/dp/B08HNGKZD8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PEAK All Vehicles 50/50 Prediluted Antifreeze and Coolant for All Engine Cooling Systems, Long-Lasting Yellow Engine Coolant/Antifreeze for Year-Round Engine Protection, 1 Gal." src="https://m.media-amazon.com/images/I/41YnO8XraeL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08HNGKZD8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PEAK All Vehicles 50/50 Prediluted Antifreeze and Coolant for All Engine Cooling Systems, Long-Lasting Yellow Engine Coolant/Antifreeze for Year-Round Engine Protection, 1 Gal." src="https://m.media-amazon.com/images/I/41YnO8XraeL._SL500_.jpg"/></a>
 
 
 The **PEAK All Vehicles 50/50 Prediluted Antifreeze and Coolant** is ideal for vehicle owners looking for a reliable, year-round solution to protect their engine cooling systems. Whether you drive a car, truck, or SUV, this coolant is designed for anyone seeking long-lasting engine protection without the hassle of mixing concentrates.
@@ -201,10 +201,10 @@ The **PEAK 50/50 Prediluted Antifreeze and Coolant** offers a convenient solutio
 
 This antifreeze not only protects your engine from freezing in cold weather but also prevents overheating during hot conditions, ensuring your engine runs smoothly all year round. The long-lasting formula reduces the frequency of coolant changes, saving time and maintenance costs. Additionally, the bright yellow color helps users quickly identify the coolant, preventing mix-ups with other fluids in the engine bay.
 
-## <a href="https://www.amazon.com/dp/B0C6NNDHSS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Fleece Performance Coolant Bypass Kit</a>
+## <a href="https://www.amazon.com/dp/B0C6NNDHSS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Fleece Performance Coolant Bypass Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0C6NNDHSS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Fleece Performance - 2019+ Ram 2500/3500 Cummins 6.7L Coolant Bypass Kit (FPE-CLNTBYPS-CUMMINS-19)" src="https://m.media-amazon.com/images/I/31rv8AxZA9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C6NNDHSS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Fleece Performance - 2019+ Ram 2500/3500 Cummins 6.7L Coolant Bypass Kit (FPE-CLNTBYPS-CUMMINS-19)" src="https://m.media-amazon.com/images/I/31rv8AxZA9L._SL500_.jpg"/></a>
 
 
 The **Fleece Performance - 2019+ Ram 2500/3500 Cummins 6.7L Coolant Bypass Kit (FPE-CLNTBYPS-CUMMINS-19)** is ideal for truck owners and diesel enthusiasts who want to enhance their engine's cooling efficiency and overall performance. If you own a 2019 or newer Ram 2500 or 3500 with the Cummins 6.7L engine and seek reliable, high-quality aftermarket parts to maintain optimal engine temperatures, this kit is designed for you.
@@ -226,10 +226,10 @@ The **Fleece Performance Coolant Bypass Kit** is engineered to redirect coolant 
 
 Constructed by **Fleece Performance Engineering**, a trusted name in diesel performance parts, this kit is made from durable materials designed to withstand high temperatures and pressures. Its precise fitment ensures seamless integration with the 2019+ Ram 2500/3500 Cummins 6.7L engines, minimizing installation time and hassle. Ultimately, users benefit from enhanced engine protection, improved fuel efficiency, and peace of mind during demanding driving conditions.
 
-## <a href="https://www.amazon.com/dp/B0DCJYLHND?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Aupartik Coolant Reservoir Tank Level Sensor</a>
+## <a href="https://www.amazon.com/dp/B0DCJYLHND?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Aupartik Coolant Reservoir Tank Level Sensor</a>
 
 
-<a href="https://www.amazon.com/dp/B0DCJYLHND?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="AUPARTIK Coolant Reservoir Tank Level Sensor for 2013-2018 Dodge RAM 2500 3500 4500 5500 Diesel Radiator 68354536AA" src="https://m.media-amazon.com/images/I/21Qkl5V8K3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DCJYLHND?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="AUPARTIK Coolant Reservoir Tank Level Sensor for 2013-2018 Dodge RAM 2500 3500 4500 5500 Diesel Radiator 68354536AA" src="https://m.media-amazon.com/images/I/21Qkl5V8K3L._SL500_.jpg"/></a>
 
 
 The **AUPARTIK Coolant Reservoir Tank Level Sensor** is ideal for owners of **2013-2018 Dodge RAM 2500, 3500, 4500, and 5500 Diesel** trucks who want a reliable and accurate way to monitor their vehicle's coolant levels. If you prioritize maintaining optimal engine temperature and preventing overheating issues, this sensor is a perfect upgrade or replacement part to ensure your truck runs smoothly.
@@ -250,10 +250,10 @@ The **AUPARTIK Coolant Reservoir Tank Level Sensor** is designed to provide accu
 
 Constructed by **AUPARTIK**, this sensor is built to withstand the demanding conditions of heavy-duty trucks. Its robust design ensures reliability even in harsh driving environments. The sensor's easy installation process means users can quickly replace faulty sensors or upgrade their vehicle's monitoring system, enhancing overall vehicle safety and performance.
 
-## <a href="https://www.amazon.com/dp/B0DJ27GFS8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Belifly Weldless Dual Radiator Coolant Y-pipe</a>
+## <a href="https://www.amazon.com/dp/B0DJ27GFS8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Belifly Weldless Dual Radiator Coolant Y-pipe</a>
 
 
-<a href="https://www.amazon.com/dp/B0DJ27GFS8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BELIFLY Weldless Dual Radiator Coolant Y-Pipe Compatible with Dodge Ram 2500 3500 6.7L Cummins Diesel 2013 2014 2015 2016 2017 2018 2019 2020 Black" src="https://m.media-amazon.com/images/I/411V3BSbr6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DJ27GFS8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BELIFLY Weldless Dual Radiator Coolant Y-Pipe Compatible with Dodge Ram 2500 3500 6.7L Cummins Diesel 2013 2014 2015 2016 2017 2018 2019 2020 Black" src="https://m.media-amazon.com/images/I/411V3BSbr6L._SL500_.jpg"/></a>
 
 
 The **BELIFLY Weldless Dual Radiator Coolant Y-Pipe** is ideal for owners of **Dodge Ram 2500 and 3500 trucks** equipped with the **6.7L Cummins Diesel engine** from model years **2013 to 2020**. If you are looking to enhance your vehicle’s cooling system with a reliable, durable, and easy-to-install component, this Y-pipe is designed specifically to meet those needs. It is perfect for mechanics, diesel enthusiasts, or anyone aiming to maintain optimal engine temperature and improve coolant flow without welding hassles.

@@ -23,10 +23,10 @@ Different soaps work well with buckets, foam cannons, or hand washing. Choosing 
 
 
 
-## <a href="https://www.amazon.com/dp/B0009IQXFO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Meguiar's Gold Class Car Wash</a>
+## <a href="https://www.amazon.com/dp/B0009IQXFO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Meguiar's Gold Class Car Wash</a>
 
 
-<a href="https://www.amazon.com/dp/B0009IQXFO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Meguiar's Gold Class Car Wash - Get Professional Results in a Foam Cannon or as a Bucket Wash - Get a Clean and Glossy Finish That's Safe for All Paint Types - 64 Oz" src="https://m.media-amazon.com/images/I/41ZTfGV-3cL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0009IQXFO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Meguiar's Gold Class Car Wash - Get Professional Results in a Foam Cannon or as a Bucket Wash - Get a Clean and Glossy Finish That's Safe for All Paint Types - 64 Oz" src="https://m.media-amazon.com/images/I/41ZTfGV-3cL._SL500_.jpg"/></a>
 
 
 Ideal for car enthusiasts and everyday drivers alike, **Meguiar's Gold Class Car Wash** is perfect for those seeking a professional-quality cleaning product that is gentle on all paint types. Whether you prefer using a foam cannon or a traditional bucket wash, this 64 oz. bottle offers a versatile solution to achieve a spotless, glossy finish without damaging your vehicle's surface.
@@ -48,10 +48,10 @@ The **Meguiar's Gold Class Car Wash** features a unique formula that gently lift
 
 Another benefit is its versatility; the product is designed for use with both foam cannons and traditional bucket washing methods. This flexibility allows users to adapt their car care routine based on their available equipment and preferences. Additionally, the product's safe formulation ensures it is suitable for all paint types, providing peace of mind for anyone looking to preserve their car’s finish while keeping it looking showroom-ready.
 
-## <a href="https://www.amazon.com/dp/B0C62J4CSY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rain-x Foaming Car Wash</a>
+## <a href="https://www.amazon.com/dp/B0C62J4CSY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rain-x Foaming Car Wash</a>
 
 
-<a href="https://www.amazon.com/dp/B0C62J4CSY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rain-X 620191 Foaming Car Wash - 100 fl oz. High-Foaming, Concentrated Formula for Greater Cleaning Action, Safely Lifting Dirt, Grime and Residues for an Exceptional Clean" src="https://m.media-amazon.com/images/I/41PQkK8EtiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C62J4CSY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rain-X 620191 Foaming Car Wash - 100 fl oz. High-Foaming, Concentrated Formula for Greater Cleaning Action, Safely Lifting Dirt, Grime and Residues for an Exceptional Clean" src="https://m.media-amazon.com/images/I/41PQkK8EtiL._SL500_.jpg"/></a>
 
 
 Ideal for car enthusiasts and everyday drivers who want a **spotless, shiny vehicle** without spending hours scrubbing, the **Rain-X 620191 Foaming Car Wash** is perfect for those seeking a **powerful yet gentle cleaning solution**. If you value convenience and effectiveness in maintaining your car’s exterior, this **high-foaming, concentrated formula** is designed to lift away dirt, grime, and residues safely, making it an excellent choice for both regular and deep cleaning sessions.
@@ -74,10 +74,10 @@ The **Rain-X 620191 Foaming Car Wash** stands out due to its **advanced foaming 
 
 Beyond its cleaning power, this car wash is formulated to be **safe on all paint types and finishes**, including clear coats and wax layers. This guarantees your vehicle maintains its showroom shine after every wash. The easy rinsing formula leaves behind a streak-free, gleaming surface, saving you time and effort. With dimensions optimized for easy storage and a generous 100 fl oz volume, this product offers a convenient and efficient way to keep your car looking its best throughout the year.
 
-## <a href="https://www.amazon.com/dp/B001GJ9K8C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Armor All Ultra Shine Car Wash And Car Wax</a>
+## <a href="https://www.amazon.com/dp/B001GJ9K8C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Armor All Ultra Shine Car Wash And Car Wax</a>
 
 
-<a href="https://www.amazon.com/dp/B001GJ9K8C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Armor All Ultra Shine Car Wash and Car Wax by Armor All, Cleaning Fluid for Cars, Trucks, Motorcycles, 64 Fl Oz Each" src="https://m.media-amazon.com/images/I/411RWIr9BrL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B001GJ9K8C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Armor All Ultra Shine Car Wash and Car Wax by Armor All, Cleaning Fluid for Cars, Trucks, Motorcycles, 64 Fl Oz Each" src="https://m.media-amazon.com/images/I/411RWIr9BrL._SL500_.jpg"/></a>
 
 
 The **Armor All Ultra Shine Car Wash and Car Wax** is ideal for vehicle owners who want a convenient, all-in-one solution for cleaning and protecting their cars, trucks, or motorcycles. If you seek a product that simplifies maintenance while delivering a professional shine, this is the perfect choice for you. It suits both casual users and automotive enthusiasts looking to enhance their vehicle's appearance with minimal effort.
@@ -100,10 +100,10 @@ The **Armor All Ultra Shine Car Wash and Car Wax** delivers a dual-action formul
 
 With a generous **64 Fl Oz** volume, this product is designed for multiple washes, making it cost-effective for regular vehicle care. The easy-to-use fluid is gentle on surfaces but tough on dirt, ensuring your vehicle stays clean without damage. Whether you own a car, truck, or motorcycle, this versatile product caters to all, maintaining the vehicle’s aesthetics while providing lasting protection.
 
-## <a href="https://www.amazon.com/dp/B09KHMFWMC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Turtle Wax 54320 Hybrid Solutions Slick-n-slide Pure Wash</a>
+## <a href="https://www.amazon.com/dp/B09KHMFWMC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Turtle Wax 54320 Hybrid Solutions Slick-n-slide Pure Wash</a>
 
 
-<a href="https://www.amazon.com/dp/B09KHMFWMC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Turtle Wax 54320 Hybrid Solutions Slick-N-Slide Pure Wash, pH Neutral, Extreme Foaming Car Wash Soap, Hand Wash or Foam Cannon Application, Clay Bar Lubricant, Spot Free Clean, 64 oz. (Pack of 1)" src="https://m.media-amazon.com/images/I/51ObTuQ1TmL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09KHMFWMC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Turtle Wax 54320 Hybrid Solutions Slick-N-Slide Pure Wash, pH Neutral, Extreme Foaming Car Wash Soap, Hand Wash or Foam Cannon Application, Clay Bar Lubricant, Spot Free Clean, 64 oz. (Pack of 1)" src="https://m.media-amazon.com/images/I/51ObTuQ1TmL._SL500_.jpg"/></a>
 
 
 The **Turtle Wax 54320 Hybrid Solutions Slick-N-Slide Pure Wash** is ideal for car enthusiasts and anyone who takes pride in maintaining a spotless vehicle. Whether you're a professional detailer or a weekend warrior, this product suits those who appreciate a high-quality, **pH neutral car wash soap** that delivers an **extreme foaming action** and can be applied using either a **hand wash or foam cannon**. If you're looking for a versatile product that also functions as a **clay bar lubricant** while ensuring a **spot-free clean**, this is the perfect choice for you.
@@ -125,10 +125,10 @@ The **Turtle Wax 54320 Hybrid Solutions Slick-N-Slide Pure Wash** stands out wit
 
 Another notable feature is its dual application capability. Whether you prefer the traditional **hand wash** method or the efficiency of a **foam cannon**, this car wash soap adapts to your preference. Additionally, its role as a **clay bar lubricant** streamlines the detailing process, reducing friction and minimizing the risk of scratches during the clay bar treatment. Overall, this product not only simplifies car maintenance but also elevates the washing experience, delivering professional-level results with ease.
 
-## <a href="https://www.amazon.com/dp/B00XYT5OUU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Detail King Black Cherry Car Wash Soap With Wax</a>
+## <a href="https://www.amazon.com/dp/B00XYT5OUU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Detail King Black Cherry Car Wash Soap With Wax</a>
 
 
-<a href="https://www.amazon.com/dp/B00XYT5OUU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Detail King Black Cherry Car Wash Soap with Wax - Car Wash Shampoo - Glossy Finish - Pint" src="https://m.media-amazon.com/images/I/31V-tthQ3AL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00XYT5OUU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Detail King Black Cherry Car Wash Soap with Wax - Car Wash Shampoo - Glossy Finish - Pint" src="https://m.media-amazon.com/images/I/31V-tthQ3AL._SL500_.jpg"/></a>
 
 
 The **Detail King Black Cherry Car Wash Soap with Wax** is ideal for car enthusiasts and everyday vehicle owners who want to maintain a clean, shiny exterior without the hassle of multiple products. If you’re looking for a convenient solution that combines washing and waxing in one step, this product is perfect for you. It’s especially suited for those who value a **glossy finish** and want to protect their car’s paint with minimal effort.
@@ -151,10 +151,10 @@ The **Detail King Black Cherry Car Wash Soap with Wax** features a unique formul
 
 Additionally, this car wash shampoo is designed to leave a **high-gloss finish** that enhances the depth and shine of your vehicle’s paintwork. The black cherry scent adds a pleasant fragrance to the wash experience, making it enjoyable as well as functional. With its lightweight and compact pint size, this product is easy to handle and store, making it a practical choice for both casual users and dedicated car detailers. Overall, it’s a versatile and effective option for maintaining your car’s appearance.
 
-## <a href="https://www.amazon.com/dp/B0779M7PHW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">P&amp;s Professional Detail Products Pearl Auto Shampoo</a>
+## <a href="https://www.amazon.com/dp/B0779M7PHW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">P&amp;s Professional Detail Products Pearl Auto Shampoo</a>
 
 
-<a href="https://www.amazon.com/dp/B0779M7PHW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="P&amp;S Professional Detail Products Pearl Auto Shampoo – High-Foaming, pH-Balanced Car Wash Soap, Biodegradable, Safe for All Finishes, Lemon Scent, Foam Cannon &amp; Bucket Wash - 1 Gallon" src="https://m.media-amazon.com/images/I/41hAq8HAmUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0779M7PHW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="P&amp;S Professional Detail Products Pearl Auto Shampoo – High-Foaming, pH-Balanced Car Wash Soap, Biodegradable, Safe for All Finishes, Lemon Scent, Foam Cannon &amp; Bucket Wash - 1 Gallon" src="https://m.media-amazon.com/images/I/41hAq8HAmUL._SL500_.jpg"/></a>
 
 
 The **P&S Professional Detail Products Pearl Auto Shampoo** is ideal for car enthusiasts, professional detailers, and everyday vehicle owners who seek a reliable and efficient car wash solution. If you want a high-quality, **biodegradable** shampoo that is safe for all vehicle finishes and delivers a pleasant **lemon scent**, this product is designed for you. It works perfectly with foam cannons or traditional bucket washes, making it versatile for different washing preferences.
@@ -177,10 +177,10 @@ The **P&S Pearl Auto Shampoo** features a high-foaming formula that easily lifts
 
 The product’s versatility allows it to be used with a foam cannon for an advanced washing experience or with a traditional bucket wash, catering to different user preferences. The pleasant **lemon scent** enhances the washing process, leaving your vehicle smelling fresh. Packaged in a convenient 1-gallon container, this shampoo offers excellent value and long-lasting performance for both professional and personal use.
 
-## <a href="https://www.amazon.com/dp/B073PNNVPX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Chemical Guys Cws20764 Extreme Bodywash &amp; Wax Foaming Car Wash Soap</a>
+## <a href="https://www.amazon.com/dp/B073PNNVPX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Chemical Guys Cws20764 Extreme Bodywash &amp; Wax Foaming Car Wash Soap</a>
 
 
-<a href="https://www.amazon.com/dp/B073PNNVPX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Chemical Guys CWS20764 Extreme Bodywash &amp; Wax Foaming Car Wash Soap (For Foam Cannons, Guns or Bucket Washes) For Cars, Trucks, Motorcycles, RVs More, 64 fl oz (Half Gallon) Grape Scent" src="https://m.media-amazon.com/images/I/41jqT24vdPL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B073PNNVPX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Chemical Guys CWS20764 Extreme Bodywash &amp; Wax Foaming Car Wash Soap (For Foam Cannons, Guns or Bucket Washes) For Cars, Trucks, Motorcycles, RVs More, 64 fl oz (Half Gallon) Grape Scent" src="https://m.media-amazon.com/images/I/41jqT24vdPL._SL500_.jpg"/></a>
 
 
 The **Chemical Guys CWS20764 Extreme Bodywash & Wax Foaming Car Wash Soap** is ideal for car enthusiasts and professional detailers who want a high-quality, versatile cleaning product. Whether you own a car, truck, motorcycle, or RV, and prefer using foam cannons, guns, or traditional bucket washes, this product is designed for those seeking an effective wash combined with a pleasant **grape scent** and protective wax benefits.
@@ -202,10 +202,10 @@ The **Chemical Guys Extreme Bodywash & Wax** combines powerful cleaning agents w
 
 The product’s **grape scent** is a refreshing change from typical car wash soaps, making the washing process more enjoyable. Its generous volume of 64 fl oz ensures multiple washes, which is ideal for those who maintain multiple vehicles or perform regular cleaning. Overall, this bodywash and wax soap offers both convenience and quality, making it a valuable addition to any vehicle care routine.
 
-## <a href="https://www.amazon.com/dp/B00XYT5OOG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Detail King Black Cherry Car Wash Soap With Wax</a>
+## <a href="https://www.amazon.com/dp/B00XYT5OOG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Detail King Black Cherry Car Wash Soap With Wax</a>
 
 
-<a href="https://www.amazon.com/dp/B00XYT5OOG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Detail King Black Cherry Car Wash Soap with Wax - Car Wash Shampoo - Glossy Finish - Gallon" src="https://m.media-amazon.com/images/I/51yA5h9h8EL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00XYT5OOG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Detail King Black Cherry Car Wash Soap with Wax - Car Wash Shampoo - Glossy Finish - Gallon" src="https://m.media-amazon.com/images/I/51yA5h9h8EL._SL500_.jpg"/></a>
 
 
 The **Detail King Black Cherry Car Wash Soap with Wax** is ideal for car enthusiasts and everyday vehicle owners who want an effective, easy-to-use product that not only cleans but also adds a glossy finish to their car’s surface. If you are looking for a versatile car wash shampoo that combines cleaning power with the benefits of wax protection, this gallon-sized solution is perfect for maintaining your vehicle's shine while providing value for money.
@@ -228,10 +228,10 @@ The **Detail King Black Cherry Car Wash Soap with Wax** is designed with a dual-
 
 Additionally, the soap’s pleasant **black cherry fragrance** makes the washing process more enjoyable, encouraging regular car care routines. The gallon size ensures that you have plenty of product for numerous washes, making it a cost-effective choice for both individual car owners and professionals. Its compatibility with various paint finishes means it can be used confidently on different vehicles without risk of damage.
 
-## <a href="https://www.amazon.com/dp/B0007RVLCW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">3d Wash N Wax Car Wash Soap</a>
+## <a href="https://www.amazon.com/dp/B0007RVLCW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">3d Wash N Wax Car Wash Soap</a>
 
 
-<a href="https://www.amazon.com/dp/B0007RVLCW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="3D Wash N Wax Car Wash Soap - pH Balanced, Easy Rinse, Scratch Free Soap with Wax Protection - 1 Gallon" src="https://m.media-amazon.com/images/I/41e2L8KmppL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0007RVLCW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="3D Wash N Wax Car Wash Soap - pH Balanced, Easy Rinse, Scratch Free Soap with Wax Protection - 1 Gallon" src="https://m.media-amazon.com/images/I/41e2L8KmppL._SL500_.jpg"/></a>
 
 
 The **3D Wash N Wax Car Wash Soap** is ideal for car enthusiasts and everyday vehicle owners who want a convenient, effective, and safe solution to clean their cars. If you are looking for a product that not only cleans but also adds a layer of protection with minimal effort, this **1-gallon pH balanced soap** is perfect for you. It suits those who prefer an easy rinse formula that won't scratch or damage their vehicle's paint while providing wax protection.
@@ -254,10 +254,10 @@ The **3D Wash N Wax Car Wash Soap** features a carefully formulated pH balanced 
 
 Additionally, the easy rinse formula makes the washing process quicker and more efficient. Users will appreciate how the soap rinses off effortlessly without leaving residue or streaks, saving both water and time. The scratch-free feature ensures that even delicate surfaces like clear coats and metallic paints remain flawless after washing. Overall, this product combines cleaning power with paint protection, making it an excellent choice for anyone serious about car care.
 
-## <a href="https://www.amazon.com/dp/B0BG4ZBKCW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Weica Black Car Shampoo</a>
+## <a href="https://www.amazon.com/dp/B0BG4ZBKCW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Weica Black Car Shampoo</a>
 
 
-<a href="https://www.amazon.com/dp/B0BG4ZBKCW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="WEICA Black Car Shampoo - Deep Gloss Enhancer for Dark Vehicles, pH Safe for PPF/Ceramic Coated Surfaces, 16.9 fl oz" src="https://m.media-amazon.com/images/I/31qNKGNHtCL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BG4ZBKCW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="WEICA Black Car Shampoo - Deep Gloss Enhancer for Dark Vehicles, pH Safe for PPF/Ceramic Coated Surfaces, 16.9 fl oz" src="https://m.media-amazon.com/images/I/31qNKGNHtCL._SL500_.jpg"/></a>
 
 
 The **WEICA Black Car Shampoo** is ideal for car enthusiasts and owners of **dark-colored vehicles** who want to maintain a deep, glossy finish without damaging sensitive surfaces. It is especially suited for those with **paint protection film (PPF)** or **ceramic-coated cars**, as its pH-safe formula ensures effective cleaning without stripping protective layers. If you seek a reliable shampoo that enhances shine while preserving your vehicle’s delicate coatings, this product is an excellent choice.

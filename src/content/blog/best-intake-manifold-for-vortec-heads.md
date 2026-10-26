@@ -23,10 +23,10 @@ Intake manifolds vary by design, engine size, and RPM range. Selecting the right
 
 
 
-## <a href="https://www.amazon.com/dp/B0D4QSM7PT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jghyperx 2028 Intake Manifold Aluminum Dual Plane</a>
+## <a href="https://www.amazon.com/dp/B0D4QSM7PT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jghyperx 2028 Intake Manifold Aluminum Dual Plane</a>
 
 
-<a href="https://www.amazon.com/dp/B0D4QSM7PT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JGhyperX 2028 Intake Manifold Aluminum Dual Plane Compatible with Chevy Vortec air gap 7516 1996-up 1500-6500 RPM SBC 283 307 350 327 Natural" src="https://m.media-amazon.com/images/I/41ueMPZEUoL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D4QSM7PT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JGhyperX 2028 Intake Manifold Aluminum Dual Plane Compatible with Chevy Vortec air gap 7516 1996-up 1500-6500 RPM SBC 283 307 350 327 Natural" src="https://m.media-amazon.com/images/I/41ueMPZEUoL._SL500_.jpg"/></a>
 
 
 The **JGhyperX 2028 Intake Manifold Aluminum Dual Plane** is ideal for automotive enthusiasts and mechanics looking to upgrade their **Chevy Vortec engines** from 1996 and up. If you are seeking enhanced engine performance within the **1500-6500 RPM** range, especially for SBC models like **283, 307, 350, and 327**, this intake manifold offers a reliable and high-quality solution. It’s perfect for those who want to combine durability with improved airflow and power output in their Vortec-powered vehicles.
@@ -49,10 +49,10 @@ The **JGhyperX 2028 Intake Manifold** boasts a high-quality aluminum constructio
 
 Additionally, its compatibility with a variety of **Chevy Vortec engines** offers flexibility for those upgrading or rebuilding their engines. The intake manifold’s precise dimensions ensure easy installation within most engine compartments, reducing the need for extensive modifications. Overall, the JGhyperX 2028 provides a balanced combination of performance enhancement and reliability, making it a worthy upgrade for anyone aiming to boost their Vortec engine's potential.
 
-## <a href="https://www.amazon.com/dp/B0D4QGWDNZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jghyperx 7501 Vortec Air-gap Intake Manifold Aluminum Dual Plane</a>
+## <a href="https://www.amazon.com/dp/B0D4QGWDNZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jghyperx 7501 Vortec Air-gap Intake Manifold Aluminum Dual Plane</a>
 
 
-<a href="https://www.amazon.com/dp/B0D4QGWDNZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JGhyperX 7501 2026 vortec air-gap Intake Manifold Aluminum Dual Plane Compatible with Chevy Small Block SBC 1955-86 262 265 267 283 302 305 307 327 350 400 V8 Engine Silver" src="https://m.media-amazon.com/images/I/41gcxsrx1LL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D4QGWDNZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JGhyperX 7501 2026 vortec air-gap Intake Manifold Aluminum Dual Plane Compatible with Chevy Small Block SBC 1955-86 262 265 267 283 302 305 307 327 350 400 V8 Engine Silver" src="https://m.media-amazon.com/images/I/41gcxsrx1LL._SL500_.jpg"/></a>
 
 
 The **JGhyperX 7501 2026 Vortec Air-Gap Intake Manifold** is ideal for automotive enthusiasts and mechanics who own or work on classic Chevy Small Block engines from 1955 to 1986. If you are looking to enhance the performance of your **262, 265, 267, 283, 302, 305, 307, 327, 350, or 400 V8 engine**, this **aluminum dual plane intake manifold** offers an excellent upgrade for improved airflow and engine efficiency.
@@ -75,10 +75,10 @@ The **JGhyperX 7501 2026 Vortec Air-Gap Intake Manifold** stands out with its we
 
 Constructed from lightweight yet robust **aluminum**, this manifold offers improved heat dissipation compared to traditional cast iron options. Its **dual plane design** ensures better fuel distribution and optimized airflow, which benefits acceleration and throttle response. Additionally, the precise dimensions (Height: 6.7 inches, Width: 10.63 inches, Length: 21.66 inches) make it a great fit for a variety of Chevy Small Block engines, ensuring compatibility and ease of integration into your build.
 
-## <a href="https://www.amazon.com/dp/B0BTPKG93D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">A-premium Engine Aluminum Dual Plane Intake Manifold</a>
+## <a href="https://www.amazon.com/dp/B0BTPKG93D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">A-premium Engine Aluminum Dual Plane Intake Manifold</a>
 
 
-<a href="https://www.amazon.com/dp/B0BTPKG93D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="A-Premium Engine Aluminum Dual Plane Intake Manifold Compatible with GM Vortec E-Tech Heads Small Block SBC Gen I, 8Cyl 5.0L 305 &amp; 5.7L 350-1996, 1500-6500 RPM" src="https://m.media-amazon.com/images/I/41PARMlqNcL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BTPKG93D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="A-Premium Engine Aluminum Dual Plane Intake Manifold Compatible with GM Vortec E-Tech Heads Small Block SBC Gen I, 8Cyl 5.0L 305 &amp; 5.7L 350-1996, 1500-6500 RPM" src="https://m.media-amazon.com/images/I/41PARMlqNcL._SL500_.jpg"/></a>
 
 
 The **A-Premium Engine Aluminum Dual Plane Intake Manifold** is ideal for automotive enthusiasts and mechanics who own or work on GM Vortec E-Tech Heads Small Block SBC Gen I engines, specifically the 8-cylinder 5.0L 305 & 5.7L 350 models from 1996. If you are looking to enhance your engine’s performance within the 1500-6500 RPM range, this intake manifold offers a reliable and efficient solution that balances power and durability.
@@ -101,10 +101,10 @@ The **A-Premium Engine Aluminum Dual Plane Intake Manifold** boasts a robust alu
 
 Thanks to its precise compatibility with **GM Vortec E-Tech Heads**, this intake manifold ensures a seamless fit, reducing installation headaches and improving reliability. It supports a broad RPM range of 1500-6500, which covers most street and light racing applications, providing a noticeable improvement in throttle response and power delivery. Whether you’re upgrading your 5.0L 305 or 5.7L 350 engine, this manifold offers a balanced performance boost without sacrificing drivability.
 
-## <a href="https://www.amazon.com/dp/B09Z6KXBC7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">A-premium Aluminum Dual Plane Intake Manifold</a>
+## <a href="https://www.amazon.com/dp/B09Z6KXBC7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">A-premium Aluminum Dual Plane Intake Manifold</a>
 
 
-<a href="https://www.amazon.com/dp/B09Z6KXBC7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="A-Premium Aluminum Dual Plane Intake Manifold Compatible with Chevy Vortec SBC V8 283 307 350 327, GMC, Chevy, Cadillac Vehicles -96-02 - C/K Class, Yukon, Express &amp; More full-size, 1500-6500 RPM" src="https://m.media-amazon.com/images/I/412L67oCCCL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09Z6KXBC7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="A-Premium Aluminum Dual Plane Intake Manifold Compatible with Chevy Vortec SBC V8 283 307 350 327, GMC, Chevy, Cadillac Vehicles -96-02 - C/K Class, Yukon, Express &amp; More full-size, 1500-6500 RPM" src="https://m.media-amazon.com/images/I/412L67oCCCL._SL500_.jpg"/></a>
 
 
 The **A-Premium Aluminum Dual Plane Intake Manifold** is ideal for car enthusiasts and mechanics looking to enhance the performance of their **Chevy Vortec SBC V8** engines. If you own a **GMC, Chevy, or Cadillac** vehicle from the years **1996-2002** and are aiming to achieve improved horsepower and torque within a **1500-6500 RPM** range, this product is well-suited for you. Whether you're a passionate DIY mechanic or a professional in the automotive industry, this intake manifold is designed to meet your high-performance needs.
@@ -125,10 +125,10 @@ The **A-Premium Aluminum Dual Plane Intake Manifold** offers a significant boost
 
 Constructed from **durable aluminum**, this intake manifold is built to withstand the demands of high-performance driving. Its compatibility with a range of **Chevy Vortec SBC V8** engines means that whether you're driving a **C/K Class, Yukon, or Express**, you can expect enhanced reliability and performance. While installation might require some professional expertise, the performance gains make it a worthwhile investment for any car enthusiast looking to optimize their vehicle.
 
-## <a href="https://www.amazon.com/dp/B0CC89TRL7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Woosphy Carbureted Dual Plane Intake Manifold Replacement</a>
+## <a href="https://www.amazon.com/dp/B0CC89TRL7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Woosphy Carbureted Dual Plane Intake Manifold Replacement</a>
 
 
-<a href="https://www.amazon.com/dp/B0CC89TRL7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Woosphy Carbureted Dual Plane Intake Manifold Replacement for Chevy Small Block Vortec Engine V8 5.0L/305 V8 5.7L/350 1996-2002 2007" src="https://m.media-amazon.com/images/I/41qlWljlkeL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CC89TRL7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Woosphy Carbureted Dual Plane Intake Manifold Replacement for Chevy Small Block Vortec Engine V8 5.0L/305 V8 5.7L/350 1996-2002 2007" src="https://m.media-amazon.com/images/I/41qlWljlkeL._SL500_.jpg"/></a>
 
 
 The **Woosphy Carbureted Dual Plane Intake Manifold Replacement** is ideal for automotive enthusiasts and mechanics who own or work on **Chevy Small Block Vortec Engines**, specifically the **V8 5.0L/305** and **V8 5.7L/350** models from 1996 to 2002 and 2007. If you are looking to enhance your engine’s performance with a reliable and direct replacement part, this intake manifold is designed to fit perfectly and deliver improved airflow and efficiency.
@@ -150,10 +150,10 @@ The **Woosphy Carbureted Dual Plane Intake Manifold** is engineered to optimize 
 
 Additionally, the manifold is constructed from high-quality materials by **Woosphy**, ensuring durability and reliability under demanding conditions. By improving airflow and maintaining proper engine temperatures, this intake manifold contributes to better combustion efficiency and overall engine performance. For those seeking a straightforward upgrade or replacement part tailored to their Chevy V8 engines, this product offers a balance of performance enhancement and ease of installation.
 
-## <a href="https://www.amazon.com/dp/B0DDXSXHS2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Vortec Single Plane High Rise Intake Manifold Replacement For Chevy Sbc 350</a>
+## <a href="https://www.amazon.com/dp/B0DDXSXHS2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Vortec Single Plane High Rise Intake Manifold Replacement For Chevy Sbc 350</a>
 
 
-<a href="https://www.amazon.com/dp/B0DDXSXHS2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Vortec Single Plane High Rise Intake Manifold Replacement for Chevy SBC 350 3000-7500+ RPM # PC2033 52033# 413319A-4440" src="https://m.media-amazon.com/images/I/41qhwrJCo7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DDXSXHS2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Vortec Single Plane High Rise Intake Manifold Replacement for Chevy SBC 350 3000-7500+ RPM # PC2033 52033# 413319A-4440" src="https://m.media-amazon.com/images/I/41qhwrJCo7L._SL500_.jpg"/></a>
 
 
 The **Vortec Single Plane High Rise Intake Manifold Replacement** is ideal for automotive enthusiasts and mechanics seeking to enhance the performance of their **Chevy SBC 350** engines, especially those operating within the **3000-7500+ RPM** range. This product is perfect for individuals aiming to boost horsepower and torque for racing, street performance, or restoration projects. If you want a reliable upgrade that promises improved airflow and engine efficiency, this intake manifold by **Bario** is a solid choice.
@@ -176,10 +176,10 @@ The **Vortec Single Plane High Rise Intake Manifold** offers a streamlined path 
 
 Additionally, the intake manifold’s precise engineering by **Bario** ensures a quality build that fits seamlessly onto the **Chevy SBC 350** without compromising reliability. Users will notice improved engine breathing, which not only boosts performance but can also enhance fuel atomization for cleaner combustion. While it may require some tuning post-installation, the manifold’s benefits outweigh these minor adjustments, making it a valuable upgrade for serious performance enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B09XDV4T92?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Aluminum Small Block Chevy Sbc Intake Manifold Vortec Dual Plane 350 383 327</a>
+## <a href="https://www.amazon.com/dp/B09XDV4T92?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Aluminum Small Block Chevy Sbc Intake Manifold Vortec Dual Plane 350 383 327</a>
 
 
-<a href="https://www.amazon.com/dp/B09XDV4T92?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Aluminum Small Block Chevy SBC Intake Manifold Vortec Dual Plane 350 383 327 1997-up Idle-6500 RPM, DM-3202H" src="https://m.media-amazon.com/images/I/31mfhenWvNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09XDV4T92?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Aluminum Small Block Chevy SBC Intake Manifold Vortec Dual Plane 350 383 327 1997-up Idle-6500 RPM, DM-3202H" src="https://m.media-amazon.com/images/I/31mfhenWvNL._SL500_.jpg"/></a>
 
 
 The **Aluminum Small Block Chevy SBC Intake Manifold Vortec Dual Plane 350 383 327 1997-up Idle-6500 RPM, DM-3202H** is ideal for automotive enthusiasts and mechanics looking to enhance the performance of their **Small Block Chevy engines**. This product is perfect for those who want a reliable upgrade for engines ranging from **327 to 383 cubic inches** in vehicles manufactured from **1997 and onward**. If you are seeking improved airflow, better throttle response, and increased horsepower for your classic or modern Chevy engine, this intake manifold fits the bill.
@@ -202,10 +202,10 @@ This **intake manifold** features a well-engineered **dual plane** design that e
 
 Designed specifically for **Small Block Chevy engines** like the 350, 383, and 327, this intake manifold supports a wide RPM range from idle up to 6500 RPM, making it versatile for both everyday driving and spirited performance. Users will notice improved acceleration and better fuel atomization, resulting in smoother throttle response and potentially better fuel economy. This product is a solid choice for those aiming to maintain reliability while upgrading engine performance.
 
-## <a href="https://www.amazon.com/dp/B0D4Q1FV2R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jghyperx 2007 Intake Manifold Aluminum Dual Plane</a>
+## <a href="https://www.amazon.com/dp/B0D4Q1FV2R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jghyperx 2007 Intake Manifold Aluminum Dual Plane</a>
 
 
-<a href="https://www.amazon.com/dp/B0D4Q1FV2R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JGhyperX 2007 Intake Manifold Aluminum Dual Plane Compatible with Chevy Vortec SBC Small Block 1996-2002 V8 305/5.0L 350/5.7L RPM Idle-5,500" src="https://m.media-amazon.com/images/I/41We89avtJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D4Q1FV2R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JGhyperX 2007 Intake Manifold Aluminum Dual Plane Compatible with Chevy Vortec SBC Small Block 1996-2002 V8 305/5.0L 350/5.7L RPM Idle-5,500" src="https://m.media-amazon.com/images/I/41We89avtJL._SL500_.jpg"/></a>
 
 
 The **JGhyperX 2007 Intake Manifold Aluminum Dual Plane** is ideal for automotive enthusiasts and mechanics who own a **Chevy Vortec SBC Small Block** engine from 1996-2002. Specifically designed for **V8 305/5.0L** and **350/5.7L** engines, this intake manifold suits those looking to enhance engine performance, improve throttle response, and maintain reliable RPM idle control up to 5,500. If you want a durable, high-quality manifold to optimize your vehicle’s air intake system, this product is a perfect choice.
@@ -228,10 +228,10 @@ The **JGhyperX 2007 Intake Manifold** features a precise **dual plane aluminum c
 
 Installation of this intake manifold is simplified by its tailored dimensions and compatibility with 1996-2002 **V8 305/5.0L and 350/5.7L engines**. Users will appreciate the improved throttle response and stable RPM idle performance up to 5,500 RPM, which translates into smoother acceleration and better drivability. Overall, this manifold is a smart upgrade for those seeking a balance between power gains and engine reliability in their Chevy small block engines.
 
-## <a href="https://www.amazon.com/dp/B0CHB54H1K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ls Intake Manifold Compatible For Chevy 4.8l 5.3l 5.7l 6.0l Ls Cathedral Port Heads 102mm Black</a>
+## <a href="https://www.amazon.com/dp/B0CHB54H1K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ls Intake Manifold Compatible For Chevy 4.8l 5.3l 5.7l 6.0l Ls Cathedral Port Heads 102mm Black</a>
 
 
-<a href="https://www.amazon.com/dp/B0CHB54H1K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="LS LS1 LS2 LS3 LS6 Intake Manifold Compatible for Chevy 4.8L 5.3L 5.7L 6.0L Intake Manifold for LS Cathedral Port Heads 102mm Black" src="https://m.media-amazon.com/images/I/41y6GDea0uL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CHB54H1K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="LS LS1 LS2 LS3 LS6 Intake Manifold Compatible for Chevy 4.8L 5.3L 5.7L 6.0L Intake Manifold for LS Cathedral Port Heads 102mm Black" src="https://m.media-amazon.com/images/I/41y6GDea0uL._SL500_.jpg"/></a>
 
 
 The **LS LS1 LS2 LS3 LS6 Intake Manifold** is ideal for automotive enthusiasts and mechanics looking to upgrade their **Chevy 4.8L, 5.3L, 5.7L, or 6.0L engines**. Specifically designed for LS Cathedral Port Heads with a **102mm** throttle body opening, this **black intake manifold** suits those seeking enhanced engine performance, improved airflow, and a reliable aftermarket replacement.
@@ -254,10 +254,10 @@ This **intake manifold** boasts a design that improves airflow efficiency, direc
 
 Constructed with durability in mind, the **PUZZLEDEER LS intake manifold** also features a sleek black finish that not only protects against rust and corrosion but adds a professional look under the hood. Its precise dimensions guarantee a snug fit, simplifying the installation process for those familiar with LS engine components. Overall, this intake manifold is a practical choice for anyone aiming to improve engine efficiency and aesthetics in their Chevy LS engine setup.
 
-## <a href="https://www.amazon.com/dp/B07PNQX32X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">4.3l 262 Cid 2 Barrel Vortec Marine Intake Manifold Assembly</a>
+## <a href="https://www.amazon.com/dp/B07PNQX32X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">4.3l 262 Cid 2 Barrel Vortec Marine Intake Manifold Assembly</a>
 
 
-<a href="https://www.amazon.com/dp/B07PNQX32X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="New 4.3L, 262 CID 2 barrel Vortec Marine Intake Manifold Assembly. Replaces Mercruiser 824324T02, Volvo Penta 3855805" src="https://m.media-amazon.com/images/I/51YbZw5OAhL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07PNQX32X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="New 4.3L, 262 CID 2 barrel Vortec Marine Intake Manifold Assembly. Replaces Mercruiser 824324T02, Volvo Penta 3855805" src="https://m.media-amazon.com/images/I/51YbZw5OAhL._SL500_.jpg"/></a>
 
 
 The **New 4.3L, 262 CID 2 barrel Vortec Marine Intake Manifold Assembly** is ideal for boat owners and marine engine enthusiasts looking to replace or upgrade their existing intake manifold. Specifically designed to fit engines that require a replacement for the **Mercruiser 824324T02** or **Volvo Penta 3855805**, this product is perfect for those who want reliable performance and compatibility with popular marine engine models.

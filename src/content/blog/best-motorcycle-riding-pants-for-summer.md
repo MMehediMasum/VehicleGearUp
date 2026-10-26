@@ -23,10 +23,10 @@ Features like water resistance and multiple pockets add practicality for everyda
 
 
 
-## <a href="https://www.amazon.com/dp/B0BTJCKTFQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wicked Stock Motorcycle Pants</a>
+## <a href="https://www.amazon.com/dp/B0BTJCKTFQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wicked Stock Motorcycle Pants</a>
 
 
-<a href="https://www.amazon.com/dp/B0BTJCKTFQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WICKED STOCK Motorcycle Pants - Men's CE Level 2 Armored Riding Jeans - Light Blue" src="https://m.media-amazon.com/images/I/31soY2SNfaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BTJCKTFQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WICKED STOCK Motorcycle Pants - Men's CE Level 2 Armored Riding Jeans - Light Blue" src="https://m.media-amazon.com/images/I/31soY2SNfaL._SL500_.jpg"/></a>
 
 
 The **WICKED STOCK Motorcycle Pants** in **Light Blue** are ideal for men who prioritize both safety and style while riding. These pants are perfect for riders seeking durable protection without sacrificing comfort or a modern look. If you are a motorcyclist who values certified armor and everyday wearability, these **CE Level 2 Armored Riding Jeans** are designed to meet your needs.
@@ -47,10 +47,10 @@ These **motorcycle pants** combine the ruggedness of traditional riding gear wit
 
 Crafted by **WICKED STOCK**, the pants feature durable materials that withstand abrasion while maintaining a stylish aesthetic. The **light blue color** adds a fresh twist to typical motorcycle apparel, appealing to those who want to express individuality without compromising on protection. Overall, these pants provide a balanced mix of safety, style, and comfort for the modern motorcyclist.
 
-## <a href="https://www.amazon.com/dp/B0821BVV73?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hwk Waterproof Motorcycle Cargo Pants</a>
+## <a href="https://www.amazon.com/dp/B0821BVV73?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hwk Waterproof Motorcycle Cargo Pants</a>
 
 
-<a href="https://www.amazon.com/dp/B0821BVV73?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img src="https://m.media-amazon.com/images/I/41anB0BLrtL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0821BVV73?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img src="https://m.media-amazon.com/images/I/41anB0BLrtL._SL500_.jpg"/></a>
 
 
 The **HWK Waterproof Motorcycle Cargo Pants** are ideal for avid motorcyclists who prioritize both safety and convenience during their rides. Perfect for men with a waist size of 34"-36" and an inseam of 34", these pants cater to riders seeking durable, high-visibility gear that offers protection and practical storage options. Whether you're commuting daily or embarking on long-distance trips, these pants are designed to keep you comfortable and secure in varying weather conditions.
@@ -72,10 +72,10 @@ These **motorcycle riding pants** feature a robust construction with **waterproo
 
 Additionally, the multiple **cargo pockets** offer ample storage space, enabling riders to carry necessary items like tools, keys, or phones securely while on the road. The pants’ machine washable design simplifies cleaning after long rides, maintaining their appearance and functionality over time. Overall, the HWK Waterproof Motorcycle Cargo Pants are a versatile and protective choice for serious riders who demand both practicality and safety from their gear.
 
-## <a href="https://www.amazon.com/dp/B0B319PB74?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ctbqitom Men's Motorcycle Pants</a>
+## <a href="https://www.amazon.com/dp/B0B319PB74?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ctbqitom Men's Motorcycle Pants</a>
 
 
-<a href="https://www.amazon.com/dp/B0B319PB74?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CTBQiTom Men's Motorcycle Pants Motocross Riding Jeans Adventure Trousers Motorbike Pants with Knee and Hip CE Armor Protector Pads,Black,M=32 Regular" src="https://m.media-amazon.com/images/I/51Ga9JZ7nqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B319PB74?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CTBQiTom Men's Motorcycle Pants Motocross Riding Jeans Adventure Trousers Motorbike Pants with Knee and Hip CE Armor Protector Pads,Black,M=32 Regular" src="https://m.media-amazon.com/images/I/51Ga9JZ7nqL._SL500_.jpg"/></a>
 
 
 The **CTBQiTom Men's Motorcycle Pants** are ideal for avid motorcyclists and adventure riders who prioritize both safety and comfort. These pants are perfect for those seeking durable motocross riding jeans with reliable protection for their knees and hips during long rides or off-road adventures.
@@ -97,10 +97,10 @@ The **CTBQiTom Men's Motorcycle Pants** combine functionality and safety, featur
 
 Constructed by **CTBQiTom**, these pants use high-quality materials to provide durability without sacrificing comfort. The black color offers a stylish appearance that pairs well with most riding gear, while the regular fit ensures ease of movement during rides. Overall, these pants deliver a perfect balance of safety, style, and practicality for motorcycle enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B0CDM9XKFV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wicked Stock Men's Summer Motorcycle Pants</a>
+## <a href="https://www.amazon.com/dp/B0CDM9XKFV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wicked Stock Men's Summer Motorcycle Pants</a>
 
 
-<a href="https://www.amazon.com/dp/B0CDM9XKFV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WICKED STOCK Men's Summer Motorcycle Pants-44 inch Waist, Black, CE Rated Armor, Mesh, All Seasons, Reflective" src="https://m.media-amazon.com/images/I/31fyKnJxmUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CDM9XKFV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WICKED STOCK Men's Summer Motorcycle Pants-44 inch Waist, Black, CE Rated Armor, Mesh, All Seasons, Reflective" src="https://m.media-amazon.com/images/I/31fyKnJxmUL._SL500_.jpg"/></a>
 
 
 The **WICKED STOCK Men's Summer Motorcycle Pants** are ideal for avid motorcyclists who seek both safety and comfort during warm-weather rides. If you have a **44 inch waist** and want gear that offers **CE Rated Armor** protection, breathable **mesh fabric**, and reflective elements for enhanced visibility, these pants are designed for you. Suitable for **all seasons**, they cater especially well to riders who prioritize durability without sacrificing ventilation.
@@ -122,10 +122,10 @@ These motorcycle pants from **WICKED STOCK** combine functionality with protecti
 
 Additionally, the reflective elements incorporated into the design enhance visibility during low-light conditions, adding an extra layer of safety. The pants’ adaptability to **all seasons** makes them a practical choice for riders looking for consistent performance throughout the year. Overall, these pants offer a balanced blend of protection, comfort, and style for motorcycle enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B0BTTNCF94?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wicked Stock Mesh Motorcycle Pants</a>
+## <a href="https://www.amazon.com/dp/B0BTTNCF94?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wicked Stock Mesh Motorcycle Pants</a>
 
 
-<a href="https://www.amazon.com/dp/B0BTTNCF94?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WICKED STOCK Mesh Motorcycle Pants - Motocross Pants with Armor - CE LEVEL2 - Dirt Bike Grey Black" src="https://m.media-amazon.com/images/I/31IBo6oxxVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BTTNCF94?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WICKED STOCK Mesh Motorcycle Pants - Motocross Pants with Armor - CE LEVEL2 - Dirt Bike Grey Black" src="https://m.media-amazon.com/images/I/31IBo6oxxVL._SL500_.jpg"/></a>
 
 
 The **WICKED STOCK Mesh Motorcycle Pants** are an excellent choice for avid **motorcyclists** and **motocross enthusiasts** who require high-quality protective gear. These pants are specifically designed for those who prioritize **safety** and **comfort** during their rides, making them ideal for both **casual riders** and **off-road adventurers**. If you frequently find yourself exploring rugged terrains or simply enjoy long rides, these pants should be a staple in your motorcycle gear collection.
@@ -146,10 +146,10 @@ The **WICKED STOCK Mesh Motorcycle Pants** feature **CE LEVEL2 Armor** integrate
 
 In addition to their protective capabilities, these pants are built with a **durable construction** that withstands the rigors of off-road riding. The **adjustable features** allow for a customized fit, accommodating various body shapes and sizes for enhanced comfort. While the **grey black color** adds a sleek look, the limited color options may not appeal to everyone. However, the performance benefits far outweigh this minor drawback, making these pants a top contender for any serious motorcyclist or motocross rider.
 
-## <a href="https://www.amazon.com/dp/B07LGWKJFX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hwk Motorcycle Pants For Men And Women</a>
+## <a href="https://www.amazon.com/dp/B07LGWKJFX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hwk Motorcycle Pants For Men And Women</a>
 
 
-<a href="https://www.amazon.com/dp/B07LGWKJFX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img src="https://m.media-amazon.com/images/I/31YdNUjfGxL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07LGWKJFX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img src="https://m.media-amazon.com/images/I/31YdNUjfGxL._SL500_.jpg"/></a>
 
 
 The **HWK Motorcycle Pants** are ideal for both men and women who are passionate about **enduro motocross** and **dual sport motorbike riding**. Riders seeking durable, comfortable, and protective gear that can withstand tough riding conditions and provide impact protection will find these pants an excellent choice. Especially suited for those with a **40"-42" waist** and **34" inseam**, these pants offer a tailored fit for enhanced comfort and performance.
@@ -171,10 +171,10 @@ The **HWK Motorcycle Pants** feature a robust **Cordura textile fabric** that is
 
 Additionally, the pants' design caters to both men and women, providing a balanced fit that supports an active riding posture. The **dual sport** nature of these pants means they are functional for both off-road adventures and on-road commuting, offering versatility for riders who enjoy varied riding experiences. The **black color** adds a sleek, professional look that complements other gear, while the specified waist and inseam measurements ensure a snug, comfortable fit for the targeted rider group.
 
-## <a href="https://www.amazon.com/dp/B07X5NJTRV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Motorcycle Pants For Men Dual Sport Motorbike Pant</a>
+## <a href="https://www.amazon.com/dp/B07X5NJTRV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Motorcycle Pants For Men Dual Sport Motorbike Pant</a>
 
 
-<a href="https://www.amazon.com/dp/B07X5NJTRV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Motorcycle Pants for Men Dual Sport Motorbike Pant Waterproof, Windproof Riding Pants All-Weather with Removable CE Armored Black - Waist 34" src="https://m.media-amazon.com/images/I/41N6BQWiyEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07X5NJTRV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Motorcycle Pants for Men Dual Sport Motorbike Pant Waterproof, Windproof Riding Pants All-Weather with Removable CE Armored Black - Waist 34" src="https://m.media-amazon.com/images/I/41N6BQWiyEL._SL500_.jpg"/></a>
 
 
 The **Motorcycle Pants for Men Dual Sport Motorbike Pant Waterproof, Windproof Riding Pants All-Weather with Removable CE Armored Black - Waist 34" - Inseam 34"** are ideal for avid motorcyclists who seek reliable protection and comfort in various weather conditions. These pants are perfect for riders who frequently encounter rain, wind, or cooler temperatures and want durable gear that enhances safety without compromising mobility. If you are someone who values both performance and protection on your dual sport or motorbike adventures, these pants are designed specifically for you.
@@ -196,10 +196,10 @@ These **Motorcycle Pants for Men** feature durable, waterproof, and windproof fa
 
 Crafted by **Defy Sports**, a brand that challenges fear with innovative gear, these pants deliver quality and performance. The all-weather capability means you can confidently ride through rain or shine, knowing your gear will keep you dry and shielded from wind chill. The sleek black design not only looks professional but also pairs well with other riding equipment. Overall, these pants are a smart investment for riders who demand safety, comfort, and durability in a versatile package.
 
-## <a href="https://www.amazon.com/dp/B09SBP7HKR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Noru Kuro Leather Motorcycle Pants</a>
+## <a href="https://www.amazon.com/dp/B09SBP7HKR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Noru Kuro Leather Motorcycle Pants</a>
 
 
-<a href="https://www.amazon.com/dp/B09SBP7HKR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Noru Kuro Leather Motorcycle Pants Black" src="https://m.media-amazon.com/images/I/31KhBT-PXwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09SBP7HKR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Noru Kuro Leather Motorcycle Pants Black" src="https://m.media-amazon.com/images/I/31KhBT-PXwL._SL500_.jpg"/></a>
 
 
 The **Noru Kuro Leather Motorcycle Pants Black** are ideal for motorcycle enthusiasts who value both style and protection on the road. These pants are perfect for riders seeking durable and comfortable gear that enhances safety without compromising on a sleek, modern look. If you want premium quality leather pants that can withstand the rigors of riding while keeping you comfortable, this product is an excellent choice.
@@ -222,10 +222,10 @@ The **Noru Kuro Leather Motorcycle Pants Black** feature premium-grade leather t
 
 Designed with the rider's comfort in mind, these pants offer a snug yet comfortable fit that reduces fatigue during long rides. The leather material naturally adapts to the wearer’s body over time, enhancing comfort without sacrificing safety. Additionally, the pants’ abrasion resistance helps safeguard riders against potential injuries, making them a reliable choice for both casual and serious motorcyclists alike.
 
-## <a href="https://www.amazon.com/dp/B0D4MDGSWP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jag Motorcycle Protective Pants</a>
+## <a href="https://www.amazon.com/dp/B0D4MDGSWP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jag Motorcycle Protective Pants</a>
 
 
-<a href="https://www.amazon.com/dp/B0D4MDGSWP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JAG Motorcycle Protective Pants - Dual Sport Motocross Pants with Armor Impact Protection &amp; Water Resistant Cordura Fabric (US, Waist Inseam, 42, 32, Regular, Regular, Black)" src="https://m.media-amazon.com/images/I/41VnT3+u-CL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D4MDGSWP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JAG Motorcycle Protective Pants - Dual Sport Motocross Pants with Armor Impact Protection &amp; Water Resistant Cordura Fabric (US, Waist Inseam, 42, 32, Regular, Regular, Black)" src="https://m.media-amazon.com/images/I/41VnT3+u-CL._SL500_.jpg"/></a>
 
 
 These **JAG Motorcycle Protective Pants** are ideal for riders who engage in dual sport or motocross activities and seek reliable protection combined with comfort. Perfect for those who need durable gear that can withstand rough terrains while providing essential armor impact protection and water resistance, these pants suit both casual riders and serious off-road enthusiasts.
@@ -248,10 +248,10 @@ The **JAG Motorcycle Protective Pants** combine robust **Cordura fabric** with s
 
 Additionally, the pants' dual sport and motocross-specific design means they accommodate the movements and demands of off-road motorcycling. The durable construction means these pants can endure abrasive surfaces and frequent use, giving riders confidence in their gear’s longevity. Overall, these pants offer a compelling blend of safety, comfort, and functionality for serious motorcycle enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B07Q7VT93X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Men Women Motorcycle Riding Jeans Protective Pants Knight Hockey Biker Armor Pants</a>
+## <a href="https://www.amazon.com/dp/B07Q7VT93X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Men Women Motorcycle Riding Jeans Protective Pants Knight Hockey Biker Armor Pants</a>
 
 
-<a href="https://www.amazon.com/dp/B07Q7VT93X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Men Women Motorcycle Riding Jeans Protective Pants Knight Hockey Biker Armor Pants (M=30, Army Green)" src="https://m.media-amazon.com/images/I/41yK-KwLCEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07Q7VT93X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Men Women Motorcycle Riding Jeans Protective Pants Knight Hockey Biker Armor Pants (M=30, Army Green)" src="https://m.media-amazon.com/images/I/41yK-KwLCEL._SL500_.jpg"/></a>
 
 
 If you're an avid motorcycle enthusiast or a frequent rider who values both **safety** and **style**, the Men Women Motorcycle Riding Jeans Protective Pants Knight Hockey Biker Armor Pants are crafted just for you. Designed for those who spend a lot of time on their bikes, these pants offer a blend of **protection**, **comfort**, and **fashion**, making them an ideal choice for both casual riders and professional bikers.

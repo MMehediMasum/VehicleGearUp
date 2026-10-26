@@ -22,10 +22,10 @@ These features help you work under your truck with confidence. Whether for home 
 
 
 
-## <a href="https://www.amazon.com/dp/B0CW2ZWHJG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tonda Jack Stands</a>
+## <a href="https://www.amazon.com/dp/B0CW2ZWHJG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tonda Jack Stands</a>
 
 
-<a href="https://www.amazon.com/dp/B0CW2ZWHJG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="TONDA Jack Stands 3 Ton, Extra Tall Heavy Duty Car Jack Stand, 13.39-21.06 inch Adjustable Height for SUV, MPV and UTV/ATV, Black, 1 Pair" src="https://m.media-amazon.com/images/I/31xDQtlqXAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CW2ZWHJG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="TONDA Jack Stands 3 Ton, Extra Tall Heavy Duty Car Jack Stand, 13.39-21.06 inch Adjustable Height for SUV, MPV and UTV/ATV, Black, 1 Pair" src="https://m.media-amazon.com/images/I/31xDQtlqXAL._SL500_.jpg"/></a>
 
 
 The **TONDA Jack Stands 3 Ton** are ideal for car enthusiasts, mechanics, and SUV or MPV owners who require reliable and sturdy support while performing vehicle maintenance or repairs. These jack stands are perfect for those who work on heavier vehicles like UTVs, ATVs, and larger SUVs, needing extra tall and adjustable height options for safe and convenient lifting.
@@ -47,10 +47,10 @@ The **TONDA Jack Stands** feature a robust build quality designed to handle heav
 
 Additionally, the extra tall design enhances accessibility underneath taller vehicles, allowing for more comfortable working positions and better maneuverability. The high-grade black finish not only adds a professional look but also protects the stands from rust and wear, extending their lifespan. Overall, these jack stands offer a reliable and practical solution for anyone needing heavy-duty support with adjustable height capabilities.
 
-## <a href="https://www.amazon.com/dp/B0C8B5QRJS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Vevor Jack Stands</a>
+## <a href="https://www.amazon.com/dp/B0C8B5QRJS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Vevor Jack Stands</a>
 
 
-<a href="https://www.amazon.com/dp/B0C8B5QRJS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="VEVOR Jack Stands, 6 Ton (13,000 lbs) Capacity Car Jack Stands Double Locking, 14.2-23 inch Adjustable Height, for lifting SUV, Pickup Truck, Car and UTV/ATV, Red, 1 Pair" src="https://m.media-amazon.com/images/I/41+e-6-81wL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C8B5QRJS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="VEVOR Jack Stands, 6 Ton (13,000 lbs) Capacity Car Jack Stands Double Locking, 14.2-23 inch Adjustable Height, for lifting SUV, Pickup Truck, Car and UTV/ATV, Red, 1 Pair" src="https://m.media-amazon.com/images/I/41+e-6-81wL._SL500_.jpg"/></a>
 
 
 The **VEVOR Jack Stands** with a **6 Ton (13,000 lbs) capacity** are ideal for vehicle owners who frequently perform maintenance or repairs on their **SUVs, pickup trucks, cars, or UTV/ATVs**. Whether you are a professional mechanic or a DIY enthusiast, these jack stands provide reliable support and safety when lifting heavy vehicles, making them essential for anyone needing a sturdy and adjustable lifting solution.
@@ -72,10 +72,10 @@ The **VEVOR Jack Stands** feature a robust design with a wide base and a **doubl
 
 Additionally, the jack stands are constructed from high-quality materials that provide durability and long-lasting performance. The bright **red color** enhances visibility in the garage or workspace, reducing the risk of accidents. With dimensions designed for stability and a weight that balances portability with sturdiness, these stands are an excellent investment for those who prioritize safety and efficiency when working on their vehicles.
 
-## <a href="https://www.amazon.com/dp/B0753MMRN7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Amazon Basics Steel Jack Auto Stands</a>
+## <a href="https://www.amazon.com/dp/B0753MMRN7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Amazon Basics Steel Jack Auto Stands</a>
 
 
-<a href="https://www.amazon.com/dp/B0753MMRN7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Amazon Basics Steel Jack Auto Stands with 6,000 lb or 3 Ton (2.7 metric Ton) Capacity, 1 Pair, Black and Red" src="https://m.media-amazon.com/images/I/41TSMV3ybGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0753MMRN7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Amazon Basics Steel Jack Auto Stands with 6,000 lb or 3 Ton (2.7 metric Ton) Capacity, 1 Pair, Black and Red" src="https://m.media-amazon.com/images/I/41TSMV3ybGL._SL500_.jpg"/></a>
 
 
 The **Amazon Basics Steel Jack Auto Stands** with a **6,000 lb (3 Ton) capacity** are ideal for vehicle owners, mechanics, and DIY enthusiasts who require reliable and sturdy support for their vehicles during maintenance or repair work. If you need a durable and safe solution to hold your vehicle in place while working underneath, this product is designed for you.
@@ -98,10 +98,10 @@ These **Amazon Basics Steel Jack Auto Stands** are engineered with robust steel,
 
 The stands’ high weight capacity of **6,000 lbs** ensures compatibility with most cars and light trucks, offering peace of mind during repairs. Additionally, the combination of black and red colors enhances visibility in busy workspaces, helping users quickly locate and position the stands safely. Overall, these stands balance strength, convenience, and safety for anyone performing vehicle maintenance.
 
-## <a href="https://www.amazon.com/dp/B074R17GL4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Pro-lift Heavy Duty 6 Ton Jack Stands Pair</a>
+## <a href="https://www.amazon.com/dp/B074R17GL4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Pro-lift Heavy Duty 6 Ton Jack Stands Pair</a>
 
 
-<a href="https://www.amazon.com/dp/B074R17GL4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Pro-Lift Heavy Duty 6 Ton Jack Stands Pair - Double Locking Pins - Handle Lock and Mobility Pin for Auto Repair Shop with Extra Safety" src="https://m.media-amazon.com/images/I/41ml0HV4rVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B074R17GL4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Pro-Lift Heavy Duty 6 Ton Jack Stands Pair - Double Locking Pins - Handle Lock and Mobility Pin for Auto Repair Shop with Extra Safety" src="https://m.media-amazon.com/images/I/41ml0HV4rVL._SL500_.jpg"/></a>
 
 
 The **Pro-Lift Heavy Duty 6 Ton Jack Stands Pair** is ideal for professional mechanics, auto repair shops, and serious DIY enthusiasts who require reliable and sturdy support for heavy vehicles during maintenance. If you frequently work on trucks, SUVs, or other large vehicles, these jack stands provide the extra safety and stability you need to perform repairs confidently.
@@ -123,10 +123,10 @@ The **Pro-Lift Heavy Duty 6 Ton Jack Stands** feature a robust construction desi
 
 Additionally, the compact yet sturdy design of these jack stands makes them suitable for various work environments. Their **durable grey and red finish** not only adds to their visual appeal but also offers resistance against rust and general wear. Overall, these stands provide peace of mind and practical functionality for anyone who needs reliable support while working under heavy vehicles.
 
-## <a href="https://www.amazon.com/dp/B002E1AYKY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Big Red T43006 Torin Steel Jack Stands</a>
+## <a href="https://www.amazon.com/dp/B002E1AYKY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Big Red T43006 Torin Steel Jack Stands</a>
 
 
-<a href="https://www.amazon.com/dp/B002E1AYKY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BIG RED T43006 Torin Steel Jack Stands (Fits: SUVs and Extended Height Trucks): 3 Ton (6,000 lb) Capacity, Red, 1 Pair" src="https://m.media-amazon.com/images/I/51qkUgZHnHL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B002E1AYKY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BIG RED T43006 Torin Steel Jack Stands (Fits: SUVs and Extended Height Trucks): 3 Ton (6,000 lb) Capacity, Red, 1 Pair" src="https://m.media-amazon.com/images/I/51qkUgZHnHL._SL500_.jpg"/></a>
 
 
 The **BIG RED T43006 Torin Steel Jack Stands** are perfect for vehicle enthusiasts and professional mechanics who frequently work with **SUVs** and **extended height trucks**. If you're someone who regularly performs maintenance or repairs on larger vehicles, investing in a reliable and robust jack stand is crucial for safety and efficiency. These stands are designed to support up to **3 tons (6,000 lb)**, making them ideal for heavy-duty tasks.
@@ -146,10 +146,10 @@ The **BIG RED T43006 Torin Steel Jack Stands** boast a **sturdy steel constructi
 
 Another advantage of these jack stands is their **adjustable height feature**, which caters to a variety of vehicle sizes, from standard SUVs to taller trucks. This flexibility means you won't need multiple stands for different vehicles, saving both space and money. The **dimensions** of the stands, although slightly bulky, contribute to their stability and reliability, ensuring that your vehicle stays in place while you work.
 
-## <a href="https://www.amazon.com/dp/B0093NBRHA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sunex Jack Stands</a>
+## <a href="https://www.amazon.com/dp/B0093NBRHA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sunex Jack Stands</a>
 
 
-<a href="https://www.amazon.com/dp/B0093NBRHA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Sunex 1410 10-Ton, High Height, Pin Type, Jack Stands, Pair" src="https://m.media-amazon.com/images/I/41ETR-XZx5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0093NBRHA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Sunex 1410 10-Ton, High Height, Pin Type, Jack Stands, Pair" src="https://m.media-amazon.com/images/I/41ETR-XZx5L._SL500_.jpg"/></a>
 
 
 The **Sunex 1410 10-Ton, High Height, Pin Type, Jack Stands** are ideal for automotive enthusiasts, professional mechanics, and DIYers who require reliable and sturdy support for heavy vehicles. Those working on trucks, SUVs, or large machinery will benefit most from these high-capacity jack stands due to their robust design and elevated height, which provides extra clearance for undercarriage work.
@@ -171,10 +171,10 @@ The **Sunex 1410 jack stands** offer impressive strength and reliability, making
 
 Designed with user safety and convenience in mind, these jack stands are crafted from durable materials and finished in a vivid red, enhancing both durability and visibility. While the stands are somewhat heavy, this weight contributes to their stability and robustness, ensuring they remain steady during use. For professionals and serious hobbyists, the Sunex 1410 offers a dependable support solution that combines strength, height, and quality manufacturing.
 
-## <a href="https://www.amazon.com/dp/B0DKP1KJ77?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jack Stands 6 Ton Adjustable With Double Pin Locking</a>
+## <a href="https://www.amazon.com/dp/B0DKP1KJ77?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jack Stands 6 Ton Adjustable With Double Pin Locking</a>
 
 
-<a href="https://www.amazon.com/dp/B0DKP1KJ77?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img src="https://m.media-amazon.com/images/I/41LmMrlfGqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DKP1KJ77?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img src="https://m.media-amazon.com/images/I/41LmMrlfGqL._SL500_.jpg"/></a>
 
 
 Ideal for automotive enthusiasts, mechanics, and DIYers who need reliable and sturdy support for lifting vehicles, the **Jack Stands 6 Ton (13,200 LBS)** by **YATOINTO** are perfect for those working on trucks, SUVs, or cars in their home garage. If you require a heavy-duty, adjustable stand that offers safety and stability during repairs or maintenance, this product is an excellent choice.
@@ -196,10 +196,10 @@ The **YATOINTO Jack Stands** combine strength and versatility with a robust 6-to
 
 In addition to their strength, these jack stands feature extra rubber pads that protect the vehicle's undercarriage from scratches and slipping. This thoughtful design element enhances user confidence by reducing the risk of vehicle damage and improving overall safety. The bright red finish not only adds to the aesthetics but also provides corrosion resistance, increasing the lifespan of the stands in a garage environment.
 
-## <a href="https://www.amazon.com/dp/B0CZHS5HFT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hkte 4 Ton Heavy Duty Jack Stands</a>
+## <a href="https://www.amazon.com/dp/B0CZHS5HFT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hkte 4 Ton Heavy Duty Jack Stands</a>
 
 
-<a href="https://www.amazon.com/dp/B0CZHS5HFT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="HKTE 4 Ton Heavy Duty Jack Stands, Security Locking Pins, 8,000 lbs Capacity, 2pack" src="https://m.media-amazon.com/images/I/31SNXWguX2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CZHS5HFT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="HKTE 4 Ton Heavy Duty Jack Stands, Security Locking Pins, 8,000 lbs Capacity, 2pack" src="https://m.media-amazon.com/images/I/31SNXWguX2L._SL500_.jpg"/></a>
 
 
 The **HKTE 4 Ton Heavy Duty Jack Stands** are ideal for automotive enthusiasts, mechanics, and DIYers who require reliable and sturdy support when working underneath vehicles. If you regularly perform maintenance or repairs on cars, trucks, or SUVs, these jack stands provide the safety and strength needed to securely hold heavy loads, making them perfect for both professional and home garage use.
@@ -221,10 +221,10 @@ The **HKTE 4 Ton Heavy Duty Jack Stands** feature a robust design built to suppo
 
 Additionally, the jack stands’ dimensions are thoughtfully engineered to balance portability with strength. At just under 13 inches in height, they offer sufficient clearance for most standard maintenance tasks without being cumbersome. The 2-pack offering allows for simultaneous support on both sides of a vehicle, streamlining the workflow and increasing efficiency. Overall, these jack stands combine durability, safety, and convenience, making them a valuable tool for anyone serious about vehicle maintenance.
 
-## <a href="https://www.amazon.com/dp/B0BY8FW75W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">6 Ton Automotive Jack Stands</a>
+## <a href="https://www.amazon.com/dp/B0BY8FW75W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">6 Ton Automotive Jack Stands</a>
 
 
-<a href="https://www.amazon.com/dp/B0BY8FW75W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img src="https://m.media-amazon.com/images/I/41YJnjZvJDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BY8FW75W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img src="https://m.media-amazon.com/images/I/41YJnjZvJDL._SL500_.jpg"/></a>
 
 
 The **6 Ton (12,000 LBS) Automotive Jack Stands** by BLACKHORSE-RACING are ideal for professional mechanics, garage owners, and automotive enthusiasts who require reliable and heavy-duty support for vehicle maintenance and repairs. If you need a sturdy and adjustable lifting stand to safely hold vehicles during service, these jack stands are perfect for you.
@@ -246,10 +246,10 @@ The **BLACKHORSE-RACING 6 Ton Automotive Jack Stands** are constructed from prem
 
 Besides safety and strength, these jack stands are designed for ease of use. The robust base provides excellent stability, reducing the risk of accidents during repair work. The pair format allows for balanced support on both sides of the vehicle, promoting safe working conditions. Whether you are changing tires, inspecting brakes, or performing undercarriage repairs, these jack stands deliver dependable support and peace of mind.
 
-## <a href="https://www.amazon.com/dp/B0DGG2SQT4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Gaolly Jack Stands 6 Ton 2 Packs</a>
+## <a href="https://www.amazon.com/dp/B0DGG2SQT4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Gaolly Jack Stands 6 Ton 2 Packs</a>
 
 
-<a href="https://www.amazon.com/dp/B0DGG2SQT4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="GAOLLY Jack Stands 6 Ton (13000 LBs) Lifting Car Stand with Security Locking Pins, Fit Use for Trucks, RV, Cars Automotive Sedans, SUV, MPV, 2 Packs" src="https://m.media-amazon.com/images/I/41RqWlbusEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DGG2SQT4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="GAOLLY Jack Stands 6 Ton (13000 LBs) Lifting Car Stand with Security Locking Pins, Fit Use for Trucks, RV, Cars Automotive Sedans, SUV, MPV, 2 Packs" src="https://m.media-amazon.com/images/I/41RqWlbusEL._SL500_.jpg"/></a>
 
 
 The **GAOLLY Jack Stands 6 Ton (13000 LBs)** are ideal for vehicle owners who regularly perform maintenance or repairs on their **trucks, RVs, cars, SUVs, or MPVs**. Whether you’re a professional mechanic or a DIY enthusiast, these sturdy stands provide the essential support and safety needed when lifting heavy vehicles.

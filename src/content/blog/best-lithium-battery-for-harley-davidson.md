@@ -23,10 +23,10 @@ This guide highlights top lithium batteries designed to fit Harley Davidson mode
 
 
 
-## <a href="https://www.amazon.com/dp/B0CNT6XCG4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Weize Lithium Ytx30l-bs</a>
+## <a href="https://www.amazon.com/dp/B0CNT6XCG4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Weize Lithium Ytx30l-bs</a>
 
 
-<a href="https://www.amazon.com/dp/B0CNT6XCG4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Weize Lithium YTX30L-BS, 700A Lithium LiFePO4 YTX30L Motorcycle Battery, 12V 10AH ATV, UTV, Jet Ski, Scooter, Lawn Mower, Tractor, Generator Battery, Built-in Smart BMS" src="https://m.media-amazon.com/images/I/511AWHoU2kL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CNT6XCG4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Weize Lithium YTX30L-BS, 700A Lithium LiFePO4 YTX30L Motorcycle Battery, 12V 10AH ATV, UTV, Jet Ski, Scooter, Lawn Mower, Tractor, Generator Battery, Built-in Smart BMS" src="https://m.media-amazon.com/images/I/511AWHoU2kL._SL500_.jpg"/></a>
 
 
 The **Weize Lithium YTX30L-BS, 700A Lithium LiFePO4 YTX30L Motorcycle Battery** is ideal for individuals who need a reliable, lightweight, and long-lasting power source for their motorcycles, ATVs, UTVs, jet skis, scooters, lawn mowers, tractors, or generators. If you are looking for a high-performance **12V 10AH battery** that offers enhanced durability and advanced safety features, this battery is a perfect choice.
@@ -49,10 +49,10 @@ The **Weize Lithium YTX30L-BS** battery features advanced **LiFePO4 chemistry** 
 
 Equipped with a built-in **Smart Battery Management System (BMS)**, this battery ensures safety and reliability by protecting against common battery issues such as overcharging, overheating, and short circuits. The high **700A starting current** guarantees quick and dependable engine starts even in cold weather. Overall, this battery offers a combination of power, safety, and longevity that benefits users looking for a dependable energy solution for their vehicles and equipment.
 
-## <a href="https://www.amazon.com/dp/B0DKDW1CN7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tykool Yix30l-bs-std (ytx30l-bs) Motorcycle Battery</a>
+## <a href="https://www.amazon.com/dp/B0DKDW1CN7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tykool Yix30l-bs-std (ytx30l-bs) Motorcycle Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B0DKDW1CN7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="TYKOOL YIX30L-BS-STD (YTX30L-BS),650CCA, Lithium LiFePO4 Motorcycle Battery 12v,Digital Readout,Fits for BMW,Harley Davidson; ATV,UTV,Snowmobile,Compatible for Polaris,BRP (Can-Am),Arctic Cat" src="https://m.media-amazon.com/images/I/41oxnTNda9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DKDW1CN7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="TYKOOL YIX30L-BS-STD (YTX30L-BS),650CCA, Lithium LiFePO4 Motorcycle Battery 12v,Digital Readout,Fits for BMW,Harley Davidson; ATV,UTV,Snowmobile,Compatible for Polaris,BRP (Can-Am),Arctic Cat" src="https://m.media-amazon.com/images/I/41oxnTNda9L._SL500_.jpg"/></a>
 
 
 The **TYKOOL YIX30L-BS-STD (YTX30L-BS)** is an ideal choice for motorcycle and powersports enthusiasts who need a reliable and high-performance battery. This battery is perfect for owners of brands like **BMW**, **Harley Davidson**, as well as users of ATVs, UTVs, and snowmobiles. If you seek a lightweight, durable, and efficient power source that ensures quick starts and long-lasting energy, this **12v Lithium LiFePO4 motorcycle battery** is tailored for you.
@@ -74,10 +74,10 @@ The **TYKOOL YIX30L-BS-STD** stands out due to its advanced **Lithium LiFePO4 ch
 
 Additionally, this battery’s compatibility with a broad range of vehicles like **BMW** and **Harley Davidson** motorcycles, as well as **ATVs, UTVs, and snowmobiles**, makes it a versatile choice. Its robust construction and maintenance-free design mean less hassle and more time on the road or trails. By investing in the **TYKOOL YIX30L-BS-STD**, users enjoy enhanced durability, improved performance, and eco-friendliness, making it a smart upgrade for serious riders and outdoor enthusiasts alike.
 
-## <a href="https://www.amazon.com/dp/B091P9P92V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Noco Lithium Nlp30</a>
+## <a href="https://www.amazon.com/dp/B091P9P92V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Noco Lithium Nlp30</a>
 
 
-<a href="https://www.amazon.com/dp/B091P9P92V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="NOCO Lithium NLP30: Ultra-Light 12V Lithium Powersport Battery – Group 30 – 8Ah – 700A Start Power – Intelligent BMS – UL Certifiedc" src="https://m.media-amazon.com/images/I/31FlmG2G01L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B091P9P92V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="NOCO Lithium NLP30: Ultra-Light 12V Lithium Powersport Battery – Group 30 – 8Ah – 700A Start Power – Intelligent BMS – UL Certifiedc" src="https://m.media-amazon.com/images/I/31FlmG2G01L._SL500_.jpg"/></a>
 
 
 The **NOCO Lithium NLP30** is ideal for powersport enthusiasts and vehicle owners seeking a reliable, lightweight, and high-performance 12V battery. Whether you own a motorcycle, ATV, or other powersport vehicle, this battery is perfect for those who want to upgrade to a more durable and efficient power source without the bulk of traditional lead-acid batteries.
@@ -99,10 +99,10 @@ The **NOCO Lithium NLP30** boasts a compact size with dimensions of 8.39 inches 
 
 Equipped with an advanced **Intelligent Battery Management System (BMS)**, the NLP30 safeguards your investment by preventing common battery issues such as overcharging, overheating, and short circuits. This feature extends the battery's lifespan and provides peace of mind during use. Additionally, being **UL Certified** guarantees that the battery meets strict safety and performance standards, making it a dependable choice for powersport enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B0DSL9C8LY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Forgetyo Lithium Ytx20l-bs Motorcycle Battery</a>
+## <a href="https://www.amazon.com/dp/B0DSL9C8LY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Forgetyo Lithium Ytx20l-bs Motorcycle Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B0DSL9C8LY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Forgetyo Lithium YTX20L-BS, 700A LiFePO4 Motorcycle Battery, 12V 10AH ATV, UTV, Jet Ski, 4 Wheeler, Snowmobile, Personal Watercraft, Seadoo, Polaris, Tractor,Generator and Riding Lawn Mower Battery" src="https://m.media-amazon.com/images/I/41vqVN6VNnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DSL9C8LY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Forgetyo Lithium YTX20L-BS, 700A LiFePO4 Motorcycle Battery, 12V 10AH ATV, UTV, Jet Ski, 4 Wheeler, Snowmobile, Personal Watercraft, Seadoo, Polaris, Tractor,Generator and Riding Lawn Mower Battery" src="https://m.media-amazon.com/images/I/41vqVN6VNnL._SL500_.jpg"/></a>
 
 
 The **Forgetyo Lithium YTX20L-BS** battery is ideal for individuals who need a reliable and lightweight power source for their motorcycles, ATVs, UTVs, jet skis, snowmobiles, and other small vehicles or equipment. Whether you're an outdoor enthusiast, a recreational vehicle owner, or someone who operates riding lawn mowers or generators, this battery offers enhanced performance and durability to meet your power needs.
@@ -124,10 +124,10 @@ The **Forgetyo Lithium YTX20L-BS** battery stands out due to its advanced **LiFe
 
 Additionally, this battery's robust 700A starting current ensures quick and reliable ignition in various environments, from cold winter mornings to hot summer days. The maintenance-free design removes the need for regular electrolyte checks or water refilling, making it a convenient choice for busy users. Overall, the **Forgetyo Lithium YTX20L-BS** provides a dependable and efficient power solution suitable for a wide range of recreational and utility vehicles.
 
-## <a href="https://www.amazon.com/dp/B091P96DDB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Noco Lithium Nlp20</a>
+## <a href="https://www.amazon.com/dp/B091P96DDB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Noco Lithium Nlp20</a>
 
 
-<a href="https://www.amazon.com/dp/B091P96DDB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="NOCO Lithium NLP20: Ultra-Light 12V Lithium Powersport Battery – Group 20 – 7Ah – 600A Start Power – Intelligent BMS – UL Certified" src="https://m.media-amazon.com/images/I/31k5q2Qn-kL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B091P96DDB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="NOCO Lithium NLP20: Ultra-Light 12V Lithium Powersport Battery – Group 20 – 7Ah – 600A Start Power – Intelligent BMS – UL Certified" src="https://m.media-amazon.com/images/I/31k5q2Qn-kL._SL500_.jpg"/></a>
 
 
 The **NOCO Lithium NLP20** battery is ideal for powersport enthusiasts who demand a lightweight yet powerful battery solution for their motorcycles, ATVs, or other 12V vehicles. If you are looking for a durable, efficient, and compact battery that offers high starting power with advanced safety features, this battery is a perfect choice.
@@ -149,10 +149,10 @@ The **NOCO Lithium NLP20** stands out with its advanced **12V lithium chemistry*
 
 Additionally, the **600A starting power** provides robust cranking capability even in cold weather, making it highly reliable for various powersport applications. Being **UL Certified** highlights the battery’s compliance with stringent quality and safety standards, offering peace of mind to users. Overall, the NOCO Lithium NLP20 is a smart investment for those seeking a lightweight, powerful, and safe battery solution for their powersport vehicles.
 
-## <a href="https://www.amazon.com/dp/B0CXPFJMLK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ebl Ytx30l-bs Lithium Motorcycle Battery</a>
+## <a href="https://www.amazon.com/dp/B0CXPFJMLK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ebl Ytx30l-bs Lithium Motorcycle Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B0CXPFJMLK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="EBL YTX30L-BS Lithium Motorcycle Battery 12V 18Ah 1080A LiFePO4 with BMS, Powersports Battery for ATV, UTV, Motorcycle, Riding Lawn Mower, 4 Wheels, Snowmobile, Small UPS" src="https://m.media-amazon.com/images/I/41igkfKQ2BL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CXPFJMLK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="EBL YTX30L-BS Lithium Motorcycle Battery 12V 18Ah 1080A LiFePO4 with BMS, Powersports Battery for ATV, UTV, Motorcycle, Riding Lawn Mower, 4 Wheels, Snowmobile, Small UPS" src="https://m.media-amazon.com/images/I/41igkfKQ2BL._SL500_.jpg"/></a>
 
 
 The **EBL YTX30L-BS Lithium Motorcycle Battery** is perfect for **powersports enthusiasts** who demand **reliable** and **high-performance batteries** for their **ATVs, UTVs, motorcycles**, and other equipment. This battery is ideal for individuals seeking a **lightweight** yet **powerful** energy solution that offers extended **life cycles** and **safety features**.
@@ -175,10 +175,10 @@ The **EBL YTX30L-BS** battery stands out with its **impressive power output** an
 
 Moreover, the battery's **Built-in Battery Management System (BMS)** offers an additional layer of safety by preventing **overcharge, over-discharge**, and short circuits. This feature not only enhances the **longevity** of the battery but also ensures **peace of mind** for the user. With an **18Ah capacity**, it provides consistent power output, allowing for extended rides without the worry of frequent recharges, making it an excellent investment for serious riders.
 
-## <a href="https://www.amazon.com/dp/B07SK57CCJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Weize Ytx30l-bs Battery Replacement Yuasa Yix30l Motorcycle Battery</a>
+## <a href="https://www.amazon.com/dp/B07SK57CCJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Weize Ytx30l-bs Battery Replacement Yuasa Yix30l Motorcycle Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B07SK57CCJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Weize YTX30L-BS Battery Replacement Yuasa YIX30L Motorcycle Battery - Factory Sealed - Maintenance Free - High Performance ETX30L BS For Harley Davidson Polaris Sportsman" src="https://m.media-amazon.com/images/I/51pjckUymJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07SK57CCJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Weize YTX30L-BS Battery Replacement Yuasa YIX30L Motorcycle Battery - Factory Sealed - Maintenance Free - High Performance ETX30L BS For Harley Davidson Polaris Sportsman" src="https://m.media-amazon.com/images/I/51pjckUymJL._SL500_.jpg"/></a>
 
 
 The **Weize YTX30L-BS Battery Replacement** is ideal for motorcycle owners seeking a reliable and high-performance power source. Specifically designed for models like **Harley Davidson** and **Polaris Sportsman**, this battery is perfect for riders who demand durability, maintenance-free operation, and consistent starting power in various weather conditions. If you want a direct replacement that guarantees compatibility and efficiency, this battery is an excellent choice.
@@ -201,10 +201,10 @@ The **Weize YTX30L-BS Battery** boasts a compact yet robust design, measuring 6.
 
 Beyond convenience, the battery delivers high performance, providing consistent and reliable power essential for cold starts and long rides. Its compatibility with popular motorcycle models such as **Harley Davidson** and **Polaris Sportsman** makes it a versatile option for many riders. The durable build and maintenance-free design extend the battery's lifespan, offering excellent value for those looking to invest in a dependable motorcycle battery replacement.
 
-## <a href="https://www.amazon.com/dp/B0C3HDHYDT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tykool Ytx14l-bs Motorcycle Battery</a>
+## <a href="https://www.amazon.com/dp/B0C3HDHYDT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tykool Ytx14l-bs Motorcycle Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B0C3HDHYDT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="TYKOOL YTX14L-BS 3X Cranking Amps,5X Life, Lithium LiFePO4 Motorcycle Battery,12V 8Ah,480CCA,Digital Readout, Built in BMS,Powersports Battery, Compatible for Harley-Davidson, BRP (Sea-doo) Spark 900" src="https://m.media-amazon.com/images/I/41mT9n8Xx6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C3HDHYDT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="TYKOOL YTX14L-BS 3X Cranking Amps,5X Life, Lithium LiFePO4 Motorcycle Battery,12V 8Ah,480CCA,Digital Readout, Built in BMS,Powersports Battery, Compatible for Harley-Davidson, BRP (Sea-doo) Spark 900" src="https://m.media-amazon.com/images/I/41mT9n8Xx6L._SL500_.jpg"/></a>
 
 
 The **TYKOOL YTX14L-BS** battery is ideal for riders who demand reliable power and long-lasting performance for their motorcycles or powersports vehicles. If you own a **Harley-Davidson**, **BRP (Sea-doo) Spark 900**, or similar models, this **12V 8Ah lithium LiFePO4 battery** is designed to meet your high standards for durability and efficiency. It is perfect for enthusiasts seeking a lightweight, maintenance-free power source with advanced features like a digital readout and built-in Battery Management System (BMS).
@@ -228,10 +228,10 @@ The **TYKOOL YTX14L-BS** battery stands out with its impressive **480 CCA (Cold 
 
 Additionally, the built-in **Battery Management System (BMS)** safeguards against overcharging, overheating, and short circuits, enhancing safety and reliability. Compact in size with dimensions of **3.4 inches in height, 5.7 inches in width, and 5.9 inches in length**, this battery fits seamlessly into a range of motorcycle and powersports applications. Overall, the TYKOOL YTX14L-BS offers a superior blend of power, durability, and smart features tailored to the needs of serious riders.
 
-## <a href="https://www.amazon.com/dp/B0DMSBP4S7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ebl Lithium Ytz10s-bs Motorcycle Battery</a>
+## <a href="https://www.amazon.com/dp/B0DMSBP4S7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ebl Lithium Ytz10s-bs Motorcycle Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B0DMSBP4S7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="EBL Lithium YTZ10S-BS, 180CCA Lithium LiFePO4 Motorcycle Battery, 12V 6Ah ATV, UTV, Jet Ski, 4 Wheeler, Quad, Riding Lawn Mower, Tractor, Scooter, PWC, Seadoo, Polaris and Generator Battery" src="https://m.media-amazon.com/images/I/416vxgdkMwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DMSBP4S7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="EBL Lithium YTZ10S-BS, 180CCA Lithium LiFePO4 Motorcycle Battery, 12V 6Ah ATV, UTV, Jet Ski, 4 Wheeler, Quad, Riding Lawn Mower, Tractor, Scooter, PWC, Seadoo, Polaris and Generator Battery" src="https://m.media-amazon.com/images/I/416vxgdkMwL._SL500_.jpg"/></a>
 
 
 The **EBL Lithium YTZ10S-BS** battery is ideal for motorcycle enthusiasts, ATV riders, and owners of various powersport vehicles such as jet skis, quads, and scooters. If you need a reliable, lightweight, and long-lasting power source for your **12V 6Ah** vehicle, this **Lithium LiFePO4 motorcycle battery** is designed to meet your needs, offering superior performance over traditional lead-acid batteries.
@@ -254,10 +254,10 @@ The **EBL Lithium YTZ10S-BS** excels in delivering consistent power output with 
 
 Additionally, the battery's robust construction and high-quality components make it resistant to vibration and shock, which is essential for off-road vehicles like ATVs and UTVs. The versatility of this battery is another key benefit; it supports a wide variety of applications from powersport vehicles to generators, making it a convenient choice for users seeking a dependable and multi-purpose energy solution.
 
-## <a href="https://www.amazon.com/dp/B0DTLMDNG8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Yix30l-bs-std (ytx30l-bs) Lithium Lifepo4 Motorcycle Battery 12v</a>
+## <a href="https://www.amazon.com/dp/B0DTLMDNG8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Yix30l-bs-std (ytx30l-bs) Lithium Lifepo4 Motorcycle Battery 12v</a>
 
 
-<a href="https://www.amazon.com/dp/B0DTLMDNG8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="YIX30L-BS-STD (YTX30L-BS),680CCA, Lithium LiFePO4 Motorcycle Battery 12v,Digital Readout,Fits for BMW,Harley Davidson; ATV,UTV,Snowmobile,Compatible for Polaris,BRP (Can-Am),Arctic Cat" src="https://m.media-amazon.com/images/I/41m22G33cLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DTLMDNG8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="YIX30L-BS-STD (YTX30L-BS),680CCA, Lithium LiFePO4 Motorcycle Battery 12v,Digital Readout,Fits for BMW,Harley Davidson; ATV,UTV,Snowmobile,Compatible for Polaris,BRP (Can-Am),Arctic Cat" src="https://m.media-amazon.com/images/I/41m22G33cLL._SL500_.jpg"/></a>
 
 
 The **YIX30L-BS-STD (YTX30L-BS) Lithium LiFePO4 Motorcycle Battery 12v** is ideal for riders and outdoor enthusiasts who demand reliable, lightweight, and high-performance power sources. Whether you own a **BMW, Harley Davidson motorcycle**, or operate an **ATV, UTV, snowmobile**, this battery is designed to deliver consistent power and long-lasting durability. It's also compatible with popular brands like **Polaris, BRP (Can-Am), and Arctic Cat**, making it a versatile choice for various vehicles and applications.

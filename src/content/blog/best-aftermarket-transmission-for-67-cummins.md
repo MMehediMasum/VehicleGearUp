@@ -23,10 +23,10 @@ Upgrading with quality filters, pans, and coolers helps prevent overheating and 
 
 
 
-## <a href="https://www.amazon.com/dp/B0CXF8YYY6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Doc's Diesel Transmission Filter Kit Df-370</a>
+## <a href="https://www.amazon.com/dp/B0CXF8YYY6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Doc's Diesel Transmission Filter Kit Df-370</a>
 
 
-<a href="https://www.amazon.com/dp/B0CXF8YYY6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Doc's Diesel Transmission Filter Kit DF-370 | Compatible with RAM 6.7L Cummins HO 3500, 4500, 5500 with AISIN AS69RC Transmission 2013+| Replaces 68224232AA" src="https://m.media-amazon.com/images/I/31XnssgPBvL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CXF8YYY6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Doc's Diesel Transmission Filter Kit DF-370 | Compatible with RAM 6.7L Cummins HO 3500, 4500, 5500 with AISIN AS69RC Transmission 2013+| Replaces 68224232AA" src="https://m.media-amazon.com/images/I/31XnssgPBvL._SL500_.jpg"/></a>
 
 
 The **Doc's Diesel Transmission Filter Kit DF-370** is ideal for owners of RAM 6.7L Cummins HO 3500, 4500, and 5500 models equipped with the AISIN AS69RC transmission from 2013 onwards. If you are looking to maintain or replace your transmission filter with a reliable, compatible, and high-quality kit, this product is designed specifically for you. It's perfect for those who want to ensure the longevity and optimal performance of their heavy-duty RAM trucks.
@@ -48,10 +48,10 @@ The **Doc's Diesel Transmission Filter Kit DF-370** stands out with its precise 
 
 Utilizing this filter kit not only extends the lifespan of your transmission but also contributes to smoother shifting and better overall vehicle performance. The ease of installation combined with the assurance of a genuine replacement part makes this kit a smart investment for RAM truck owners focused on maintaining optimal transmission health. Whether you're a professional driver or a dedicated vehicle enthusiast, the Doc's Diesel kit delivers peace of mind and dependable service.
 
-## <a href="https://www.amazon.com/dp/B0D47J3BD6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Doc's Diesel Transmission Filter Kit Df-212</a>
+## <a href="https://www.amazon.com/dp/B0D47J3BD6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Doc's Diesel Transmission Filter Kit Df-212</a>
 
 
-<a href="https://www.amazon.com/dp/B0D47J3BD6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Doc's Diesel Transmission Filter Kit DF-212 | Compatible with RAM 6.7L Cummins 2500, 3500 with 68RFE Transmission 2WD 07.5-24 | Replaces 05013470AE" src="https://m.media-amazon.com/images/I/31y5HMNY0xL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D47J3BD6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Doc's Diesel Transmission Filter Kit DF-212 | Compatible with RAM 6.7L Cummins 2500, 3500 with 68RFE Transmission 2WD 07.5-24 | Replaces 05013470AE" src="https://m.media-amazon.com/images/I/31y5HMNY0xL._SL500_.jpg"/></a>
 
 
 The **Doc's Diesel Transmission Filter Kit DF-212** is ideal for owners of **RAM 2500 and 3500 trucks** equipped with the **6.7L Cummins engine** and **68RFE transmission** (2WD) from model years 2007.5 to 2024. If you are looking to maintain or replace your transmission filter with a reliable, high-quality product that ensures optimal transmission performance and longevity, this kit is designed specifically for you.
@@ -73,10 +73,10 @@ The **Doc's Diesel Transmission Filter Kit DF-212** stands out due to its precis
 
 Additionally, the kit's compatibility across nearly two decades of RAM models makes it a versatile choice for many truck owners. The use of high-quality materials by **Doc's Diesel** guarantees durability and reliability, reducing the frequency of replacements and potential transmission issues. For truck owners who depend heavily on their vehicle for work or daily driving, this filter kit offers peace of mind and excellent value by protecting one of the most vital components of their diesel truck.
 
-## <a href="https://www.amazon.com/dp/B0DYGNQ2K6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">68rfe Transmission Service Kit</a>
+## <a href="https://www.amazon.com/dp/B0DYGNQ2K6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">68rfe Transmission Service Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0DYGNQ2K6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="68RFE Transmission Service Kit: 10qt ATF + Filters for RAM 2500 3500 6.7L (2011-2023)" src="https://m.media-amazon.com/images/I/41BrmWd20uL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DYGNQ2K6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="68RFE Transmission Service Kit: 10qt ATF + Filters for RAM 2500 3500 6.7L (2011-2023)" src="https://m.media-amazon.com/images/I/41BrmWd20uL._SL500_.jpg"/></a>
 
 
 The **68RFE Transmission Service Kit** is ideal for owners of **RAM 2500 and 3500 trucks with 6.7L engines from 2011 to 2023** who want to maintain optimal performance and extend the lifespan of their vehicle's transmission. This kit is perfect for DIY enthusiasts and professional mechanics alike looking for a reliable and comprehensive solution that includes everything needed for a complete transmission service.
@@ -99,10 +99,10 @@ The **68RFE Transmission Service Kit** by LAIPZ offers a comprehensive package t
 
 With its compatibility spanning over a decade of RAM 2500 and 3500 models, this service kit provides an easy and effective way to perform routine maintenance. Regular use of this kit can improve shifting performance, enhance fuel efficiency, and extend the transmission’s lifespan. By investing in the LAIPZ **68RFE Transmission Service Kit**, users benefit from peace of mind knowing their vehicle is equipped with components tailored for their specific transmission needs.
 
-## <a href="https://www.amazon.com/dp/B07HZKB867?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mishimoto Automatic Transmission Oil Cooler</a>
+## <a href="https://www.amazon.com/dp/B07HZKB867?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mishimoto Automatic Transmission Oil Cooler</a>
 
 
-<a href="https://www.amazon.com/dp/B07HZKB867?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mishimoto MMTC-RAM-03SL Automatic Transmission Oil Cooler, Compatible with Dodge Ram Cummins 2500, 3500 5.9L &amp; 6.7L, 2003-2009" src="https://m.media-amazon.com/images/I/41OuzgTH5AL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07HZKB867?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mishimoto MMTC-RAM-03SL Automatic Transmission Oil Cooler, Compatible with Dodge Ram Cummins 2500, 3500 5.9L &amp; 6.7L, 2003-2009" src="https://m.media-amazon.com/images/I/41OuzgTH5AL._SL500_.jpg"/></a>
 
 
 The **Mishimoto MMTC-RAM-03SL Automatic Transmission Oil Cooler** is an excellent choice for owners of **Dodge Ram Cummins 2500** and **3500** models from **2003-2009**, especially those who are seeking to enhance the performance and longevity of their vehicle's transmission system. This product is ideal for truck enthusiasts who frequently tow heavy loads or drive in demanding conditions, as it helps maintain optimal transmission temperatures, thereby preventing overheating and extending the life of the transmission.
@@ -122,10 +122,10 @@ The **Mishimoto MMTC-RAM-03SL** stands out due to its **superior cooling efficie
 
 One of the standout features of this oil cooler is its **robust construction**, which ensures it can withstand the rigors of heavy-duty use. **Mishimoto**, a brand known for high-performance automotive components, has ensured that this product meets the needs of drivers who demand the best from their vehicles. Whether you're hauling heavy trailers or navigating tough terrains, this oil cooler provides the **reliability and performance** needed to keep your transmission at optimal operating temperatures, thereby enhancing overall vehicle performance and longevity.
 
-## <a href="https://www.amazon.com/dp/B0CHCG5K2K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mishimoto Aluminum Transmission Pan</a>
+## <a href="https://www.amazon.com/dp/B0CHCG5K2K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mishimoto Aluminum Transmission Pan</a>
 
 
-<a href="https://www.amazon.com/dp/B0CHCG5K2K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mishimoto Aluminum Transmission Pan, Compatible with Dodge Ram Cummins 6.7L, 2007.5+" src="https://m.media-amazon.com/images/I/51mRc+m7qiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CHCG5K2K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mishimoto Aluminum Transmission Pan, Compatible with Dodge Ram Cummins 6.7L, 2007.5+" src="https://m.media-amazon.com/images/I/51mRc+m7qiL._SL500_.jpg"/></a>
 
 
 The **Mishimoto Aluminum Transmission Pan**, compatible with **Dodge Ram Cummins 6.7L, 2007.5+**, is ideal for truck owners and automotive enthusiasts looking to upgrade their vehicle's transmission system. This product is especially suited for those who want enhanced durability, better cooling performance, and a reliable aftermarket solution to replace the stock transmission pan. If you prioritize longevity and efficiency in your truck’s transmission maintenance, this pan is a great investment.
@@ -147,10 +147,10 @@ The **Mishimoto Aluminum Transmission Pan** stands out due to its robust constru
 
 Additionally, the pan's precise dimensions—**6.0 inches height, 14.5 inches width, and 17.5 inches length**—ensure an exact fit without any modifications. The enhanced cooling capabilities contribute to reducing the risk of transmission overheating during heavy-duty use or towing, making this pan a reliable choice for both everyday drivers and those who demand more from their trucks.
 
-## <a href="https://www.amazon.com/dp/B0DYJHWBD8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Transmission Adapter Plate Compatible With Dodge Ram 2500 3500 Cummins 6.7l Diesel 2007-2024</a>
+## <a href="https://www.amazon.com/dp/B0DYJHWBD8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Transmission Adapter Plate Compatible With Dodge Ram 2500 3500 Cummins 6.7l Diesel 2007-2024</a>
 
 
-<a href="https://www.amazon.com/dp/B0DYJHWBD8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="4941235 Transmission Adapter Plate Compatible with Dodge Ram 2500 3500 C-ummins 6.7L Diesel 2007-2024 Flywheel bell housing 68505584AA 68005233AB 68002974AD 68002974AC" src="https://m.media-amazon.com/images/I/51z4nWfVMZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DYJHWBD8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="4941235 Transmission Adapter Plate Compatible with Dodge Ram 2500 3500 C-ummins 6.7L Diesel 2007-2024 Flywheel bell housing 68505584AA 68005233AB 68002974AD 68002974AC" src="https://m.media-amazon.com/images/I/51z4nWfVMZL._SL500_.jpg"/></a>
 
 
 The **4941235 Transmission Adapter Plate** is ideal for owners of **Dodge Ram 2500 and 3500** models equipped with the **Cummins 6.7L Diesel engine** from **2007 to 2024**. This product is perfect for those looking to maintain or upgrade their vehicle’s transmission system with a reliable and compatible component, ensuring optimal performance and longevity. Mechanics, DIY enthusiasts, and fleet operators who demand durability and precision in replacement parts will find this adapter plate essential.
@@ -171,10 +171,10 @@ The **4941235 Transmission Adapter Plate** stands out due to its precise enginee
 
 Designed by **DanVard**, this adapter plate exemplifies quality and reliability. Its construction supports the heavy torque and demanding conditions of the **Cummins 6.7L Diesel** engine, helping to maintain the vehicle’s performance under load. For users, this translates to fewer breakdowns and longer intervals between maintenance, ultimately saving time and money while preserving the integrity of their Dodge Ram trucks.
 
-## <a href="https://www.amazon.com/dp/B0B198Z14R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ppe Heavy Duty Transmission Pan</a>
+## <a href="https://www.amazon.com/dp/B0B198Z14R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ppe Heavy Duty Transmission Pan</a>
 
 
-<a href="https://www.amazon.com/dp/B0B198Z14R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PPE Heavy Duty Transmission Pan (Brushed) 228052110 Compatible for Dodge Ram 2500/3500 6.7L 68RFE Transmission" src="https://m.media-amazon.com/images/I/41pAj3D5prL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B198Z14R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PPE Heavy Duty Transmission Pan (Brushed) 228052110 Compatible for Dodge Ram 2500/3500 6.7L 68RFE Transmission" src="https://m.media-amazon.com/images/I/41pAj3D5prL._SL500_.jpg"/></a>
 
 
 The **PPE Heavy Duty Transmission Pan (Brushed) 228052110** is ideal for truck owners and mechanics who demand durability and performance, specifically designed for those with **Dodge Ram 2500/3500 6.7L 68RFE Transmission** models. If you are looking to upgrade your vehicle’s transmission system with a reliable, heavy-duty component that can withstand tough driving conditions, this transmission pan is a perfect choice.
@@ -196,10 +196,10 @@ The **PPE Heavy Duty Transmission Pan** features a robust construction specifica
 
 Beyond protection, the pan’s compatibility with the **Dodge Ram 2500/3500 6.7L 68RFE Transmission** means that users benefit from an easy installation process without the need for modifications. This ensures minimal downtime during upgrades or replacements. The brushed finish not only adds a professional, polished look but also helps prevent rust and corrosion, extending the lifespan of the component and maintaining performance over time.
 
-## <a href="https://www.amazon.com/dp/B0CXF7SCFM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Doc's Diesel Transmission Filter Kit Df-211</a>
+## <a href="https://www.amazon.com/dp/B0CXF7SCFM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Doc's Diesel Transmission Filter Kit Df-211</a>
 
 
-<a href="https://www.amazon.com/dp/B0CXF7SCFM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Doc's Diesel Transmission Filter Kit DF-211 | Compatible with RAM 6.7L Cummins 2500, 3500 with 68RFE Transmission 4WD 07.5-24 | Replaces 5013470AC" src="https://m.media-amazon.com/images/I/31GpgPihv5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CXF7SCFM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Doc's Diesel Transmission Filter Kit DF-211 | Compatible with RAM 6.7L Cummins 2500, 3500 with 68RFE Transmission 4WD 07.5-24 | Replaces 5013470AC" src="https://m.media-amazon.com/images/I/31GpgPihv5L._SL500_.jpg"/></a>
 
 
 The **Doc's Diesel Transmission Filter Kit DF-211** is ideal for truck owners and mechanics who drive or service **RAM 2500 and 3500 models** equipped with the **6.7L Cummins engine** and **68RFE 4WD transmission** from 2007.5 to 2024. If you are looking for a reliable and compatible transmission filter replacement to maintain optimal transmission performance and prolong the life of your vehicle, this kit is designed specifically for your needs.
@@ -221,10 +221,10 @@ The **Doc's Diesel Transmission Filter Kit DF-211** offers a high-quality filtra
 
 Additionally, the kit's design facilitates straightforward installation, making it accessible for both professional mechanics and experienced DIY enthusiasts. Using this filter kit regularly as part of your transmission maintenance routine can contribute to improved vehicle reliability and performance, especially in challenging driving conditions that RAM trucks often encounter. Overall, the DF-211 is a dependable choice for maintaining the health of your RAM’s transmission system.
 
-## <a href="https://www.amazon.com/dp/B08JZDW45M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mishimoto Transmission Cooler</a>
+## <a href="https://www.amazon.com/dp/B08JZDW45M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mishimoto Transmission Cooler</a>
 
 
-<a href="https://www.amazon.com/dp/B08JZDW45M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mishimoto MMTC-RAM-15SL Transmission Cooler, Compatible With RAM 6.7L Cummins 2015-2018, silver" src="https://m.media-amazon.com/images/I/319GZq5-LUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08JZDW45M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mishimoto MMTC-RAM-15SL Transmission Cooler, Compatible With RAM 6.7L Cummins 2015-2018, silver" src="https://m.media-amazon.com/images/I/319GZq5-LUL._SL500_.jpg"/></a>
 
 
 The **Mishimoto MMTC-RAM-15SL Transmission Cooler** is ideal for RAM 6.7L Cummins owners from the 2015-2018 model years who are looking to enhance their vehicle's transmission performance and durability. This product is perfect for those who frequently tow heavy loads, drive in demanding conditions, or simply want to maintain optimal transmission temperatures to extend the life of their truck.
@@ -245,10 +245,10 @@ The **Mishimoto MMTC-RAM-15SL Transmission Cooler** boasts a robust design tailo
 
 Additionally, the cooler’s silver finish not only provides a sleek appearance but also adds a layer of corrosion resistance, protecting the cooler from environmental elements. The product’s lightweight construction means it does not negatively impact vehicle dynamics or fuel efficiency, while its precise engineering by **Mishimoto** guarantees durability and reliable operation. Overall, this transmission cooler is a valuable upgrade for any RAM 6.7L Cummins owner seeking enhanced transmission protection and performance.
 
-## <a href="https://www.amazon.com/dp/B0D4YL9SWP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Motoku Transmission Oil Dipstick Indicator</a>
+## <a href="https://www.amazon.com/dp/B0D4YL9SWP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Motoku Transmission Oil Dipstick Indicator</a>
 
 
-<a href="https://www.amazon.com/dp/B0D4YL9SWP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MOTOKU Transmission Oil Dipstick Indicator for Ram 2500 3500 Cummins 6.7 Diesel 2007-2020 68RFE Trans" src="https://m.media-amazon.com/images/I/218unVRj2FL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D4YL9SWP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MOTOKU Transmission Oil Dipstick Indicator for Ram 2500 3500 Cummins 6.7 Diesel 2007-2020 68RFE Trans" src="https://m.media-amazon.com/images/I/218unVRj2FL._SL500_.jpg"/></a>
 
 
 The **MOTOKU Transmission Oil Dipstick Indicator** is ideal for owners of **Ram 2500 and 3500 trucks** equipped with the **Cummins 6.7 Diesel engine** from model years **2007 to 2020**. If you're looking to maintain optimal transmission performance and want an easy, reliable way to check your **68RFE transmission fluid** levels, this product is designed for you. It's perfect for mechanics, truck enthusiasts, and everyday drivers who prioritize proper vehicle maintenance.

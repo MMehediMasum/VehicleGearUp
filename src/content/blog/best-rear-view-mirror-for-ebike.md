@@ -23,10 +23,10 @@ It helps you use GPS or answer calls safely. The sturdy design fits many bike mo
 
 
 
-## <a href="https://www.amazon.com/dp/B0F8P18J4N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Motoforti Motorcycle Phone Mount Holder</a>
+## <a href="https://www.amazon.com/dp/B0F8P18J4N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Motoforti Motorcycle Phone Mount Holder</a>
 
 
-<a href="https://www.amazon.com/dp/B0F8P18J4N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img src="https://m.media-amazon.com/images/I/416If7Bg6-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F8P18J4N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img src="https://m.media-amazon.com/images/I/416If7Bg6-L._SL500_.jpg"/></a>
 
 
 The **Motoforti Motorcycle Phone Mount Holder** is ideal for motorbike enthusiasts and daily commuters who need a reliable and secure way to mount their smartphones on their motorcycles. Designed to fit a wide range of devices measuring between **4.7"** and **7.2"** (119.38-182.88mm), this mount is perfect for riders who want easy access to navigation, music, or calls without compromising safety. If you value convenience and durability while on the road, this phone holder is a great choice.

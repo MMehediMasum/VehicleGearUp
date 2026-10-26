@@ -23,10 +23,10 @@ The HWK Scorpion Motorcycle Jacket offers breathable fabric and body armor for a
 
 
 
-## <a href="https://www.amazon.com/dp/B09ZKYT8TC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Weplan Motorcycle Backpacks</a>
+## <a href="https://www.amazon.com/dp/B09ZKYT8TC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Weplan Motorcycle Backpacks</a>
 
 
-<a href="https://www.amazon.com/dp/B09ZKYT8TC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WEPLAN Motorcycle Backpacks for Men and women,Waterproof Helmet Backpack,Motorcycle Dirt Bike Accessories,motorcycle gear Seat Bag Tail Bag" src="https://m.media-amazon.com/images/I/414u6WNlP7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09ZKYT8TC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WEPLAN Motorcycle Backpacks for Men and women,Waterproof Helmet Backpack,Motorcycle Dirt Bike Accessories,motorcycle gear Seat Bag Tail Bag" src="https://m.media-amazon.com/images/I/414u6WNlP7L._SL500_.jpg"/></a>
 
 
 The **WEPLAN Motorcycle Backpack** is ideal for both men and women who are passionate about riding motorcycles and need a reliable, durable storage solution. Whether you're a daily commuter or a weekend adventure rider, this backpack suits those who require a compact, waterproof, and versatile bag for carrying essentials safely on the road. Its design also appeals to dirt bike riders looking for specialized motorcycle gear that can handle tough conditions.
@@ -48,10 +48,10 @@ The **WEPLAN Motorcycle Backpack** offers a combination of durability and practi
 
 Additionally, this backpack’s versatility as a helmet backpack, seat bag, and tail bag means it adapts to various motorcycle types and personal preferences. Whether you need to secure your helmet or carry essential tools and accessories, the WEPLAN backpack provides a reliable storage option that integrates seamlessly with your gear. Its sleek black design also adds a stylish touch, making it a practical and fashionable choice for riders.
 
-## <a href="https://www.amazon.com/dp/B0BXL5XRG9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Motorcycle Accessories Elbow Knee Pads And Chest Protector Motocross Gear</a>
+## <a href="https://www.amazon.com/dp/B0BXL5XRG9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Motorcycle Accessories Elbow Knee Pads And Chest Protector Motocross Gear</a>
 
 
-<a href="https://www.amazon.com/dp/B0BXL5XRG9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Motorcycle Accessories , Elbow Knee Pads and Chest Protector Motocross Gear for Men and Women, Dirt Bike Gear Chest Armor, Back Protection Riding Protective Gear Motorcycle Vest" src="https://m.media-amazon.com/images/I/410P-9UIuGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BXL5XRG9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Motorcycle Accessories , Elbow Knee Pads and Chest Protector Motocross Gear for Men and Women, Dirt Bike Gear Chest Armor, Back Protection Riding Protective Gear Motorcycle Vest" src="https://m.media-amazon.com/images/I/410P-9UIuGL._SL500_.jpg"/></a>
 
 
 The **Motorcycle Accessories** set including **Elbow Knee Pads** and **Chest Protector Motocross Gear** is ideal for both **men and women** who actively participate in motocross, dirt biking, or any form of motorcycle riding where protection is crucial. This gear is perfect for riders seeking comprehensive protection for their **elbows, knees, chest, and back** to prevent injuries while maintaining comfort and mobility on the road or trail.
@@ -73,10 +73,10 @@ This **Motorcycle Vest** and protective gear set from **Aikelai** offers robust 
 
 The ergonomic design of the gear promotes unrestricted movement, essential for maneuvering through challenging terrain. Its **back protection** feature adds an extra layer of security, reducing the risk of serious injury during falls or collisions. Overall, this set is a valuable investment for motorcycle enthusiasts seeking dependable, comfortable, and comprehensive protective gear that suits both men and women.
 
-## <a href="https://www.amazon.com/dp/B07KYTNL6B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hwk Scorpion Motorcycle Jacket</a>
+## <a href="https://www.amazon.com/dp/B07KYTNL6B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hwk Scorpion Motorcycle Jacket</a>
 
 
-<a href="https://www.amazon.com/dp/B07KYTNL6B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HWK Scorpion Motorcycle Jacket for Men &amp; Women, Motorcycle Gear with Body Armor Foam Padding and Breathable Cordura Fabric, Reflective Motor Bike Jacket for Improved Night Visibility - Black, Large" src="https://m.media-amazon.com/images/I/41nTESZDMdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07KYTNL6B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HWK Scorpion Motorcycle Jacket for Men &amp; Women, Motorcycle Gear with Body Armor Foam Padding and Breathable Cordura Fabric, Reflective Motor Bike Jacket for Improved Night Visibility - Black, Large" src="https://m.media-amazon.com/images/I/41nTESZDMdL._SL500_.jpg"/></a>
 
 
 The **HWK Scorpion Motorcycle Jacket** is ideal for both men and women who seek a combination of safety, comfort, and style in their riding gear. Perfect for daily commuters and weekend riders alike, this jacket suits those who value enhanced protection with body armor and require breathable fabric for extended rides. If you want a durable, all-black jacket that offers improved night visibility, this is a great choice.
@@ -98,10 +98,10 @@ The **HWK Scorpion Motorcycle Jacket** stands out with its use of **Cordura fabr
 
 Additionally, the jacket’s **reflective motorbike design** significantly enhances night visibility, a crucial aspect for rider safety when commuting in low-light or dark environments. Its sleek, **all-black color** offers a versatile and timeless look, appealing to both men and women who want practical yet stylish motorcycle gear. Overall, this jacket combines functionality, safety, and comfort, making it a reliable choice for riders of all experience levels.
 
-## <a href="https://www.amazon.com/dp/B08HLFWQ2D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Reomoto Kids Full Body Protector</a>
+## <a href="https://www.amazon.com/dp/B08HLFWQ2D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Reomoto Kids Full Body Protector</a>
 
 
-<a href="https://www.amazon.com/dp/B08HLFWQ2D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Reomoto Kids Full Body Protector Youth Dirt Bike Gear for Motorcycle Cycling Skiing Motorbike Riding Bike Vest with Knee Elbow Protectors" src="https://m.media-amazon.com/images/I/41QemhVLgxL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08HLFWQ2D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Reomoto Kids Full Body Protector Youth Dirt Bike Gear for Motorcycle Cycling Skiing Motorbike Riding Bike Vest with Knee Elbow Protectors" src="https://m.media-amazon.com/images/I/41QemhVLgxL._SL500_.jpg"/></a>
 
 
 The **Reomoto Kids Full Body Protector** is an excellent choice for young riders who engage in activities like **dirt bike riding, motorcycle cycling, skiing, and motorbike riding**. This gear is ideal for parents seeking reliable and comprehensive protection for their children during high-impact sports and outdoor adventures. If your child is active in these sports and you want to ensure their safety with durable, well-designed protective equipment, this product is made for you.
@@ -124,10 +124,10 @@ The **Reomoto Kids Full Body Protector** is designed with a focus on comprehensi
 
 Additionally, the product’s durable build and compact dimensions make it an excellent protective vest option that can easily be worn under or over other clothing layers. The versatile design caters to various outdoor sports, providing parents peace of mind knowing their children are shielded by high-quality protective gear. Overall, this vest balances protection, comfort, and practicality tailored specifically for youth riders.
 
-## <a href="https://www.amazon.com/dp/B08SQDW9TL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Starknightmt Kids Motorcycle Armor Suit</a>
+## <a href="https://www.amazon.com/dp/B08SQDW9TL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Starknightmt Kids Motorcycle Armor Suit</a>
 
 
-<a href="https://www.amazon.com/dp/B08SQDW9TL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="StarknightMT Kids Motorcycle Armor Suit Dirt Bike Gear Riding Protective Chest Spine Back Protector Shoulder Arm Elbow Knee Protector Pads for Cycling Skateboard,Skiing,Skating,Off-Road" src="https://m.media-amazon.com/images/I/514M+ruS9YL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08SQDW9TL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="StarknightMT Kids Motorcycle Armor Suit Dirt Bike Gear Riding Protective Chest Spine Back Protector Shoulder Arm Elbow Knee Protector Pads for Cycling Skateboard,Skiing,Skating,Off-Road" src="https://m.media-amazon.com/images/I/514M+ruS9YL._SL500_.jpg"/></a>
 
 
 The **StarknightMT Kids Motorcycle Armor Suit** is perfect for young enthusiasts who enjoy **cycling**, **skateboarding**, **skiing**, **skating**, and **off-road** adventures. This protective gear is ideal for parents who prioritize safety while their children partake in these thrilling activities. It's designed to provide comprehensive protection without compromising on comfort, making it a must-have for any young rider.
@@ -147,10 +147,10 @@ The **StarknightMT Kids Motorcycle Armor Suit** features a robust design that fo
 
 Additionally, the **flexible fit** of the armor allows for easy adjustments, providing a snug yet comfortable fit for a range of body shapes. While the color options might be limited, the **sleek black design** appeals to many young riders, ensuring they look and feel cool while staying safe. Overall, this protective gear combines **functionality** and **style**, making it a top choice for young adventurers.
 
-## <a href="https://www.amazon.com/dp/B0B5KS2PT8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Starknightmt Kids Dirt Bike Gear</a>
+## <a href="https://www.amazon.com/dp/B0B5KS2PT8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Starknightmt Kids Dirt Bike Gear</a>
 
 
-<a href="https://www.amazon.com/dp/B0B5KS2PT8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="StarknightMT Kids Dirt Bike Gear - Youth Motorcycle Riding Protective Gear ATV Chest Protector Motocross Armor Suit for Boys Girls Mountain Biking Cycling, Black" src="https://m.media-amazon.com/images/I/51+d99JDvqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B5KS2PT8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="StarknightMT Kids Dirt Bike Gear - Youth Motorcycle Riding Protective Gear ATV Chest Protector Motocross Armor Suit for Boys Girls Mountain Biking Cycling, Black" src="https://m.media-amazon.com/images/I/51+d99JDvqL._SL500_.jpg"/></a>
 
 
 The **StarknightMT Kids Dirt Bike Gear** is ideal for young riders who are passionate about **motorcycling**, **mountain biking**, or **ATV riding**. This protective gear is designed specifically for boys and girls who need reliable and comfortable armor to stay safe during their adventurous outdoor activities. Parents looking to provide their children with durable and effective **motocross armor** will find this chest protector suit an excellent choice.
@@ -173,10 +173,10 @@ Featuring a sleek and practical design, the **StarknightMT Kids Dirt Bike Gear**
 
 Additionally, the **black color** provides a versatile and stylish look that appeals to both boys and girls, making it a great unisex option. Manufactured by **StarknightMT**, the gear guarantees quality craftsmanship that parents can trust. Overall, this protective suit enhances safety while promoting confidence among young riders, allowing them to enjoy their outdoor adventures with peace of mind.
 
-## <a href="https://www.amazon.com/dp/B09XV49Y5Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Starknightmt Kids Motorcycle Armor Suit</a>
+## <a href="https://www.amazon.com/dp/B09XV49Y5Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Starknightmt Kids Motorcycle Armor Suit</a>
 
 
-<a href="https://www.amazon.com/dp/B09XV49Y5Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="StarknightMT Kids Motorcycle Armor Suit Dirt Bike Gear, Youth Motocross Riding Protector with Knee Elbow Arm Shoulder Protection Pad for Cycling Off-Road Riding Skiing Skating (Blue)" src="https://m.media-amazon.com/images/I/41cD2OyxW3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09XV49Y5Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="StarknightMT Kids Motorcycle Armor Suit Dirt Bike Gear, Youth Motocross Riding Protector with Knee Elbow Arm Shoulder Protection Pad for Cycling Off-Road Riding Skiing Skating (Blue)" src="https://m.media-amazon.com/images/I/41cD2OyxW3L._SL500_.jpg"/></a>
 
 
 The **StarknightMT Kids Motorcycle Armor Suit** is ideal for young riders who engage in activities such as motocross, dirt biking, cycling, skiing, and skating. Parents looking for comprehensive protective gear that ensures their child's safety during off-road adventures will find this suit particularly beneficial. It is designed for youth who require robust and reliable protection without compromising comfort and mobility.
@@ -198,10 +198,10 @@ The **StarknightMT Kids Motorcycle Armor Suit** boasts an ergonomic design that 
 
 Additionally, this gear is crafted from durable materials that withstand the rigors of off-road riding and other extreme sports. The protective suit's versatility makes it an excellent investment for parents seeking a single solution for multiple activities. Its vibrant **blue color** adds a stylish touch, while the trusted **StarknightMT brand** assures quality and reliability for peace of mind during every adventure.
 
-## <a href="https://www.amazon.com/dp/B0DH255XRZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ilm Motorcycle Dirt Bike Pants For Men</a>
+## <a href="https://www.amazon.com/dp/B0DH255XRZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ilm Motorcycle Dirt Bike Pants For Men</a>
 
 
-<a href="https://www.amazon.com/dp/B0DH255XRZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ILM Motorcycle Dirt Bike Pants for Men CE Armored Motocross Riding Gear Jeans Motorbike Adventure Touring Pant BJN01 Blue" src="https://m.media-amazon.com/images/I/51hq2B2R0oL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DH255XRZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ILM Motorcycle Dirt Bike Pants for Men CE Armored Motocross Riding Gear Jeans Motorbike Adventure Touring Pant BJN01 Blue" src="https://m.media-amazon.com/images/I/51hq2B2R0oL._SL500_.jpg"/></a>
 
 
 The **ILM Motorcycle Dirt Bike Pants for Men** are ideal for riders who demand both protection and comfort during their motocross or adventure touring experiences. These pants are perfect for men who engage in off-road motorcycling and seek durable, CE-armored gear to ensure safety without compromising on style or mobility. If you are an avid motorbike enthusiast looking for reliable and rugged riding jeans, this product suits your needs perfectly.
@@ -223,10 +223,10 @@ The **ILM Motorcycle Dirt Bike Pants** are engineered with high-quality material
 
 Additionally, the pants are crafted to accommodate the demands of both motocross racing and long-distance adventure touring. This means riders benefit from breathable fabric that helps regulate temperature while maintaining the structural integrity needed for intense riding conditions. The ergonomic design and tailored fit enhance comfort, allowing users to focus on their ride rather than adjusting their gear.
 
-## <a href="https://www.amazon.com/dp/B0D9TC6JC8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hoigat Motorcycle Body Armor Gear</a>
+## <a href="https://www.amazon.com/dp/B0D9TC6JC8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hoigat Motorcycle Body Armor Gear</a>
 
 
-<a href="https://www.amazon.com/dp/B0D9TC6JC8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HoiGat Motorcycle Body Armor Gear, Protective Jacket &amp; Pants Sets Multi-Part Protection Gear for Outdoor Riding Sports (Black, Large)" src="https://m.media-amazon.com/images/I/41VNUxVkt+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D9TC6JC8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HoiGat Motorcycle Body Armor Gear, Protective Jacket &amp; Pants Sets Multi-Part Protection Gear for Outdoor Riding Sports (Black, Large)" src="https://m.media-amazon.com/images/I/41VNUxVkt+L._SL500_.jpg"/></a>
 
 
 The **HoiGat Motorcycle Body Armor Gear**, featuring a **Protective Jacket & Pants Set** in sleek **Black** (Large), is ideal for outdoor riding enthusiasts who prioritize safety without compromising comfort. This gear is perfect for motorcyclists who frequently engage in sports or long-distance rides and need reliable multi-part protection to reduce injury risks during falls or accidents.
@@ -249,10 +249,10 @@ The **HoiGat Motorcycle Body Armor Gear** stands out by providing robust protect
 
 Constructed with high-quality materials from the trusted **HoiGat** brand, this protective gear balances durability with breathability. The black color not only adds a sleek aesthetic but also helps in maintaining a clean look despite frequent outdoor use. With adjustable features, the gear fits securely, minimizing distractions and allowing riders to focus on the road ahead with confidence and peace of mind.
 
-## <a href="https://www.amazon.com/dp/B06XPZ38RK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Herobiker Motorcycle Full Body Armor Jacket</a>
+## <a href="https://www.amazon.com/dp/B06XPZ38RK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Herobiker Motorcycle Full Body Armor Jacket</a>
 
 
-<a href="https://www.amazon.com/dp/B06XPZ38RK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HEROBIKER Motorcycle Full Body Armor Jacket spine chest protection gear Motocross Motos Protector Motorcycle Jacket 2 Styles" src="https://m.media-amazon.com/images/I/51qINycI8ML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B06XPZ38RK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HEROBIKER Motorcycle Full Body Armor Jacket spine chest protection gear Motocross Motos Protector Motorcycle Jacket 2 Styles" src="https://m.media-amazon.com/images/I/51qINycI8ML._SL500_.jpg"/></a>
 
 
 The **HEROBIKER Motorcycle Full Body Armor Jacket** is ideal for **motorcycle enthusiasts**, especially those who enjoy **motocross** and need **reliable protection** during their rides. This item is perfect for individuals who prioritize **safety and comfort** while on the road, making it a must-have for anyone engaging in high-speed or off-road biking adventures.

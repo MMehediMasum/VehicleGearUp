@@ -23,10 +23,10 @@ Some have non-slip bases to keep the seat stable during use. Portable swivel cus
 
 
 
-## <a href="https://www.amazon.com/dp/B008HDWH9O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Healthsmart 360 Degree Swivel Seat Cushion</a>
+## <a href="https://www.amazon.com/dp/B008HDWH9O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Healthsmart 360 Degree Swivel Seat Cushion</a>
 
 
-<a href="https://www.amazon.com/dp/B008HDWH9O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="HealthSmart 360 Degree Swivel Seat Cushion, Chair Assist for Elderly, Swivel Seat Cushion for Car, Twisting Disc, Black Leather, 15 Inches in Diameter" src="https://m.media-amazon.com/images/I/41r4Q2mzfuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B008HDWH9O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="HealthSmart 360 Degree Swivel Seat Cushion, Chair Assist for Elderly, Swivel Seat Cushion for Car, Twisting Disc, Black Leather, 15 Inches in Diameter" src="https://m.media-amazon.com/images/I/41r4Q2mzfuL._SL500_.jpg"/></a>
 
 
 The **HealthSmart 360 Degree Swivel Seat Cushion** is ideal for elderly individuals or anyone with limited mobility who struggles with twisting or turning while seated. It is also perfect for drivers and passengers looking for an easy way to enter and exit vehicles without straining their backs or hips. This cushion is designed to provide enhanced comfort and support in various seating environments.
@@ -50,10 +50,10 @@ The **HealthSmart 360 Degree Swivel Seat Cushion** features a smooth twisting di
 
 With dimensions of 15 inches in diameter and a height of 2 inches, this cushion is designed to fit most standard chairs and car seats without taking up excessive space. Its lightweight construction ensures it can be easily moved and repositioned as needed. Overall, the HealthSmart swivel cushion promotes better posture and reduces the risk of injury by minimizing twisting motions, making it an excellent assistive device for elderly users and anyone seeking greater comfort during daily activities.
 
-## <a href="https://www.amazon.com/dp/B09Q7ZFGGY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ehucon Swivel Seat Cushion</a>
+## <a href="https://www.amazon.com/dp/B09Q7ZFGGY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ehucon Swivel Seat Cushion</a>
 
 
-<a href="https://www.amazon.com/dp/B09Q7ZFGGY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Ehucon Swivel Seat Cushion 360 Degree Rotating Seat Cushion Light Weight Portable Pivot Disc Pad for Elderly, Pregnant Woman, Swivel Car Seat. Easy Turning from Bed to Wheelchair or Chair" src="https://m.media-amazon.com/images/I/41EwQWyuHUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09Q7ZFGGY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Ehucon Swivel Seat Cushion 360 Degree Rotating Seat Cushion Light Weight Portable Pivot Disc Pad for Elderly, Pregnant Woman, Swivel Car Seat. Easy Turning from Bed to Wheelchair or Chair" src="https://m.media-amazon.com/images/I/41EwQWyuHUL._SL500_.jpg"/></a>
 
 
 The **Ehucon Swivel Seat Cushion 360 Degree Rotating Seat Cushion** is ideal for **elderly individuals**, **pregnant women**, or anyone who requires assistance with easy turning and mobility, especially when transitioning from a bed to a wheelchair or chair. This **lightweight** and **portable pivot disc pad** is designed to enhance comfort and independence during daily activities.
@@ -76,10 +76,10 @@ The **Ehucon Swivel Seat Cushion** features a smooth **360-degree rotating mecha
 
 Designed with convenience and mobility in mind, this **portable pivot disc pad** enhances independence for those who have difficulty turning or repositioning themselves. The cushion is perfect for **elderly individuals** who need extra support, **pregnant women** seeking comfort during daily activities, and anyone requiring assistance in **swivel car seats**. The sturdy yet smooth rotation mechanism helps minimize joint pain and effort, improving overall user experience.
 
-## <a href="https://www.amazon.com/dp/B01E4EQ7HC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nova Swivel Seat Cushion For Car &amp; Chair</a>
+## <a href="https://www.amazon.com/dp/B01E4EQ7HC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Nova Swivel Seat Cushion For Car &amp; Chair</a>
 
 
-<a href="https://www.amazon.com/dp/B01E4EQ7HC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="NOVA Swivel Seat Cushion for Car &amp; Chair – 360° Rotating Disc for Easy Transfers – 2” Thick High-Density Foam with Removable Washable Cover – Non-Slip Base – Charcoal Blue – 15.25” Round" src="https://m.media-amazon.com/images/I/41JqZHvj71L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01E4EQ7HC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="NOVA Swivel Seat Cushion for Car &amp; Chair – 360° Rotating Disc for Easy Transfers – 2” Thick High-Density Foam with Removable Washable Cover – Non-Slip Base – Charcoal Blue – 15.25” Round" src="https://m.media-amazon.com/images/I/41JqZHvj71L._SL500_.jpg"/></a>
 
 
 The **NOVA Swivel Seat Cushion for Car & Chair** is ideal for individuals who experience difficulty with mobility, such as seniors, people recovering from surgery, or those with limited flexibility. This product is perfect for anyone seeking an easier and safer way to transfer in and out of vehicles or chairs, providing enhanced comfort and support during daily activities.
@@ -101,10 +101,10 @@ The **NOVA Swivel Seat Cushion** features a sturdy **360° rotating disc** that 
 
 Additionally, the cushion’s **removable washable cover** enhances hygiene and ease of care, making it suitable for everyday use. The **non-slip base** firmly grips surfaces, preventing unwanted movement and enhancing user safety. Compactly sized at **15.25 inches round** and weighing just 1 pound, this cushion is easy to carry and fits well in cars, office chairs, or dining seats, offering versatile support wherever needed.
 
-## <a href="https://www.amazon.com/dp/B0DJX5NWG1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Balapet 360 Degree Memory Foam Rotating Seat Cushion</a>
+## <a href="https://www.amazon.com/dp/B0DJX5NWG1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Balapet 360 Degree Memory Foam Rotating Seat Cushion</a>
 
 
-<a href="https://www.amazon.com/dp/B0DJX5NWG1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BALAPET 360 Degree Memory Foam Rotating Seat Cushion,Swivel Seat Cushion for Car, 3IN Thick Car Seat Pad for Elderly Assistance(13.5x13.5x3IN)" src="https://m.media-amazon.com/images/I/41gtZKs2s1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DJX5NWG1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BALAPET 360 Degree Memory Foam Rotating Seat Cushion,Swivel Seat Cushion for Car, 3IN Thick Car Seat Pad for Elderly Assistance(13.5x13.5x3IN)" src="https://m.media-amazon.com/images/I/41gtZKs2s1L._SL500_.jpg"/></a>
 
 
 The **BALAPET 360 Degree Memory Foam Rotating Seat Cushion** is ideal for individuals who face difficulty when getting in and out of cars or swivel chairs, especially the **elderly** or those with limited mobility. This **3-inch thick swivel seat cushion** provides added comfort and support, making it easier and safer to rotate without straining the body.
@@ -128,10 +128,10 @@ The **BALAPET rotating seat cushion** features a smooth swivel mechanism that en
 
 Additionally, the cushion’s thickness of **3 inches** provides ample padding to absorb shocks and vibrations, making it an excellent choice for car rides or office use. The compact size and lightweight design ensure it can be easily transferred between different seats, while the durable cover guarantees long-lasting use and simple maintenance.
 
-## <a href="https://www.amazon.com/dp/B083K5YW2G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Car Transfer Aid Easy Slide Sheet</a>
+## <a href="https://www.amazon.com/dp/B083K5YW2G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Car Transfer Aid Easy Slide Sheet</a>
 
 
-<a href="https://www.amazon.com/dp/B083K5YW2G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Car Transfer Aid Easy Slide Sheet Positioning Patient Transfer Device Slip Slider Sheets for Vehicles Wheelchairs Bed Turning Repositioning Hospitals and Home Care Assist Moving Elderly Disabled" src="https://m.media-amazon.com/images/I/511IULrBgqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B083K5YW2G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Car Transfer Aid Easy Slide Sheet Positioning Patient Transfer Device Slip Slider Sheets for Vehicles Wheelchairs Bed Turning Repositioning Hospitals and Home Care Assist Moving Elderly Disabled" src="https://m.media-amazon.com/images/I/511IULrBgqL._SL500_.jpg"/></a>
 
 
 The **Car Transfer Aid Easy Slide Sheet** is an essential tool for caregivers, healthcare professionals, and family members who assist with **patient transfer and repositioning**. This product is ideal for individuals who care for the **elderly, disabled, or those with limited mobility**, making daily transfers from **vehicles, wheelchairs, beds, or within hospital settings** much more manageable and safe.
@@ -151,10 +151,10 @@ The **MEJORMEN Car Transfer Aid** features a **compact design**, measuring **18 
 
 One of the standout features of this **transfer aid** is its ability to **reduce friction**, which significantly lowers the risk of skin shearing or injury when moving patients. This feature is particularly beneficial for those who are prone to pressure sores or have delicate skin. Additionally, the **durable construction** of the slide sheet assures caregivers of a reliable tool that will withstand regular use, ensuring both safety and comfort for the patient.
 
-## <a href="https://www.amazon.com/dp/B07SD7QDF7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sojoy Igelcomfort Deluxe Gel Swivel Seat Cushion</a>
+## <a href="https://www.amazon.com/dp/B07SD7QDF7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sojoy Igelcomfort Deluxe Gel Swivel Seat Cushion</a>
 
 
-<a href="https://www.amazon.com/dp/B07SD7QDF7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Sojoy iGelComfort Deluxe Gel Swivel Seat Cushion with Supportive Memory Foam 360 Degrees Rotating Seat Cushion for Home,Stool Chair,Office, 13.5 Inches in Diameter" src="https://m.media-amazon.com/images/I/31KcUJCVGnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07SD7QDF7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Sojoy iGelComfort Deluxe Gel Swivel Seat Cushion with Supportive Memory Foam 360 Degrees Rotating Seat Cushion for Home,Stool Chair,Office, 13.5 Inches in Diameter" src="https://m.media-amazon.com/images/I/31KcUJCVGnL._SL500_.jpg"/></a>
 
 
 The **Sojoy iGelComfort Deluxe Gel Swivel Seat Cushion** is ideal for individuals who spend long hours sitting, such as office workers, drivers, or those with mobility challenges. This cushion is perfect for anyone seeking enhanced comfort and support on various seating surfaces, including home chairs, stools, or office seats.
@@ -176,10 +176,10 @@ The **Sojoy iGelComfort Deluxe Gel Swivel Seat Cushion** features a unique combi
 
 Its **360 degrees swivel** capability enhances mobility by allowing users to turn smoothly without the need to twist their body, reducing strain on the back and hips. The cushion’s compact **13.5-inch diameter** and lightweight construction make it versatile for use on various chairs and easy to transport between locations, whether at home, office, or in a vehicle.
 
-## <a href="https://www.amazon.com/dp/B0CCR1BXQ8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Vive Swivel Car Seat Cushion</a>
+## <a href="https://www.amazon.com/dp/B0CCR1BXQ8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Vive Swivel Car Seat Cushion</a>
 
 
-<a href="https://www.amazon.com/dp/B0CCR1BXQ8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Vive Swivel Car Seat Cushion for Handicapped &amp; Elderly Assistance - 360 Large Round Rotating Chair Pad with Memory Foam (Black)" src="https://m.media-amazon.com/images/I/41ZFcdBHhoL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CCR1BXQ8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Vive Swivel Car Seat Cushion for Handicapped &amp; Elderly Assistance - 360 Large Round Rotating Chair Pad with Memory Foam (Black)" src="https://m.media-amazon.com/images/I/41ZFcdBHhoL._SL500_.jpg"/></a>
 
 
 The **Vive Swivel Car Seat Cushion** is ideal for **handicapped individuals** and the **elderly** who require assistance with getting in and out of vehicles. This product is perfect for those who face limited mobility or stiffness, providing a smooth and effortless 360-degree rotation to ease the strain on hips and knees. Caregivers and family members seeking a practical solution to improve comfort and safety during car rides will also find this cushion highly beneficial.
@@ -202,10 +202,10 @@ The **Vive Swivel Car Seat Cushion** features a thoughtfully designed large roun
 
 Additionally, the cushion’s slim and lightweight design makes it easy to transfer between vehicles or even use on other chairs around the home. The black color ensures it blends seamlessly with most car interiors, maintaining a discreet and professional look. Overall, this swivel cushion is a practical, user-friendly accessory that improves both safety and comfort for handicapped and elderly passengers during every journey.
 
-## <a href="https://www.amazon.com/dp/B019HKASRS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Stander Auto Mobility Combo Pack</a>
+## <a href="https://www.amazon.com/dp/B019HKASRS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Stander Auto Mobility Combo Pack</a>
 
 
-<a href="https://www.amazon.com/dp/B019HKASRS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Stander Auto Mobility Combo Pack, Handybar and Swivel Seat Cushion Bundle, Non-Slip Ergonomic Grip for Adults, Seniors, and Elderly, Vehicle Stand Assist Handle and Rotating Cushioned-Seat" src="https://m.media-amazon.com/images/I/31TvqZGOd2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B019HKASRS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Stander Auto Mobility Combo Pack, Handybar and Swivel Seat Cushion Bundle, Non-Slip Ergonomic Grip for Adults, Seniors, and Elderly, Vehicle Stand Assist Handle and Rotating Cushioned-Seat" src="https://m.media-amazon.com/images/I/31TvqZGOd2L._SL500_.jpg"/></a>
 
 
 The **Stander Auto Mobility Combo Pack** is an ideal solution for **adults, seniors, and elderly** individuals who seek enhanced safety and comfort while entering or exiting vehicles. This bundle, which includes a **Handybar** and a **Swivel Seat Cushion**, is perfect for those who require extra support due to limited mobility, balance issues, or joint pain, helping to maintain independence and confidence during travel.
@@ -226,10 +226,10 @@ The **Stander Auto Mobility Combo Pack** is an ideal solution for **adults, seni
 
 The **Handybar** included in this combo pack is engineered to offer a firm, ergonomic grip, which significantly improves the leverage and stability needed when getting in or out of a car. This feature is especially beneficial for seniors or individuals recovering from surgery who need reliable support to prevent falls. The non-slip design ensures that the bar remains securely in place, providing peace of mind during use.
 
-## <a href="https://www.amazon.com/dp/B0C7ZMFQ2D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ehucon 360 Degree Swivel Seat Cushion For Car</a>
+## <a href="https://www.amazon.com/dp/B0C7ZMFQ2D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ehucon 360 Degree Swivel Seat Cushion For Car</a>
 
 
-<a href="https://www.amazon.com/dp/B0C7ZMFQ2D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Ehucon 360 Degree Swivel Seat Cushion for Car,Rotating Seat Cushion Pivot Disc Pad for Elderly,Swivel Car Seat Chair Assist to Turning Easily from Bed to Wheelchair" src="https://m.media-amazon.com/images/I/31Cb5onr4qL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C7ZMFQ2D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Ehucon 360 Degree Swivel Seat Cushion for Car,Rotating Seat Cushion Pivot Disc Pad for Elderly,Swivel Car Seat Chair Assist to Turning Easily from Bed to Wheelchair" src="https://m.media-amazon.com/images/I/31Cb5onr4qL._SL500_.jpg"/></a>
 
 
 The **Ehucon 360 Degree Swivel Seat Cushion for Car** is ideal for **elderly individuals**, people with limited mobility, or anyone who struggles with twisting and turning while getting in and out of a car or moving between a **bed and wheelchair**. This product is designed to provide effortless rotation, making transfers smoother and safer for users who need extra assistance.
@@ -252,10 +252,10 @@ The **Ehucon swivel seat cushion** features a sturdy pivot disc pad that enables
 
 With this swivel cushion, users gain greater independence and safety during transfers. The simple yet effective mechanism helps elderly and mobility-challenged individuals move more confidently, minimizing the risk of falls or discomfort. Additionally, the cushion's portability means it can be used in various settings, providing versatile support wherever needed.
 
-## <a href="https://www.amazon.com/dp/B0DJMB6J5P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ehucon 360 Degrees Rotating Seat Cushion For Car</a>
+## <a href="https://www.amazon.com/dp/B0DJMB6J5P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ehucon 360 Degrees Rotating Seat Cushion For Car</a>
 
 
-<a href="https://www.amazon.com/dp/B0DJMB6J5P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img src="https://m.media-amazon.com/images/I/31JkAl7zQ7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DJMB6J5P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img src="https://m.media-amazon.com/images/I/31JkAl7zQ7L._SL500_.jpg"/></a>
 
 
 The **Ehucon 360 Degrees Rotating Seat Cushion for Car** is ideal for **elderly individuals** and **adults with limited mobility** who need extra support and ease when getting in and out of vehicles. It is also perfect for anyone seeking enhanced comfort and convenience during car rides or while seated for extended periods.

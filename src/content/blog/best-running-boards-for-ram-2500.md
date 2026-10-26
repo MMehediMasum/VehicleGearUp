@@ -23,10 +23,10 @@ Some boards have textured surfaces for better grip in wet conditions. Choosing t
 
 
 
-## <a href="https://www.amazon.com/dp/B095B7QDV6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tyger Auto 3.5" Rider Running Boards</a>
+## <a href="https://www.amazon.com/dp/B095B7QDV6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tyger Auto 3.5" Rider Running Boards</a>
 
 
-<a href="https://www.amazon.com/dp/B095B7QDV6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Tyger Auto 3.5" src="https://m.media-amazon.com/images/I/41RjCNQHWsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B095B7QDV6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Tyger Auto 3.5" src="https://m.media-amazon.com/images/I/41RjCNQHWsL._SL500_.jpg"/></a>
 
 
 The **Tyger Auto 3.5" Rider Running Boards** are ideal for truck owners who want to enhance both the functionality and appearance of their **Dodge Ram**. Specifically designed for models from **2009-2018 Dodge Ram 1500**, **2010-2025 2500 / 3500**, and **2019-2024 Classic Crew Cab**, these side step rails provide an excellent solution for those who seek easier vehicle access, improved safety, and a rugged style upgrade. If you frequently drive with passengers or need assistance getting in and out of your truck, these running boards are a practical investment.
@@ -48,10 +48,10 @@ The **Tyger Auto 3.5" Rider Running Boards** feature a robust steel construction
 
 Designed with a perfect fit for various **Dodge Ram** models, these side step rails come ready for a straightforward installation process, minimizing hassle and downtime. The 3.5-inch width ensures a secure footing, enhancing overall safety on wet or slippery surfaces. Additionally, the rugged design complements the tough look of your truck, boosting curb appeal while providing practical utility. Whether you’re a daily commuter or an off-road enthusiast, these running boards add both style and function to your vehicle.
 
-## <a href="https://www.amazon.com/dp/B097HB95QZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Comnova 6 Inches Running Boards</a>
+## <a href="https://www.amazon.com/dp/B097HB95QZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Comnova 6 Inches Running Boards</a>
 
 
-<a href="https://www.amazon.com/dp/B097HB95QZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="COMNOVA 6 Inches Running Boards Compatible with 2009-2018 Dodge Ram 1500 Crew Cab(Including 2019-2024 Classic), 2010-2025 Ram 2500 3500, Carbon Steel Side Steps." src="https://m.media-amazon.com/images/I/41tHYks-t3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B097HB95QZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="COMNOVA 6 Inches Running Boards Compatible with 2009-2018 Dodge Ram 1500 Crew Cab(Including 2019-2024 Classic), 2010-2025 Ram 2500 3500, Carbon Steel Side Steps." src="https://m.media-amazon.com/images/I/41tHYks-t3L._SL500_.jpg"/></a>
 
 
 The **COMNOVA 6 Inches Running Boards** are an excellent choice for owners of **2009-2018 Dodge Ram 1500 Crew Cab** (including the **2019-2024 Classic** models), as well as **2010-2025 Ram 2500** and **3500** trucks. These side steps are ideal for drivers seeking enhanced vehicle accessibility, added safety, and a stylish upgrade to their trucks. If you frequently enter and exit your truck or require additional support for passengers, these running boards offer a practical and durable solution.
@@ -74,10 +74,10 @@ These **COMNOVA running boards** are engineered with precision to perfectly fit 
 
 Beyond functionality, the running boards feature a sleek **stainless steel finish** that elevates the aesthetic appeal of your truck, giving it a rugged yet refined look. Installation is straightforward with the included hardware, allowing for a secure and stable attachment. For truck owners who value both style and practicality, these side steps provide an excellent balance of performance, durability, and design.
 
-## <a href="https://www.amazon.com/dp/B0DCFTYTYV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">6 Inches Running Boards Side Steps Compatible With Dodge Ram Crew Cab 1500 2009-2024, 2500 3500 2010-2024 Black Textured Aluminum Nerf Bars</a>
+## <a href="https://www.amazon.com/dp/B0DCFTYTYV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">6 Inches Running Boards Side Steps Compatible With Dodge Ram Crew Cab 1500 2009-2024, 2500 3500 2010-2024 Black Textured Aluminum Nerf Bars</a>
 
 
-<a href="https://www.amazon.com/dp/B0DCFTYTYV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="6 Inches Running Boards Side Steps Compatible with Dodge Ram Crew Cab 1500 2009-2024(19-24 Classic ONLY), 2500 3500 2010-2024, Black Textured Aluminum Nerf Bars" src="https://m.media-amazon.com/images/I/41GgVccMRcL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DCFTYTYV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="6 Inches Running Boards Side Steps Compatible with Dodge Ram Crew Cab 1500 2009-2024(19-24 Classic ONLY), 2500 3500 2010-2024, Black Textured Aluminum Nerf Bars" src="https://m.media-amazon.com/images/I/41GgVccMRcL._SL500_.jpg"/></a>
 
 
 The **6 Inches Running Boards Side Steps** are ideal for owners of **Dodge Ram Crew Cab 1500 (2009-2024, 19-24 Classic ONLY)**, **2500**, and **3500 models (2010-2024)** who are looking to enhance both the functionality and aesthetics of their trucks. If you want easier access to your vehicle, especially for passengers or when loading gear, and prefer durable, stylish side steps, this product is a perfect fit. It is especially suitable for those who frequently use their truck for work or recreation and desire added convenience and safety.
@@ -99,10 +99,10 @@ These **running boards side steps** are crafted from high-quality **black textur
 
 Designed specifically for the **Dodge Ram Crew Cab 1500, 2500, and 3500** models within the specified years, these side steps fit seamlessly without modifications. This compatibility ensures a secure installation and maintains the vehicle’s structural integrity. Additionally, the textured finish improves grip, reducing the risk of slipping, while the sleek black aluminum complements the truck’s exterior aesthetics, adding a customized, professional touch to your ride.
 
-## <a href="https://www.amazon.com/dp/B09NNJ194T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Smanow Drop Down Running Boards Compatible With Ram 1500/2500/3500 Crew Cab</a>
+## <a href="https://www.amazon.com/dp/B09NNJ194T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Smanow Drop Down Running Boards Compatible With Ram 1500/2500/3500 Crew Cab</a>
 
 
-<a href="https://www.amazon.com/dp/B09NNJ194T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SMANOW Drop Down Running Boards Compatible with 09-18 Ram 1500/10-25 Ram 2500 3500 Crew Cab(Incl 19-24 Classic), Dual-Stage Textured Black Powder Coated, 82 Inch Door Step Side Step Step Bars." src="https://m.media-amazon.com/images/I/51l+vWcIPgL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09NNJ194T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SMANOW Drop Down Running Boards Compatible with 09-18 Ram 1500/10-25 Ram 2500 3500 Crew Cab(Incl 19-24 Classic), Dual-Stage Textured Black Powder Coated, 82 Inch Door Step Side Step Step Bars." src="https://m.media-amazon.com/images/I/51l+vWcIPgL._SL500_.jpg"/></a>
 
 
 The **SMANOW Drop Down Running Boards** are ideal for owners of **09-18 Ram 1500** and **10-25 Ram 2500 3500 Crew Cab** trucks, including the **19-24 Classic** models, who are looking to enhance both the functionality and style of their vehicle. These running boards are perfect for drivers seeking easier access to their trucks, especially for families, outdoor enthusiasts, or anyone who frequently uses their truck for work or leisure.
@@ -124,10 +124,10 @@ The **SMANOW Drop Down Running Boards** feature a robust construction that ensur
 
 Additionally, the generous **83-inch length** provides a wide stepping surface, making it easier and safer for passengers to enter and exit the vehicle. This is particularly beneficial for children, elderly passengers, or those carrying heavy loads. By installing these running boards, users can improve the overall convenience and utility of their Ram trucks while enhancing their vehicle’s rugged and polished appearance.
 
-## <a href="https://www.amazon.com/dp/B0D6KG6RYX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Yzona Crew Cab Running Boards</a>
+## <a href="https://www.amazon.com/dp/B0D6KG6RYX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Yzona Crew Cab Running Boards</a>
 
 
-<a href="https://www.amazon.com/dp/B0D6KG6RYX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="YZONA Crew Cab Running Boards Compatible for 2009-2018 Dodge Ram 1500, 2019-2024 1500 Classic, 2010-2024 Ram 2500 &amp; 3500 CrewCab Side Steps, Bolt-on Nerf Bar, Heavy-Duty Steel Two Stairs Design" src="https://m.media-amazon.com/images/I/41gE-i9FJDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D6KG6RYX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="YZONA Crew Cab Running Boards Compatible for 2009-2018 Dodge Ram 1500, 2019-2024 1500 Classic, 2010-2024 Ram 2500 &amp; 3500 CrewCab Side Steps, Bolt-on Nerf Bar, Heavy-Duty Steel Two Stairs Design" src="https://m.media-amazon.com/images/I/41gE-i9FJDL._SL500_.jpg"/></a>
 
 
 The **YZONA Crew Cab Running Boards** are ideal for truck owners who drive a **2009-2018 Dodge Ram 1500**, **2019-2024 1500 Classic**, or **2010-2024 Ram 2500 & 3500 CrewCab** models and are looking to enhance both the functionality and appearance of their vehicle. These running boards cater especially to those who need a sturdy, reliable step solution for easier access to their truck, whether for daily commuting or work-related tasks.
@@ -149,10 +149,10 @@ The **YZONA Crew Cab Running Boards** are engineered with **heavy-duty steel**, 
 
 Beyond functionality, these running boards also enhance the truck’s appearance with their distinctive **Willow Leaf - Red** finish, adding a touch of style and personality. Their compatibility across several Dodge Ram models makes them a versatile choice for many owners looking to upgrade their vehicle’s side steps. Overall, the combination of strength, safety, and style makes these running boards a valuable accessory for Dodge Ram truck enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B0F21NVP5B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Pz 6 Inches Running Boards Compatible With Dodge Ram 1500 Crew Cab And Ram 2500 3500</a>
+## <a href="https://www.amazon.com/dp/B0F21NVP5B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Pz 6 Inches Running Boards Compatible With Dodge Ram 1500 Crew Cab And Ram 2500 3500</a>
 
 
-<a href="https://www.amazon.com/dp/B0F21NVP5B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PZ 6 Inches Running Boards Compatible with 2009-2018 Dodge Ram 1500 Crew Cab(Including 2019-2024 1500 Classic), 2010-2024 Ram 2500 3500 Black Aluminum Alloy Truck Side Step Nerf Bar" src="https://m.media-amazon.com/images/I/41hZLunRXpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F21NVP5B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PZ 6 Inches Running Boards Compatible with 2009-2018 Dodge Ram 1500 Crew Cab(Including 2019-2024 1500 Classic), 2010-2024 Ram 2500 3500 Black Aluminum Alloy Truck Side Step Nerf Bar" src="https://m.media-amazon.com/images/I/41hZLunRXpL._SL500_.jpg"/></a>
 
 
 The **PZ 6 Inches Running Boards** are ideal for owners of **2009-2018 Dodge Ram 1500 Crew Cab** models, including the **2019-2024 1500 Classic**, as well as **2010-2024 Ram 2500 and 3500** trucks who seek both functionality and style. These running boards are perfect for drivers looking to enhance the accessibility of their trucks, especially for easier entry and exit, while also adding a sleek, durable side step that complements the vehicle’s rugged appearance.
@@ -175,10 +175,10 @@ The **PZ 6 Inches Running Boards** combine robust construction with practical de
 
 Beyond functionality, these running boards elevate the overall look of your Dodge Ram by adding a sleek, stylish element that complements the truck’s tough exterior. Their compatibility across multiple model years ensures that many Ram owners can enjoy these benefits without worrying about fit issues. Whether you’re using your truck for work or leisure, these running boards offer a blend of practicality and style that enhances your vehicle’s usability and curb appeal.
 
-## <a href="https://www.amazon.com/dp/B0FFB1X5WT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tnmt 6" Running Boards</a>
+## <a href="https://www.amazon.com/dp/B0FFB1X5WT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tnmt 6" Running Boards</a>
 
 
-<a href="https://www.amazon.com/dp/B0FFB1X5WT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="TNMT 6" src="https://m.media-amazon.com/images/I/41ZTHexrRUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FFB1X5WT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="TNMT 6" src="https://m.media-amazon.com/images/I/41ZTHexrRUL._SL500_.jpg"/></a>
 
 
 The **TNMT 6" Running Boards** are perfect for truck owners who prioritize both functionality and style. **Dodge Ram 2500 and 3500 Crew Cab** drivers who frequently step in and out of their trucks will find these **side step rails** particularly beneficial. They are also ideal for those who want to enhance the appearance of their vehicle with a sleek, **black aluminum alloy** finish.
@@ -199,10 +199,10 @@ The **TNMT 6" Running Boards** are crafted with **precision** to ensure they fit
 
 Beyond aesthetics and safety, these running boards are designed for **easy installation**, meaning you can quickly upgrade your truck without needing professional help. This convenience is a huge bonus for DIY enthusiasts. The boards' **sturdy construction** offers peace of mind, knowing they can handle frequent use without compromising on performance.
 
-## <a href="https://www.amazon.com/dp/B0C76LHYZC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tyger Auto Landerx Running Board</a>
+## <a href="https://www.amazon.com/dp/B0C76LHYZC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tyger Auto Landerx Running Board</a>
 
 
-<a href="https://www.amazon.com/dp/B0C76LHYZC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Tyger Auto LanderX Running Board Compatible with 2009-2018 Dodge Ram 1500; 2010-2025 2500 3500; 2019-2024 Classic | Crew Cab | TG-LX3D82348 | Drop Step Side Step Rail Nerf Bars" src="https://m.media-amazon.com/images/I/415zzKWI-CL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C76LHYZC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Tyger Auto LanderX Running Board Compatible with 2009-2018 Dodge Ram 1500; 2010-2025 2500 3500; 2019-2024 Classic | Crew Cab | TG-LX3D82348 | Drop Step Side Step Rail Nerf Bars" src="https://m.media-amazon.com/images/I/415zzKWI-CL._SL500_.jpg"/></a>
 
 
 The **Tyger Auto LanderX Running Board** is ideal for truck owners who drive a **Dodge Ram 1500, 2500, or 3500** from model years **2009 to 2025** and need a durable, stylish, and functional side step. This product is perfect for those who frequently enter and exit their **Crew Cab** trucks and desire enhanced safety and convenience. Whether you use your vehicle for work, off-roading, or everyday commuting, this running board adds both practicality and a sleek look.
@@ -225,10 +225,10 @@ The **Tyger Auto LanderX Running Board** combines robust construction with a fun
 
 Manufactured by **Tyger Auto**, this running board is built with precision to fit specific model years, ensuring a seamless fit and easy integration with your truck's existing design. The dimensions provide ample space for foot placement, while the textured black color complements the rugged style of Dodge Ram trucks. Overall, the **TG-LX3D82348** model is an excellent upgrade for anyone looking to boost their vehicle's functionality and style.
 
-## <a href="https://www.amazon.com/dp/B0F7WYNC4C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Pz 6" Side Steps For Dodge Ram 2500/3500 Crew Cab</a>
+## <a href="https://www.amazon.com/dp/B0F7WYNC4C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Pz 6" Side Steps For Dodge Ram 2500/3500 Crew Cab</a>
 
 
-<a href="https://www.amazon.com/dp/B0F7WYNC4C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PZ 6" src="https://m.media-amazon.com/images/I/41IudEDLCyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F7WYNC4C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PZ 6" src="https://m.media-amazon.com/images/I/41IudEDLCyL._SL500_.jpg"/></a>
 
 
 The **PZ 6" Side Steps** are ideal for truck owners looking to enhance both the functionality and appearance of their **Dodge Ram 2500 or 3500 Crew Cab** models from **2010 to 2024**. If you need durable, easy-to-install running boards that provide safer entry and exit while complementing the rugged style of your truck, these side steps are a perfect choice. They are especially suitable for drivers who often transport passengers or carry heavy loads and require sturdy support when getting in and out of the vehicle.
@@ -251,10 +251,10 @@ The **PZ 6" Side Steps** feature a robust **carbon steel construction** that ens
 
 Additionally, the precise fitment for **2010-2024 Dodge Ram 2500 and 3500 Crew Cab** models guarantees easy installation and seamless integration with your vehicle’s design. The ample dimensions ensure that passengers of all sizes can step comfortably and safely, reducing the risk of slips or falls. Overall, these side steps improve accessibility, enhance truck appearance, and offer a durable solution that withstands daily wear and tear.
 
-## <a href="https://www.amazon.com/dp/B0F9XZXXB4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Kyx Running Boards For Ram 1500, 2500, 3500 Crew Cab Side Steps Nerf Bars Truck Step Rails</a>
+## <a href="https://www.amazon.com/dp/B0F9XZXXB4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Kyx Running Boards For Ram 1500, 2500, 3500 Crew Cab Side Steps Nerf Bars Truck Step Rails</a>
 
 
-<a href="https://www.amazon.com/dp/B0F9XZXXB4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="KYX Running Boards for 2009-2018 Ram 1500/2010-2025 Ram 2500 3500 Crew Cab &amp; 2019-2024 1500 Classic Side Steps Nerf Bars Truck Step Rails 6 inches" src="https://m.media-amazon.com/images/I/416jY+vWTZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F9XZXXB4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="KYX Running Boards for 2009-2018 Ram 1500/2010-2025 Ram 2500 3500 Crew Cab &amp; 2019-2024 1500 Classic Side Steps Nerf Bars Truck Step Rails 6 inches" src="https://m.media-amazon.com/images/I/416jY+vWTZL._SL500_.jpg"/></a>
 
 
 The **KYX Running Boards** are ideal for truck owners who drive a **2009-2018 Ram 1500**, **2010-2025 Ram 2500**, **3500 Crew Cab**, or **2019-2024 1500 Classic**. These side steps are perfect for those seeking enhanced vehicle accessibility, especially for passengers who find it challenging to enter and exit taller trucks. Additionally, outdoor enthusiasts and work professionals who require sturdy, reliable steps for frequent truck use will benefit greatly from these durable **nerf bars**.

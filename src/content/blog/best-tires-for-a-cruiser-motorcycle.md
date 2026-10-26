@@ -23,10 +23,10 @@ Kenda Cruiser K671 and Pirelli Angel ST also deliver reliable performance for st
 
 
 
-## <a href="https://www.amazon.com/dp/B001CD6U7G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop Harley Davidson D402 Front Tire</a>
+## <a href="https://www.amazon.com/dp/B001CD6U7G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop Harley Davidson D402 Front Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B001CD6U7G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop Harley Davidson D402 Front Tire (Single / MT90B-16)" src="https://m.media-amazon.com/images/I/41XKC3iQ9gL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B001CD6U7G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop Harley Davidson D402 Front Tire (Single / MT90B-16)" src="https://m.media-amazon.com/images/I/41XKC3iQ9gL._SL500_.jpg"/></a>
 
 
 The **Dunlop Harley Davidson D402 Front Tire (Single / MT90B-16)** is ideal for motorcycle enthusiasts who own Harley Davidson bikes and seek a reliable, high-performance front tire. This tire is perfect for riders who prioritize durability, excellent road grip, and enhanced safety on various riding conditions. If you want to improve your motorcycle's handling and stability while maintaining the authentic Harley Davidson look, this tire is a great choice.
@@ -49,10 +49,10 @@ The **Dunlop Harley Davidson D402 Front Tire** boasts a robust design tailored t
 
 Thanks to Dunlop's innovative technology, this tire effectively disperses water to reduce hydroplaning risks, making it safer for wet weather conditions. Additionally, its weight of 16.0 pounds strikes a balance between durability and agility, allowing for easier handling and better fuel efficiency. Overall, the D402 front tire is designed to complement the power and style of Harley Davidson motorcycles, delivering a reliable and enjoyable riding experience for enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B00T6J6FXM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shinko Black Wall Sr777 &amp; Sr777 H.d. Tire</a>
+## <a href="https://www.amazon.com/dp/B00T6J6FXM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shinko Black Wall Sr777 &amp; Sr777 H.d. Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B00T6J6FXM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Shinko 87-4599 Black Wall SR777 &amp; SR777 H.D. Tire" src="https://m.media-amazon.com/images/I/3114jxYgtYL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00T6J6FXM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Shinko 87-4599 Black Wall SR777 &amp; SR777 H.D. Tire" src="https://m.media-amazon.com/images/I/3114jxYgtYL._SL500_.jpg"/></a>
 
 
 The **Shinko 87-4599 Black Wall SR777 & SR777 H.D. Tire** is ideal for motorcycle enthusiasts seeking reliable performance and durability. This tire is perfect for riders who prioritize a balance of longevity, grip, and comfort on various road conditions, making it an excellent choice for daily commuters and long-distance travelers alike.
@@ -75,10 +75,10 @@ The **Shinko 87-4599 Black Wall SR777 & SR777 H.D. Tire** features a robust buil
 
 In addition to performance, the tire's construction focuses on rider comfort by minimizing road noise and vibrations. This results in a smoother riding experience, particularly on longer trips. Manufactured by **Shinko**, a trusted name in motorcycle tires, the SR777 model stands out for its balance between quality and affordability, making it a practical choice for riders who want dependable performance without breaking the bank.
 
-## <a href="https://www.amazon.com/dp/B086GT78NX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop D404 Metric Cruiser Front Tire</a>
+## <a href="https://www.amazon.com/dp/B086GT78NX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop D404 Metric Cruiser Front Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B086GT78NX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop D404 Metric Cruiser Front Tire - 130/90-16" src="https://m.media-amazon.com/images/I/41MsjD9wEkL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B086GT78NX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop D404 Metric Cruiser Front Tire - 130/90-16" src="https://m.media-amazon.com/images/I/41MsjD9wEkL._SL500_.jpg"/></a>
 
 
 The **Dunlop D404 Metric Cruiser Front Tire** is an ideal choice for motorcycle enthusiasts who seek both performance and reliability. Designed for cruiser bikes, this tire is perfect for riders who frequently embark on long road trips or commute daily. Its robust construction and superior design ensure a smooth and safe ride, making it a must-have for those who prioritize safety without compromising on style.
@@ -98,10 +98,10 @@ The **Dunlop D404 Metric Cruiser Front Tire** boasts a range of features designe
 
 Another standout feature of the **Dunlop D404** is its superior traction. The tire's tread pattern is engineered to offer **excellent grip** on various road surfaces, significantly reducing the risk of slips or skids. This makes it particularly beneficial for riders who frequently encounter wet or uneven terrains. Additionally, the tire's **durability** means fewer replacements, offering great value for money over time.
 
-## <a href="https://www.amazon.com/dp/B000GZDUHO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop D404 Rear Motorcycle Tire</a>
+## <a href="https://www.amazon.com/dp/B000GZDUHO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop D404 Rear Motorcycle Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B000GZDUHO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop D404 Rear Motorcycle Tire 170/80-15 (77H) Black Wall" src="https://m.media-amazon.com/images/I/418NtL+VndL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000GZDUHO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop D404 Rear Motorcycle Tire 170/80-15 (77H) Black Wall" src="https://m.media-amazon.com/images/I/418NtL+VndL._SL500_.jpg"/></a>
 
 
 The **Dunlop D404 Rear Motorcycle Tire 170/80-15 (77H) Black Wall** is ideal for motorcycle enthusiasts who seek reliable performance and durability for their cruiser or touring bikes. This tire is perfect for riders who value a smooth ride, excellent traction, and long-lasting wear, making it suitable for both daily commuting and weekend adventures.
@@ -124,10 +124,10 @@ The **Dunlop D404 Rear Motorcycle Tire** features a robust design from the trust
 
 With a height of 6.0 inches and width of 24.8 inches, this tire maintains a solid footprint on the road, contributing to improved traction and control. The **Black Wall** color option adds a sleek and timeless look to your bike, complementing its overall style. Overall, the Dunlop D404 tire delivers dependable performance, making it a smart investment for riders looking to upgrade their rear tire with a product that combines durability, safety, and style.
 
-## <a href="https://www.amazon.com/dp/B00T6J65HS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shinko 87-4594 777 Rear H.d. Motorcycle Tire</a>
+## <a href="https://www.amazon.com/dp/B00T6J65HS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shinko 87-4594 777 Rear H.d. Motorcycle Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B00T6J65HS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Shinko 87-4594 777 Rear H.D. Motorcycle Tire 130/90b-16 (73H) Black Wall" src="https://m.media-amazon.com/images/I/3114jxYgtYL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00T6J65HS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Shinko 87-4594 777 Rear H.D. Motorcycle Tire 130/90b-16 (73H) Black Wall" src="https://m.media-amazon.com/images/I/3114jxYgtYL._SL500_.jpg"/></a>
 
 
 The **Shinko 87-4594 777 Rear H.D. Motorcycle Tire 130/90b-16 (73H) Black Wall** is ideal for motorcycle riders who prioritize durability and reliable performance for their rear tires. This tire is perfect for those who use their bikes for both daily commuting and long-distance rides, especially riders looking for a heavy-duty tire that can handle various road conditions with ease.
@@ -149,10 +149,10 @@ The **Shinko 87-4594 777 Rear H.D. Motorcycle Tire** features a robust construct
 
 Additionally, the tire’s dimensions and weight are optimized to deliver a balance between durability and ease of handling. Its design helps improve traction and stability, which benefits riders by enhancing control during cornering and braking. Overall, the Shinko 87-4594 777 tire offers a dependable option for motorcyclists seeking a quality rear tire that combines performance, style, and resilience.
 
-## <a href="https://www.amazon.com/dp/B005D2CPR6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kenda Cruiser K671 Motorcycle Street Tire</a>
+## <a href="https://www.amazon.com/dp/B005D2CPR6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kenda Cruiser K671 Motorcycle Street Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B005D2CPR6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kenda Cruiser K671 Motorcycle Street Tire - 170/80H-15" src="https://m.media-amazon.com/images/I/41bc5oRQZTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B005D2CPR6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kenda Cruiser K671 Motorcycle Street Tire - 170/80H-15" src="https://m.media-amazon.com/images/I/41bc5oRQZTL._SL500_.jpg"/></a>
 
 
 The **Kenda Cruiser K671 Motorcycle Street Tire - 170/80H-15** is ideal for motorcycle enthusiasts who prioritize durability and reliable street performance. This tire is perfect for riders of cruiser motorcycles who seek a smooth and stable ride on urban roads and highways, making it a great choice for daily commuting or long-distance cruising.
@@ -175,10 +175,10 @@ The **Kenda Cruiser K671** tire features a robust design tailored to meet the de
 
 Beyond its technical specifications, the tire's construction utilizes quality materials from the trusted **Kenda brand**, known for manufacturing reliable motorcycle components. This results in a tire that not only withstands wear and tear but also contributes to a smoother ride by absorbing minor road imperfections. For cruiser riders looking to upgrade their street tires, the Kenda Cruiser K671 offers an excellent combination of performance, durability, and comfort.
 
-## <a href="https://www.amazon.com/dp/B005J882JO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Michelin Commander Ii Reinforced Motorcycle Tire Cruiser Rear</a>
+## <a href="https://www.amazon.com/dp/B005J882JO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Michelin Commander Ii Reinforced Motorcycle Tire Cruiser Rear</a>
 
 
-<a href="https://www.amazon.com/dp/B005J882JO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Michelin Commander II Reinforced Motorcycle Tire Cruiser Rear - 150/80-16" src="https://m.media-amazon.com/images/I/318ntgXu8wL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B005J882JO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Michelin Commander II Reinforced Motorcycle Tire Cruiser Rear - 150/80-16" src="https://m.media-amazon.com/images/I/318ntgXu8wL._SL500_.jpg"/></a>
 
 
 The **Michelin Commander II Reinforced Motorcycle Tire Cruiser Rear - 150/80-16** is ideal for cruiser motorcycle riders seeking enhanced durability, superior grip, and long-lasting performance. If you prioritize safety, ride frequently on highways or urban roads, and want a tire that offers excellent stability and comfort, this tire is a perfect fit. It is especially suitable for riders who demand reliability under various weather conditions and want to maximize their tire lifespan without compromising on handling.
@@ -201,10 +201,10 @@ The **Michelin Commander II Reinforced Motorcycle Tire** features a robust desig
 
 Additionally, the tire’s dimensions—approximately 18.9 inches in height and length, and 3.54 inches in width—are optimized for cruiser rear wheels, contributing to smooth handling and stability. Weighing just over 13 pounds, it balances durability without adding unnecessary weight, thus enhancing fuel efficiency and overall bike performance. Riders will appreciate the comfortable ride quality that minimizes vibration and road noise, allowing for a more enjoyable and less fatiguing journey.
 
-## <a href="https://www.amazon.com/dp/B00T6J6C2G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shinko Sr777 Hd Black Wall Bias Rear Tire</a>
+## <a href="https://www.amazon.com/dp/B00T6J6C2G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shinko Sr777 Hd Black Wall Bias Rear Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B00T6J6C2G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Shinko SR777 HD Black Wall Bias Rear Tire - 150/80B16 77H" src="https://m.media-amazon.com/images/I/3114jxYgtYL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00T6J6C2G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Shinko SR777 HD Black Wall Bias Rear Tire - 150/80B16 77H" src="https://m.media-amazon.com/images/I/3114jxYgtYL._SL500_.jpg"/></a>
 
 
 The **Shinko SR777 HD Black Wall Bias Rear Tire - 150/80B16 77H** is ideal for motorcycle riders seeking a reliable and durable rear tire that offers excellent performance on various road conditions. This tire is perfect for those who prioritize both safety and style, especially riders who want a classic black wall design paired with robust construction for long-lasting use.
@@ -226,10 +226,10 @@ The **Shinko SR777 HD** rear tire features a sturdy bias ply construction that e
 
 With a height of 6.0 inches and width of 25.0 inches, the tire provides a balanced footprint that promotes excellent traction and road grip, which translates to safer rides. Weighing just 1.4 pounds, this lightweight tire contributes to improved handling and maneuverability, especially in urban and highway riding conditions. Overall, the Shinko SR777 HD is a dependable choice for riders seeking a blend of performance, style, and durability.
 
-## <a href="https://www.amazon.com/dp/B00T6J6DWU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shinko Sr777 Hd White Wall Bias Rear Tire</a>
+## <a href="https://www.amazon.com/dp/B00T6J6DWU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shinko Sr777 Hd White Wall Bias Rear Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B00T6J6DWU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Shinko SR777 HD White Wall Bias Rear Tire - 150/80B16 77H" src="https://m.media-amazon.com/images/I/41fdqzaEpyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00T6J6DWU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Shinko SR777 HD White Wall Bias Rear Tire - 150/80B16 77H" src="https://m.media-amazon.com/images/I/41fdqzaEpyL._SL500_.jpg"/></a>
 
 
 The **Shinko SR777 HD White Wall Bias Rear Tire - 150/80B16 77H** is ideal for motorcycle enthusiasts who value a blend of classic style and reliable performance. Perfect for riders looking to enhance the aesthetic appeal of their bike with a distinctive white wall design while still maintaining strong traction and durability. This tire suits those who prioritize both appearance and safety on their daily commutes or weekend rides.
@@ -252,10 +252,10 @@ The **Shinko SR777 HD White Wall Bias Rear Tire** features a sturdy construction
 
 In addition to its aesthetic appeal, this tire is engineered to offer balanced traction on various surfaces, making it a dependable choice for riders who encounter different weather and road conditions. The white wall element not only adds to the bike’s vintage charm but also makes a bold style statement, attracting riders who want their motorcycle to stand out. Overall, the Shinko SR777 HD combines functionality with style, making it a smart investment for riders seeking a dependable rear tire that complements their motorcycle’s classic look.
 
-## <a href="https://www.amazon.com/dp/B07K8R48R2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pirelli Angel St Motorcycle Tires</a>
+## <a href="https://www.amazon.com/dp/B07K8R48R2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pirelli Angel St Motorcycle Tires</a>
 
 
-<a href="https://www.amazon.com/dp/B07K8R48R2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pirelli Angel ST 120/70ZR17 (58W) Front &amp; 180/55ZR17 (73W) Rear Motorcycle Tires – High-Performance Sport Touring Tire for Enhanced Grip, Durability &amp; Stability – Fits Sport &amp; Touring Bikes" src="https://m.media-amazon.com/images/I/41SiYUGeO6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07K8R48R2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pirelli Angel ST 120/70ZR17 (58W) Front &amp; 180/55ZR17 (73W) Rear Motorcycle Tires – High-Performance Sport Touring Tire for Enhanced Grip, Durability &amp; Stability – Fits Sport &amp; Touring Bikes" src="https://m.media-amazon.com/images/I/41SiYUGeO6L._SL500_.jpg"/></a>
 
 
 The **Pirelli Angel ST 120/70ZR17 (58W) Front & 180/55ZR17 (73W) Rear Motorcycle Tires** are ideal for riders who own **sport and touring bikes** and seek a perfect balance between performance and longevity. These tires are designed for motorcycle enthusiasts who prioritize **enhanced grip, durability, and stability** on both city streets and long-distance rides, making them a great choice for those who want reliable, high-performance sport touring tires.

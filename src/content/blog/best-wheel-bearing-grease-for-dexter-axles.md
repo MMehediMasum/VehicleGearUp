@@ -23,10 +23,10 @@ They provide reliable protection for axles rated from 2000 to 8000 pounds. Keepi
 
 
 
-## <a href="https://www.amazon.com/dp/B09QC9QRNJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ibroprat 2pcs Trailer Axle Dust Cap Cup</a>
+## <a href="https://www.amazon.com/dp/B09QC9QRNJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ibroprat 2pcs Trailer Axle Dust Cap Cup</a>
 
 
-<a href="https://www.amazon.com/dp/B09QC9QRNJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="iBroPrat 2pcs Trailer Axle Dust Cap Cup Grease Cover 1.98" src="https://m.media-amazon.com/images/I/41ID7eSxnpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09QC9QRNJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="iBroPrat 2pcs Trailer Axle Dust Cap Cup Grease Cover 1.98" src="https://m.media-amazon.com/images/I/41ID7eSxnpL._SL500_.jpg"/></a>
 
 
 The **iBroPrat 2pcs Trailer Axle Dust Cap Cup Grease Cover 1.98" Hub** is ideal for trailer owners and DIY enthusiasts who want to maintain and protect their trailer axle components. Specifically designed for those with trailers carrying between 2000 to 3500 pounds, this product is perfect for users looking to safeguard their **trailer axle wheel hubs and bearings** from dust, dirt, and moisture, ensuring longevity and smooth operation.
@@ -48,10 +48,10 @@ The **iBroPrat Trailer Axle Dust Cap** is designed to fit securely on hubs measu
 
 Constructed with durability in mind, these grease covers are manufactured by **iBroPrat**, a brand known for its reliable trailer accessories. The product's compatibility with most Dexter axles within the specified weight range makes it a versatile choice for a wide range of trailer owners. By investing in these dust caps, users can extend the lifespan of their axle components while reducing maintenance costs over time.
 
-## <a href="https://www.amazon.com/dp/B0CF9JV1PN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">4pcs Trailer Axle Hub Wheel Grease Seals With 4pcs Cotter Pins</a>
+## <a href="https://www.amazon.com/dp/B0CF9JV1PN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">4pcs Trailer Axle Hub Wheel Grease Seals With 4pcs Cotter Pins</a>
 
 
-<a href="https://www.amazon.com/dp/B0CF9JV1PN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="4Pcs Trailer Axle Hub Wheel Grease Seals with 4Pcs Cotter Pins Replace for Dexter 010-019-00 (10-19) Transcom 171255TB National 473336, ID 1.719'' x OD 2.565'' Double Lip Seals, 3500 lbs #84 Spindle" src="https://m.media-amazon.com/images/I/51kffWvM3wL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CF9JV1PN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="4Pcs Trailer Axle Hub Wheel Grease Seals with 4Pcs Cotter Pins Replace for Dexter 010-019-00 (10-19) Transcom 171255TB National 473336, ID 1.719'' x OD 2.565'' Double Lip Seals, 3500 lbs #84 Spindle" src="https://m.media-amazon.com/images/I/51kffWvM3wL._SL500_.jpg"/></a>
 
 
 The **4Pcs Trailer Axle Hub Wheel Grease Seals with 4Pcs Cotter Pins** are ideal for trailer owners and mechanics seeking a reliable replacement for worn or damaged seals. Specifically designed for compatibility with **Dexter 010-019-00 (10-19)**, **Transcom 171255TB**, and **National 473336** hubs, these seals are perfect for those maintaining trailers with a **3500 lbs #84 spindle**. If you need durable, high-quality grease seals to ensure smooth wheel operation and prevent grease leakage, this product is a great choice.
@@ -73,10 +73,10 @@ These **trailer axle hub wheel grease seals** are engineered to provide a robust
 
 Additionally, the included **cotter pins** offer secure locking for the axle components, ensuring safety and stability during trailer operation. Manufactured by **TiciKim**, these seals meet rigorous quality standards, providing confidence in their durability and performance. Whether you're replacing old, worn seals or performing preventative maintenance, this set offers an efficient and reliable solution tailored for trailers with the specified spindle and hub models.
 
-## <a href="https://www.amazon.com/dp/B0BTD8HLGN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Grepspud Trailer Axle Hub Wheel Grease Seals</a>
+## <a href="https://www.amazon.com/dp/B0BTD8HLGN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Grepspud Trailer Axle Hub Wheel Grease Seals</a>
 
 
-<a href="https://www.amazon.com/dp/B0BTD8HLGN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GREPSPUD 4pcs Trailer Axle Hub Wheel Grease Seals 1.719''I.D x 2.565''O.D with 4pcs Cotter Pins for Dexter 010-019-00 (10-19) Transcom 171255TB National 473336, 3500 lbs #84 Spindle E-Z Lube Axles" src="https://m.media-amazon.com/images/I/41tPNbNT-cL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BTD8HLGN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GREPSPUD 4pcs Trailer Axle Hub Wheel Grease Seals 1.719''I.D x 2.565''O.D with 4pcs Cotter Pins for Dexter 010-019-00 (10-19) Transcom 171255TB National 473336, 3500 lbs #84 Spindle E-Z Lube Axles" src="https://m.media-amazon.com/images/I/41tPNbNT-cL._SL500_.jpg"/></a>
 
 
 The **GREPSPUD 4pcs Trailer Axle Hub Wheel Grease Seals** are ideal for trailer owners and mechanics who require reliable and durable sealing solutions for their trailer axles. If you own a trailer with **Dexter 010-019-00 (10-19)** or compatible axles such as **Transcom 171255TB** or **National 473336**, and are looking to maintain optimal performance and prevent grease leakage, this kit is perfect for you.
@@ -98,10 +98,10 @@ The **GREPSPUD Trailer Axle Hub Wheel Grease Seals** feature high-quality materi
 
 With compatibility for well-known axle models such as **Dexter 010-019-00** and **E-Z Lube** axles, this kit offers a convenient solution for trailer maintenance. Its precise sizing guarantees a snug fit, which is crucial for maintaining the integrity of the axle system under heavy loads up to **3500 lbs**. Overall, this product provides trailer owners with peace of mind through improved axle performance and durability.
 
-## <a href="https://www.amazon.com/dp/B0DWDDPYX1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">4 Pack Trailer Hub Cap Dust Cap Rubber Grease Plugs</a>
+## <a href="https://www.amazon.com/dp/B0DWDDPYX1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">4 Pack Trailer Hub Cap Dust Cap Rubber Grease Plugs</a>
 
 
-<a href="https://www.amazon.com/dp/B0DWDDPYX1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="4 Pack Trailer Hub Cap Dust Cap Rubber Grease Plugs for Dexter Axle Dexter Ez Lube 85-1 Cap Camper Trailer Wheel Grease Caps Fits Dexter Lube Hub Bearing Rubber Caps Trailer Dust Plug (Black)" src="https://m.media-amazon.com/images/I/41F2JiCX0+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DWDDPYX1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="4 Pack Trailer Hub Cap Dust Cap Rubber Grease Plugs for Dexter Axle Dexter Ez Lube 85-1 Cap Camper Trailer Wheel Grease Caps Fits Dexter Lube Hub Bearing Rubber Caps Trailer Dust Plug (Black)" src="https://m.media-amazon.com/images/I/41F2JiCX0+L._SL500_.jpg"/></a>
 
 
 The **ideal customer** for the **4 Pack Trailer Hub Cap Dust Cap Rubber Grease Plugs** is someone who owns or maintains a **camper trailer** or any vehicle with a **Dexter Axle**. These individuals are often looking for reliable and efficient ways to protect their **wheel bearings** from dirt, dust, and water, ensuring longevity and smooth operation. Whether you are a seasoned traveler or someone who frequently transports heavy loads, these **grease caps** are essential for maintaining your vehicle's performance.
@@ -122,10 +122,10 @@ The **4 Pack Trailer Hub Cap Dust Cap Rubber Grease Plugs** are designed with pr
 
 Moreover, the **ease of installation** makes these **grease plugs** a convenient choice for both DIY enthusiasts and professional mechanics. The **cost-effectiveness** of purchasing a **4 pack** ensures that you always have spares on hand, minimizing downtime for maintenance. While the product is designed specifically for **Dexter Axles**, it offers unparalleled protection and peace of mind for trailer owners who prioritize maintaining their vehicle’s performance and safety.
 
-## <a href="https://www.amazon.com/dp/B0C5HWKN6T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Trailer Axle Wheel Hub And Bearing Dust Cap</a>
+## <a href="https://www.amazon.com/dp/B0C5HWKN6T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Trailer Axle Wheel Hub And Bearing Dust Cap</a>
 
 
-<a href="https://www.amazon.com/dp/B0C5HWKN6T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="4pcs 2.72" src="https://m.media-amazon.com/images/I/41F7QubU-YL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C5HWKN6T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="4pcs 2.72" src="https://m.media-amazon.com/images/I/41F7QubU-YL._SL500_.jpg"/></a>
 
 
 The **4pcs 2.72" Trailer Axle Wheel Hub and Bearing Dust Cap** with extra 4 rubber plugs is ideal for trailer owners and RV enthusiasts who need reliable protection for their wheel hubs. If you own a trailer with a weight capacity between 7000-8000 lbs, such as those using **Dexter EZ Lube Camper RV Bearing Dust Caps**, this product is designed to keep your bearings clean and extend the lifespan of your trailer’s wheel components. It’s perfect for individuals seeking durable and easy-to-install maintenance parts for their trailers.
@@ -148,10 +148,10 @@ The **JDMSPEED 4pcs Trailer Axle Wheel Hub and Bearing Dust Cap** set is meticul
 
 With its compatibility geared toward most 7000-8000 lb wheel hubs, especially the popular **Dexter EZ Lube Camper RV Bearing Dust Cap** systems, this product offers a dependable solution for trailer maintenance. The dust caps help retain grease within the bearings, promoting consistent lubrication and preventing costly damage. Trailer owners will benefit from improved safety, reduced maintenance costs, and increased longevity of their wheel components by installing these quality dust caps. Overall, the product combines ease of use, reliability, and effective protection to meet the demands of heavy-duty trailer applications.
 
-## <a href="https://www.amazon.com/dp/B0BGKT9TK7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ibroprat Trailer Hub Cap</a>
+## <a href="https://www.amazon.com/dp/B0BGKT9TK7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ibroprat Trailer Hub Cap</a>
 
 
-<a href="https://www.amazon.com/dp/B0BGKT9TK7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="iBroPrat 4PCS 2.72" src="https://m.media-amazon.com/images/I/41PaH9g-lDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BGKT9TK7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="iBroPrat 4PCS 2.72" src="https://m.media-amazon.com/images/I/41PaH9g-lDL._SL500_.jpg"/></a>
 
 
 The **iBroPrat 4PCS 2.72" Trailer Hub Cap** is ideal for trailer owners and professionals who require durable and reliable protection for their trailer axle bearings. If you have a trailer with **7000 to 8000 pound axles**, especially those compatible with **Dexter** models, this product ensures your wheel bearings remain clean and well-lubricated, extending the life of your trailer components.
@@ -173,10 +173,10 @@ The **iBroPrat Trailer Hub Cap** features a sturdy metal design that guards your
 
 This set of four caps is perfectly sized at **2.72 inches**, making it compatible with most trailers equipped with **7000 to 8000 pound axles**. Its bolt-on installation method simplifies the process, reducing downtime and maintenance efforts. By investing in these hub caps, users benefit from increased trailer longevity and smoother towing experiences.
 
-## <a href="https://www.amazon.com/dp/B0BJ7GPRPV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dexter Pre-greased Trailer Hub-drum Kit</a>
+## <a href="https://www.amazon.com/dp/B0BJ7GPRPV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dexter Pre-greased Trailer Hub-drum Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0BJ7GPRPV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dexter Pre-Greased Trailer Hub-Drum Kit 3.5K Axle 5-4.50 Bolt Center 1/2" src="https://m.media-amazon.com/images/I/41sc+DZZAsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BJ7GPRPV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dexter Pre-Greased Trailer Hub-Drum Kit 3.5K Axle 5-4.50 Bolt Center 1/2" src="https://m.media-amazon.com/images/I/41sc+DZZAsL._SL500_.jpg"/></a>
 
 
 The **Dexter Pre-Greased Trailer Hub-Drum Kit 3.5K Axle 5-4.50 Bolt Center 1/2" Studs (K08-247-1G)** is ideal for trailer owners and DIY enthusiasts who need a reliable and durable wheel hub solution. This product is perfect for those looking to upgrade or replace their trailer hubs to ensure smooth towing and increased safety on the road. Whether you own a utility trailer, boat trailer, or any light-duty trailer, this kit provides an efficient and easy-to-install option.
@@ -198,10 +198,10 @@ This **Dexter Trailer Hub-Drum Kit** stands out due to its pre-greased bearings,
 
 Additionally, the design with **1/2" studs** ensures that wheels are firmly secured, enhancing safety during transit. The compact and robust dimensions make this kit adaptable to a wide range of trailer applications, while the reputable **Dexter brand** guarantees quality and customer support. Overall, this hub-drum kit offers a balanced combination of durability, ease of use, and compatibility for trailer owners seeking a trustworthy replacement part.
 
-## <a href="https://www.amazon.com/dp/B0CDL2945Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Racewill 4 Sets 25580 14125a Boat Trailer Axles Bearing Kits</a>
+## <a href="https://www.amazon.com/dp/B0CDL2945Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Racewill 4 Sets 25580 14125a Boat Trailer Axles Bearing Kits</a>
 
 
-<a href="https://www.amazon.com/dp/B0CDL2945Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Racewill 4 Sets 25580 14125A Boat Trailer Axles Bearing Kits, Grease Seals,Spindle Nuts, 2.72" src="https://m.media-amazon.com/images/I/41XAP61HstL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CDL2945Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Racewill 4 Sets 25580 14125A Boat Trailer Axles Bearing Kits, Grease Seals,Spindle Nuts, 2.72" src="https://m.media-amazon.com/images/I/41XAP61HstL._SL500_.jpg"/></a>
 
 
 The **Racewill 4 Sets 25580 14125A Boat Trailer Axles Bearing Kits** are ideal for boat owners and trailer enthusiasts who need reliable and durable maintenance parts for their **5200-7000 lb tandem axles**. If you want to ensure smooth towing performance and extend the lifespan of your boat trailer's axle components, this comprehensive kit offers a perfect solution.
@@ -223,10 +223,10 @@ The **Racewill Boat Trailer Axles Bearing Kits** come with precisely engineered 
 
 With a comprehensive set of components, this kit simplifies trailer maintenance by providing everything needed in a single purchase. The robust materials and precision manufacturing by **Racewill** translate into enhanced reliability and less frequent replacements, saving you time and money. Whether you are performing routine service or upgrading worn parts, this kit enhances the safety and functionality of your boat trailer’s axle system.
 
-## <a href="https://www.amazon.com/dp/B0C5HX7G6L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jdmspeed Trailer Axle Dust Cap Cup Grease Cover Hub</a>
+## <a href="https://www.amazon.com/dp/B0C5HX7G6L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jdmspeed Trailer Axle Dust Cap Cup Grease Cover Hub</a>
 
 
-<a href="https://www.amazon.com/dp/B0C5HX7G6L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JDMSPEED 2pcs 1.98'' Trailer Axle Dust Cap Cup Grease Cover Hub with Extra 2 Rubber Plugs for Most 2000 to 3500 lb Dexter EZ Lube Camper RV Boat, Wheel and Bearing" src="https://m.media-amazon.com/images/I/41ytdgaD53L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C5HX7G6L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JDMSPEED 2pcs 1.98'' Trailer Axle Dust Cap Cup Grease Cover Hub with Extra 2 Rubber Plugs for Most 2000 to 3500 lb Dexter EZ Lube Camper RV Boat, Wheel and Bearing" src="https://m.media-amazon.com/images/I/41ytdgaD53L._SL500_.jpg"/></a>
 
 
 The **JDMSPEED 2pcs 1.98'' Trailer Axle Dust Cap Cup Grease Cover Hub** with extra rubber plugs is ideal for trailer owners and DIY enthusiasts who need reliable protection for their axle bearings. If you own a **camper, RV, boat trailer**, or any trailer with a weight capacity between **2000 to 3500 lbs**, especially those using **Dexter EZ Lube hubs**, this product is designed to keep your wheel bearings in optimal condition by preventing dirt and moisture intrusion.
@@ -248,10 +248,10 @@ The **JDMSPEED Trailer Axle Dust Cap Cup** is crafted with precision to fit snug
 
 Additionally, the inclusion of two extra **rubber plugs** enhances the versatility and sealing capability of the dust caps. These plugs provide an extra layer of defense against contaminants, making the maintenance process easier and more effective. The product's dimensions and compatibility with Dexter EZ Lube systems mean it fits most mid-weight trailers, providing users peace of mind that their investment is safeguarded with high-quality, reliable components.
 
-## <a href="https://www.amazon.com/dp/B008OADGH2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dexter Axle Grease Seal</a>
+## <a href="https://www.amazon.com/dp/B008OADGH2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dexter Axle Grease Seal</a>
 
 
-<a href="https://www.amazon.com/dp/B008OADGH2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DEXTER AXLE Dexter 01001900 Grease Seal" src="https://m.media-amazon.com/images/I/51tvnJQNsSL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B008OADGH2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DEXTER AXLE Dexter 01001900 Grease Seal" src="https://m.media-amazon.com/images/I/51tvnJQNsSL._SL500_.jpg"/></a>
 
 
 The **DEXTER AXLE Dexter 01001900 Grease Seal** is ideal for vehicle owners and mechanics who need a reliable and durable solution for preventing grease leakage in axle assemblies. This item is perfect for those maintaining trailers, trucks, or other heavy-duty vehicles where axle integrity and smooth operation are essential. If you prioritize quality and long-lasting performance in your axle components, this grease seal is designed for you.

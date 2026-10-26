@@ -23,10 +23,10 @@ These batteries use AGM technology for better performance and durability. They a
 
 
 
-## <a href="https://www.amazon.com/dp/B085WGDQCN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Expertpower Ytx20l-bs Replacement Battery</a>
+## <a href="https://www.amazon.com/dp/B085WGDQCN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Expertpower Ytx20l-bs Replacement Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B085WGDQCN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ExpertPower YTX20L-BS Replacement Battery for Honda 1800 CC GL1800 Gold Wing 01-09" src="https://m.media-amazon.com/images/I/41yhT3e9WaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B085WGDQCN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ExpertPower YTX20L-BS Replacement Battery for Honda 1800 CC GL1800 Gold Wing 01-09" src="https://m.media-amazon.com/images/I/41yhT3e9WaL._SL500_.jpg"/></a>
 
 
 The **ExpertPower YTX20L-BS Replacement Battery** is ideal for motorcycle owners who need a reliable and high-performance battery for their **Honda 1800 CC GL1800 Gold Wing (2001-2009 models)**. If you are looking for a durable replacement battery that delivers consistent power and supports the advanced electrical systems of your Gold Wing, this battery is a perfect choice. It suits riders who prioritize dependable starts and long-lasting battery life for their touring motorcycle.
@@ -48,10 +48,10 @@ The **ExpertPower YTX20L-BS Replacement Battery** is engineered to match the exa
 
 Additionally, its vibration-resistant build enhances durability on long rides and rough roads, contributing to a longer lifespan compared to standard batteries. With ExpertPower's trusted manufacturing quality, riders can expect consistent performance, quick startups, and minimal maintenance, making it a smart investment for any Gold Wing enthusiast.
 
-## <a href="https://www.amazon.com/dp/B07S8ZH8GM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Weize Ytx20hl-bs Battery</a>
+## <a href="https://www.amazon.com/dp/B07S8ZH8GM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Weize Ytx20hl-bs Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B07S8ZH8GM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Weize YTX20HL-BS Battery, High Performance - Maintenance Free - Sealed AGM ETX20HL BS Motorcycle Battery" src="https://m.media-amazon.com/images/I/41KMGuh88fL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07S8ZH8GM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Weize YTX20HL-BS Battery, High Performance - Maintenance Free - Sealed AGM ETX20HL BS Motorcycle Battery" src="https://m.media-amazon.com/images/I/41KMGuh88fL._SL500_.jpg"/></a>
 
 
 The **Weize YTX20HL-BS Battery** is ideal for motorcycle owners seeking a reliable, high-performance power source that requires minimal upkeep. If you want a durable, maintenance-free battery that delivers consistent starting power and fits a variety of motorcycle models, this sealed **AGM ETX20HL BS** battery is an excellent choice. It's perfect for riders who prioritize convenience and long-lasting performance without the hassle of regular maintenance.
@@ -73,10 +73,10 @@ The **Weize YTX20HL-BS Battery** features advanced **AGM (Absorbent Glass Mat)**
 
 Additionally, the battery's compact size and robust construction allow it to fit securely in most motorcycle compartments while offering consistent power output. Its black casing not only looks sleek but is also resistant to corrosion, extending the battery’s lifespan. Overall, the **Weize YTX20HL-BS** combines reliability, safety, and ease of use, making it an ideal upgrade for serious riders seeking dependable motorcycle power.
 
-## <a href="https://www.amazon.com/dp/B00NUA1CBI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mighty Max Battery Ytx20l-bs Replacement Battery</a>
+## <a href="https://www.amazon.com/dp/B00NUA1CBI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mighty Max Battery Ytx20l-bs Replacement Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B00NUA1CBI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mighty Max Battery YTX20L-BS Replacement Battery for Honda 1800 CC GL1800 Gold Wing 01-09" src="https://m.media-amazon.com/images/I/419IUs1R0rL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00NUA1CBI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mighty Max Battery YTX20L-BS Replacement Battery for Honda 1800 CC GL1800 Gold Wing 01-09" src="https://m.media-amazon.com/images/I/419IUs1R0rL._SL500_.jpg"/></a>
 
 
 The **Mighty Max Battery YTX20L-BS Replacement Battery** is ideal for motorcycle enthusiasts and owners of the **Honda 1800 CC GL1800 Gold Wing 01-09** model who need a reliable and high-performance battery replacement. If you are looking for a durable, maintenance-free battery that fits perfectly with your motorcycle’s specifications, this product is designed specifically to meet those needs.
@@ -99,10 +99,10 @@ The **Mighty Max Battery YTX20L-BS** edition is designed with precision to deliv
 
 Additionally, the sturdy construction from **Mighty Max Battery** enhances durability, resisting vibrations and shocks common during motorcycle rides. This results in enhanced battery life and fewer replacements, saving costs over time. The black finish not only protects the battery casing but also complements the motorcycle’s appearance, making it a functional and aesthetic upgrade for Honda Gold Wing owners seeking dependable power solutions.
 
-## <a href="https://www.amazon.com/dp/B007GR42AY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Yuasa Yuam720gz Gyz20l Agm Battery</a>
+## <a href="https://www.amazon.com/dp/B007GR42AY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Yuasa Yuam720gz Gyz20l Agm Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B007GR42AY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Yuasa YUAM720GZ GYZ20L Factory Activated GYZ Series AGM Battery" src="https://m.media-amazon.com/images/I/41G2YR7hoEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B007GR42AY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Yuasa YUAM720GZ GYZ20L Factory Activated GYZ Series AGM Battery" src="https://m.media-amazon.com/images/I/41G2YR7hoEL._SL500_.jpg"/></a>
 
 
 The **Yuasa YUAM720GZ GYZ20L Factory Activated GYZ Series AGM Battery** is an ideal choice for individuals who require a **reliable and high-performance battery** for their **motorcycles, ATVs, and personal watercraft**. If you are someone who values **durability** and **consistent power output**, this battery is tailored for you. Whether you're an enthusiast who enjoys long rides or a professional in need of a dependable power source, this battery is designed to meet your needs.
@@ -123,10 +123,10 @@ The **Yuasa YUAM720GZ GYZ20L** battery comes with a robust **AGM (Absorbed Glass
 
 Another standout feature is its **high cranking power**, which ensures that your vehicle starts effortlessly, even in **cold weather conditions**. This makes it an excellent choice for those living in regions with fluctuating climates. The battery's **durable construction** guarantees long-term reliability, providing peace of mind to users who need a battery that won't fail them when they need it most. Despite its **slightly heavier weight**, the benefits of **consistent performance** and **longevity** make it a worthwhile investment for anyone in need of a robust power solution.
 
-## <a href="https://www.amazon.com/dp/B00NUAAJZ8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mighty Max Battery Ytx20l-bs</a>
+## <a href="https://www.amazon.com/dp/B00NUAAJZ8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mighty Max Battery Ytx20l-bs</a>
 
 
-<a href="https://www.amazon.com/dp/B00NUAAJZ8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mighty Max Battery YTX20L-BS - 12 Volt 18 AH, 270 CCA, Rechargeable Maintenance Free SLA AGM Motorcycle Battery" src="https://m.media-amazon.com/images/I/419IUs1R0rL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00NUAAJZ8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mighty Max Battery YTX20L-BS - 12 Volt 18 AH, 270 CCA, Rechargeable Maintenance Free SLA AGM Motorcycle Battery" src="https://m.media-amazon.com/images/I/419IUs1R0rL._SL500_.jpg"/></a>
 
 
 The **Mighty Max Battery YTX20L-BS** is ideal for motorcycle owners seeking a reliable, high-performance power source that is both maintenance-free and long-lasting. This rechargeable **12 Volt 18 AH** battery is perfect for riders who want a hassle-free experience with consistent starting power, especially in varying weather conditions.
@@ -149,10 +149,10 @@ The **Mighty Max Battery YTX20L-BS** features an advanced **Absorbent Glass Mat 
 
 With a robust **270 CCA rating**, this battery delivers strong and reliable starting power, even in cold weather conditions. Riders benefit from quick ignition and steady performance regardless of seasonal changes. Moreover, the rechargeable capability allows for extended use, reducing the frequency of replacements and supporting cost savings over time. Overall, the **Mighty Max Battery YTX20L-BS** balances power, convenience, and durability, making it a smart choice for discerning motorcycle enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B07MLZS5W7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Neptune Ytx20l-bs Replacement Battery</a>
+## <a href="https://www.amazon.com/dp/B07MLZS5W7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Neptune Ytx20l-bs Replacement Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B07MLZS5W7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Neptune YTX20L-BS Replacement Battery Factory Activated for Honda 1800 CC GL1800 Gold Wing 01-09" src="https://m.media-amazon.com/images/I/41y3If-GZRL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07MLZS5W7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Neptune YTX20L-BS Replacement Battery Factory Activated for Honda 1800 CC GL1800 Gold Wing 01-09" src="https://m.media-amazon.com/images/I/41y3If-GZRL._SL500_.jpg"/></a>
 
 
 The **Neptune YTX20L-BS Replacement Battery** is ideal for motorcycle enthusiasts and owners of the **Honda 1800 CC GL1800 Gold Wing** models from **2001 to 2009** who need a reliable and efficient power source. If you're looking for a durable and factory-activated battery that guarantees optimal performance and minimal maintenance, this product is tailored for you.
@@ -174,10 +174,10 @@ The **Neptune YTX20L-BS Replacement Battery** boasts a factory-activated design,
 
 Additionally, the battery’s maintenance-free nature is a significant benefit, especially for riders who prefer a hassle-free experience without the need to check electrolyte levels or perform regular upkeep. The robust construction and reliable power output from **Neptune Power Products** ensure that the battery can withstand the demanding power requirements of the **Honda 1800 CC GL1800**, delivering dependable starts and sustained energy for all your riding adventures.
 
-## <a href="https://www.amazon.com/dp/B09V325VLD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Motorcycle Battery Ytx20hl-bs</a>
+## <a href="https://www.amazon.com/dp/B09V325VLD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Motorcycle Battery Ytx20hl-bs</a>
 
 
-<a href="https://www.amazon.com/dp/B09V325VLD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Motorcycle Battery YTX20HL-BS, UPLUS EB20H-3 Snowmobile UTV ATV YTX20L-BS YUAM320BS Maintenance Free Sealed AGM Powersports Compatible with Yamaha Honda Suzuki Harley-Davidson Kawasaki Jet Ski" src="https://m.media-amazon.com/images/I/41+l+tIsSDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09V325VLD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Motorcycle Battery YTX20HL-BS, UPLUS EB20H-3 Snowmobile UTV ATV YTX20L-BS YUAM320BS Maintenance Free Sealed AGM Powersports Compatible with Yamaha Honda Suzuki Harley-Davidson Kawasaki Jet Ski" src="https://m.media-amazon.com/images/I/41+l+tIsSDL._SL500_.jpg"/></a>
 
 
 The **Motorcycle Battery YTX20HL-BS** by **UPLUS NEW TECHNOLOGY BATTERY** is ideal for riders who need a reliable, maintenance-free power source for their powersports vehicles, including **motorcycles**, **snowmobiles**, **UTVs**, **ATVs**, and **jet skis**. This battery is perfect for enthusiasts and professionals using brands like **Yamaha**, **Honda**, **Suzuki**, **Harley-Davidson**, and **Kawasaki** who demand consistent performance and durability in various weather conditions. If you want a sealed AGM battery that is easy to install and requires no maintenance, this product is a great choice.
@@ -199,10 +199,10 @@ The **UPLUS EB20H-3** battery features advanced **AGM (Absorbent Glass Mat) tech
 
 Users benefit from the battery’s impressive cold-start capability, ensuring reliable engine ignition even during chilly mornings or in cold climates. The **maintenance-free** aspect means riders can focus more on their adventures and less on battery upkeep, as there is no need to check water levels or clean terminals frequently. Overall, this battery combines convenience, safety, and long-lasting power, making it an excellent investment for anyone looking to enhance their vehicle’s electrical performance.
 
-## <a href="https://www.amazon.com/dp/B07P6Z7TV3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Weize Ytx14 Bs Atv Battery</a>
+## <a href="https://www.amazon.com/dp/B07P6Z7TV3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Weize Ytx14 Bs Atv Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B07P6Z7TV3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Weize YTX14 BS ATV Battery High Performance - Maintenance Free - Sealed AGM YTX14-BS Motorcycle Battery compatible with Honda Suzuki Kawasaki Yamaha scooter snowmobile" src="https://m.media-amazon.com/images/I/51USqcIJJNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07P6Z7TV3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Weize YTX14 BS ATV Battery High Performance - Maintenance Free - Sealed AGM YTX14-BS Motorcycle Battery compatible with Honda Suzuki Kawasaki Yamaha scooter snowmobile" src="https://m.media-amazon.com/images/I/51USqcIJJNL._SL500_.jpg"/></a>
 
 
 The **Weize YTX14 BS ATV Battery High Performance** is ideal for riders who demand reliable power for their **motorcycles, ATVs, scooters, and snowmobiles**. If you own a **Honda, Suzuki, Kawasaki, or Yamaha** vehicle and seek a maintenance-free, durable battery that ensures consistent performance, this product is an excellent choice. Enthusiasts who want a sealed AGM battery that requires minimal upkeep and offers high output will benefit greatly from this battery.
@@ -225,10 +225,10 @@ The **Weize YTX14 BS battery** boasts advanced **AGM (Absorbed Glass Mat) techno
 
 Additionally, the battery’s high-performance output ensures quick and reliable starts even in cold weather conditions, which is crucial for riders in diverse climates. The compact size and lightweight design make it easy to install and handle, while its compatibility with major motorcycle and ATV brands offers versatility. Overall, the **Weize YTX14 BS** is engineered to deliver dependable power with minimal fuss, making it a smart investment for serious riders.
 
-## <a href="https://www.amazon.com/dp/B08711P6DS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ajc Battery Compatible With Honda Gl1800 Gold Wing Motorcycle Battery</a>
+## <a href="https://www.amazon.com/dp/B08711P6DS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ajc Battery Compatible With Honda Gl1800 Gold Wing Motorcycle Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B08711P6DS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="AJC Battery Compatible with Honda GL1800 Gold Wing, A, B, C, F6B, F6C 1800CC Motorcycle Battery (2001-2019)" src="https://m.media-amazon.com/images/I/41-7utjTsCL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08711P6DS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="AJC Battery Compatible with Honda GL1800 Gold Wing, A, B, C, F6B, F6C 1800CC Motorcycle Battery (2001-2019)" src="https://m.media-amazon.com/images/I/41-7utjTsCL._SL500_.jpg"/></a>
 
 
 The **AJC Battery Compatible with Honda GL1800 Gold Wing** is ideal for motorcycle enthusiasts and owners of the **Honda GL1800 Gold Wing** models, including A, B, C, F6B, and F6C 1800CC motorcycles manufactured between 2001 and 2019. If you are seeking a reliable, high-performance replacement battery specifically designed to meet the demands of your powerful touring bike, this **AJC Battery** is an excellent choice. It ensures optimal power delivery and durability for long rides and regular use.
@@ -250,10 +250,10 @@ The **AJC Battery** for the **Honda GL1800 Gold Wing** offers exceptional perfor
 
 Additionally, this battery's compatibility with multiple GL1800 variants such as A, B, C, F6B, and F6C models from 2001 to 2019 ensures that a wide range of owners can benefit from its reliable performance. Manufactured by **AJC Battery**, known for quality and durability, this battery supports both daily commuting and extended touring with confidence. Overall, it enhances the motorcycle's electrical system reliability, reducing the risk of unexpected power failures on the road.
 
-## <a href="https://www.amazon.com/dp/B00EJPYMKG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Pirate Battery Ytx20hl-bs 12v 19ah Battery Replacement</a>
+## <a href="https://www.amazon.com/dp/B00EJPYMKG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Pirate Battery Ytx20hl-bs 12v 19ah Battery Replacement</a>
 
 
-<a href="https://www.amazon.com/dp/B00EJPYMKG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Pirate Battery YTX20HL-BS 310 CCA Maintenance-Free 12V 19Ah Battery Replacement for ATV, Harley Davidson Motorcycle, Jet Skis, Scooter, UTV, and More - Nut and Bolt (T3) Terminal" src="https://m.media-amazon.com/images/I/51ofX1IwBPL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00EJPYMKG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Pirate Battery YTX20HL-BS 310 CCA Maintenance-Free 12V 19Ah Battery Replacement for ATV, Harley Davidson Motorcycle, Jet Skis, Scooter, UTV, and More - Nut and Bolt (T3) Terminal" src="https://m.media-amazon.com/images/I/51ofX1IwBPL._SL500_.jpg"/></a>
 
 
 The **Pirate Battery YTX20HL-BS 310 CCA Maintenance-Free 12V 19Ah Battery** is ideal for individuals who own power sports vehicles such as **ATVs, Harley Davidson motorcycles, jet skis, scooters, and UTVs**. If you are seeking a reliable, maintenance-free battery replacement with robust performance and easy installation, this battery is designed to meet your needs. Enthusiasts and daily riders alike will appreciate the convenience and durability it offers, especially with its **nut and bolt (T3) terminal** design for secure connections.

@@ -23,10 +23,10 @@ Options like TONS-99FLH21-10MM and laffoonparts 8. 8mm wires fit various Harley 
 
 
 
-## <a href="https://www.amazon.com/dp/B000IZ2AVE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Acdelco Iridium Spark Plug</a>
+## <a href="https://www.amazon.com/dp/B000IZ2AVE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Acdelco Iridium Spark Plug</a>
 
 
-<a href="https://www.amazon.com/dp/B000IZ2AVE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ACDelco GM Original Equipment 41-103 Iridium Spark Plug" src="https://m.media-amazon.com/images/I/41U3vEsrxOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000IZ2AVE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ACDelco GM Original Equipment 41-103 Iridium Spark Plug" src="https://m.media-amazon.com/images/I/41U3vEsrxOL._SL500_.jpg"/></a>
 
 
 The **ACDelco GM Original Equipment 41-103 Iridium Spark Plug** is ideal for vehicle owners seeking a reliable, high-performance replacement part that ensures optimal engine efficiency. Perfect for those who prioritize durability and smooth engine operation, this spark plug is especially suited for drivers of GM vehicles who want to maintain factory-level performance and longevity.
@@ -48,10 +48,10 @@ The **ACDelco GM Original Equipment 41-103 Iridium Spark Plug** features a fine 
 
 Additionally, being an original equipment manufacturer (OEM) part, this spark plug guarantees a perfect fit and adherence to GM's strict quality standards. This ensures that the vehicle maintains its optimal power output and emissions compliance, providing peace of mind for car owners who want to preserve their vehicle's reliability and meet environmental regulations. The compact and lightweight design facilitates easy installation without compromising durability.
 
-## <a href="https://www.amazon.com/dp/B0D7SXYTHY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">10mm Ignition Spark Plug Wires Compatible With Harley H-d Flt Flht Flhr Fltr 1999-2008</a>
+## <a href="https://www.amazon.com/dp/B0D7SXYTHY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">10mm Ignition Spark Plug Wires Compatible With Harley H-d Flt Flht Flhr Fltr 1999-2008</a>
 
 
-<a href="https://www.amazon.com/dp/B0D7SXYTHY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="10mm Ignition Spark Plug Wires Compatible with Harley H-D FLT FLHT FLHR FLTR 1999-2008, TONS-99FLH21-10MM" src="https://m.media-amazon.com/images/I/410ITuiD7UL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D7SXYTHY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="10mm Ignition Spark Plug Wires Compatible with Harley H-D FLT FLHT FLHR FLTR 1999-2008, TONS-99FLH21-10MM" src="https://m.media-amazon.com/images/I/410ITuiD7UL._SL500_.jpg"/></a>
 
 
 Ideal for **Harley-Davidson FLT, FLHT, FLHR, and FLTR models** from 1999 to 2008, the **10mm Ignition Spark Plug Wires** by **Ton's Performance** are perfect for riders seeking reliable and efficient ignition system upgrades. If you're looking to enhance your motorcycle's performance with durable and compatible spark plug wires, this product is designed specifically for your bike's ignition needs.
@@ -73,10 +73,10 @@ The **10mm Ignition Spark Plug Wires** are engineered with precision to provide 
 
 These wires are crafted by **Ton's Performance**, a brand known for quality motorcycle components, which guarantees users enhanced durability and fitment. The sleek **black insulation** not only adds to the aesthetic appeal but also protects the wires from environmental damage, ensuring your Harley-Davidson runs reliably on every ride.
 
-## <a href="https://www.amazon.com/dp/B0D4DZ96LV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Oyeauto Cr9eix Iridium Ix Spark Plug 4 Pack</a>
+## <a href="https://www.amazon.com/dp/B0D4DZ96LV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Oyeauto Cr9eix Iridium Ix Spark Plug 4 Pack</a>
 
 
-<a href="https://www.amazon.com/dp/B0D4DZ96LV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OYEAUTO CR9EIX Iridium IX Spark Plug 4 Pack Compatible with Aprilia Arctic Cat Cannondale Ducati Harley Davidson Honda Husqvarna Kawasaki KTM MASERATI MV Agus Piaggio Polaris Suzuki Textron Yamaha" src="https://m.media-amazon.com/images/I/51ssKOw6ilL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D4DZ96LV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OYEAUTO CR9EIX Iridium IX Spark Plug 4 Pack Compatible with Aprilia Arctic Cat Cannondale Ducati Harley Davidson Honda Husqvarna Kawasaki KTM MASERATI MV Agus Piaggio Polaris Suzuki Textron Yamaha" src="https://m.media-amazon.com/images/I/51ssKOw6ilL._SL500_.jpg"/></a>
 
 
 The **OYEAUTO CR9EIX Iridium IX Spark Plug 4 Pack** is ideal for motorcycle and powersports enthusiasts who demand reliable ignition performance. This product is perfect for owners of brands like **Aprilia, Ducati, Harley Davidson, Honda, Kawasaki, KTM, Maserati, Polaris, Suzuki,** and more, looking to enhance engine efficiency and longevity. If you want a spark plug that offers superior durability and consistent spark delivery, this pack is designed for you.
@@ -98,10 +98,10 @@ The **OYEAUTO CR9EIX Iridium IX Spark Plug** stands out with its iridium tip, wh
 
 Designed with precision manufacturing by **OYEAUTO**, this spark plug guarantees a perfect fit and reliable operation across multiple brands including **Aprilia, Ducati, Husqvarna, Yamaha,** and others. The enhanced ignition capability leads to smoother engine starts and reduced misfires, which can significantly extend engine life. Whether you are commuting or hitting the trails, these spark plugs provide consistent power delivery and stable performance under various riding conditions.
 
-## <a href="https://www.amazon.com/dp/B0D99LZ6GY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Spark Plug Wire W/cap For Xl1200 Xl883 Sportster</a>
+## <a href="https://www.amazon.com/dp/B0D99LZ6GY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Spark Plug Wire W/cap For Xl1200 Xl883 Sportster</a>
 
 
-<a href="https://www.amazon.com/dp/B0D99LZ6GY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Spark Plug Wire w/Cap 2007-2022 for XL1200 XL883 Sportster SuperLow Roadster Iron Forty-Eight Seventy-Two XL 883 1200" src="https://m.media-amazon.com/images/I/313JHTYYykL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D99LZ6GY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Spark Plug Wire w/Cap 2007-2022 for XL1200 XL883 Sportster SuperLow Roadster Iron Forty-Eight Seventy-Two XL 883 1200" src="https://m.media-amazon.com/images/I/313JHTYYykL._SL500_.jpg"/></a>
 
 
 The **Spark Plug Wire w/Cap 2007-2022 for XL1200 XL883 Sportster** is ideal for motorcycle enthusiasts and mechanics who own Harley-Davidson Sportster models like the SuperLow, Roadster, Iron Forty-Eight, and Seventy-Two. If you are looking to maintain or enhance the ignition performance of your motorcycle, this product offers a reliable upgrade with compatibility spanning multiple years and models. It is perfect for those seeking durable and efficient spark plug wires to ensure smooth engine operation.
@@ -123,10 +123,10 @@ The **Spark Plug Wire w/Cap** by **zozoye** offers a robust and precise fit desi
 
 Additionally, this product's design facilitates straightforward installation, making it an excellent choice for both DIY enthusiasts and professional mechanics. Replacing old or worn spark plug wires with this set can reduce engine misfires and increase fuel efficiency, ultimately enhancing the riding experience. For anyone committed to keeping their Harley-Davidson Sportster running at peak performance, investing in this spark plug wire with cap is a practical and effective solution.
 
-## <a href="https://www.amazon.com/dp/B0DFXRYLC8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Laffoonparts 2 Pcs 8.8mm Spark Plug Wire</a>
+## <a href="https://www.amazon.com/dp/B0DFXRYLC8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Laffoonparts 2 Pcs 8.8mm Spark Plug Wire</a>
 
 
-<a href="https://www.amazon.com/dp/B0DFXRYLC8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="laffoonparts 2 Pcs 8.8mm Spark Plug Wire (Black), Replacement for Davidson Big Twin FXD 1999 2000 2001 2002 2003 2004 2005 2006 2007 2008 2009 2010 2011 2012" src="https://m.media-amazon.com/images/I/31oC5+l6MEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DFXRYLC8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="laffoonparts 2 Pcs 8.8mm Spark Plug Wire (Black), Replacement for Davidson Big Twin FXD 1999 2000 2001 2002 2003 2004 2005 2006 2007 2008 2009 2010 2011 2012" src="https://m.media-amazon.com/images/I/31oC5+l6MEL._SL500_.jpg"/></a>
 
 
 The **laffoonparts 2 Pcs 8.8mm Spark Plug Wire** is designed for motorcycle enthusiasts who own a **Davidson Big Twin FXD** from 1999 to 2012. This product is ideal for those looking for a reliable replacement part that ensures optimal engine performance. Whether you're a professional mechanic or a DIY enthusiast, this spark plug wire is a perfect fit for maintaining your bike's efficiency.
@@ -146,10 +146,10 @@ The **laffoonparts spark plug wire** stands out due to its **8.8mm thickness**, 
 
 With dimensions of **1.97 inches in height, 3.94 inches in width and length**, and a weight of **0.24 pounds**, the **laffoonparts spark plug wire** is compact and lightweight, making it easy to handle during installation. The product's lightweight nature does not compromise its strength, as it is manufactured to resist wear and tear, providing a long-lasting solution for your motorcycle's ignition system. By choosing this product, users benefit from reduced maintenance needs and improved overall engine performance.
 
-## <a href="https://www.amazon.com/dp/B0D12ZMYNY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ton's Performance Red 10mm Thick Pair Of Spark Plug Wires</a>
+## <a href="https://www.amazon.com/dp/B0D12ZMYNY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ton's Performance Red 10mm Thick Pair Of Spark Plug Wires</a>
 
 
-<a href="https://www.amazon.com/dp/B0D12ZMYNY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ton's Performance RED 10mm Thick Pair of Spark Plug Wires Fit for Harley Davidson Sportster 883 1200 with Coil Relocation 2007+ TONS-07XLRELO-RD-10MM" src="https://m.media-amazon.com/images/I/21DjzpPqprL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D12ZMYNY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ton's Performance RED 10mm Thick Pair of Spark Plug Wires Fit for Harley Davidson Sportster 883 1200 with Coil Relocation 2007+ TONS-07XLRELO-RD-10MM" src="https://m.media-amazon.com/images/I/21DjzpPqprL._SL500_.jpg"/></a>
 
 
 The **Ton's Performance RED 10mm Thick Pair of Spark Plug Wires** is ideal for Harley Davidson enthusiasts, especially those who own the **Sportster 883 or 1200 models** from 2007 onwards with coil relocation. If you're looking to enhance your bike's ignition system with durable, high-performance spark plug wires that offer both reliability and style, this product is designed for you.
@@ -171,10 +171,10 @@ The **10mm thickness** of Ton's Performance spark plug wires provides exceptiona
 
 Additionally, the wires’ tailored fit for Harley Davidson Sportster 883 and 1200 models with coil relocation simplifies installation and guarantees optimal electrical flow. The bright red color not only elevates the visual appeal of your motorcycle's engine but also helps in quick identification during maintenance. Lightweight yet sturdy, these spark plug wires are a reliable upgrade for riders looking to combine performance with style.
 
-## <a href="https://www.amazon.com/dp/B082DPFQB9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ngk Spark Plugs</a>
+## <a href="https://www.amazon.com/dp/B082DPFQB9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ngk Spark Plugs</a>
 
 
-<a href="https://www.amazon.com/dp/B082DPFQB9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NGK 96107 Spark Plugs" src="https://m.media-amazon.com/images/I/31BmaI4BeBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B082DPFQB9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NGK 96107 Spark Plugs" src="https://m.media-amazon.com/images/I/31BmaI4BeBL._SL500_.jpg"/></a>
 
 
 The **NGK 96107 Spark Plugs** are ideal for automotive enthusiasts and professional mechanics seeking reliable ignition components that ensure optimal engine performance. If you own a vehicle that requires durable, high-quality spark plugs for improved fuel efficiency and smoother starts, these spark plugs are a perfect fit.
@@ -196,10 +196,10 @@ The **NGK 96107 Spark Plugs** boast advanced design features that promote effici
 
 By improving the ignition process, these spark plugs help users achieve better fuel efficiency and lower harmful emissions, aligning with eco-friendly driving practices. Their robust construction and trusted brand name make them a reliable choice for those who demand peak engine performance and durability in their automotive components.
 
-## <a href="https://www.amazon.com/dp/B07P8R3BGP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Acdelco Gm Original Equipment Iridium Spark Plug</a>
+## <a href="https://www.amazon.com/dp/B07P8R3BGP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Acdelco Gm Original Equipment Iridium Spark Plug</a>
 
 
-<a href="https://www.amazon.com/dp/B07P8R3BGP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ACDelco GM Original Equipment 41-106-IP Iridium Spark Plug" src="https://m.media-amazon.com/images/I/31KvLcMt1zL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07P8R3BGP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ACDelco GM Original Equipment 41-106-IP Iridium Spark Plug" src="https://m.media-amazon.com/images/I/31KvLcMt1zL._SL500_.jpg"/></a>
 
 
 The **ACDelco GM Original Equipment 41-106-IP Iridium Spark Plug** is ideal for vehicle owners seeking a reliable and high-performance spark plug that meets original equipment standards. It is especially suited for those who prioritize durability, efficient engine performance, and fuel economy. If you want a spark plug that ensures consistent ignition and long-lasting use, this product is an excellent choice.
@@ -222,10 +222,10 @@ The **ACDelco GM Original Equipment 41-106-IP Iridium Spark Plug** features adva
 
 Additionally, the spark plug's adherence to strict GM Original Equipment standards guarantees a perfect fit and optimal compatibility with GM vehicles. This precision manufacturing reduces the risk of wear and tear, helping maintain engine performance over time. The compact dimensions make it suitable for various engine configurations, providing flexibility for different vehicle models.
 
-## <a href="https://www.amazon.com/dp/B000NW4PO2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Acdelco Gm Original Equipment Iridium Spark Plug</a>
+## <a href="https://www.amazon.com/dp/B000NW4PO2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Acdelco Gm Original Equipment Iridium Spark Plug</a>
 
 
-<a href="https://www.amazon.com/dp/B000NW4PO2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ACDelco GM Original Equipment 41-105 Iridium Spark Plug" src="https://m.media-amazon.com/images/I/21YoYteEw+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000NW4PO2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ACDelco GM Original Equipment 41-105 Iridium Spark Plug" src="https://m.media-amazon.com/images/I/21YoYteEw+L._SL500_.jpg"/></a>
 
 
 The **ACDelco GM Original Equipment 41-105 Iridium Spark Plug** is ideal for vehicle owners seeking a reliable and high-performance replacement spark plug specifically designed for GM vehicles. If you prioritize enhanced engine efficiency, longer service life, and smooth driving experience, this spark plug is a perfect fit for your car maintenance needs.
@@ -247,10 +247,10 @@ The **ACDelco GM Original Equipment 41-105 Iridium Spark Plug** features a fine-
 
 Additionally, the spark plug’s design supports lower emissions by promoting more complete combustion of the air-fuel mixture, contributing to a cleaner environment. Its compact and lightweight construction makes installation straightforward, helping vehicle owners or mechanics save time during maintenance. Overall, this spark plug offers a reliable solution for those who want to maintain their GM vehicle’s peak performance with genuine OEM quality.
 
-## <a href="https://www.amazon.com/dp/B000PWUR60?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ngk Spark Plug</a>
+## <a href="https://www.amazon.com/dp/B000PWUR60?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ngk Spark Plug</a>
 
 
-<a href="https://www.amazon.com/dp/B000PWUR60?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NGK 3901 Spark Plug" src="https://m.media-amazon.com/images/I/41VqIIv0lEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000PWUR60?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NGK 3901 Spark Plug" src="https://m.media-amazon.com/images/I/41VqIIv0lEL._SL500_.jpg"/></a>
 
 
 The **NGK 3901 Spark Plug** is perfect for automotive enthusiasts and everyday drivers who prioritize **engine performance** and **fuel efficiency**. This product is ideal for those who want a reliable spark plug that enhances their vehicle's overall performance, making it a must-have for anyone committed to maintaining their car in top condition.

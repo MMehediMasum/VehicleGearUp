@@ -22,10 +22,10 @@ These pumps offer easy installation with inline designs and built-in filters to 
 
 
 
-## <a href="https://www.amazon.com/dp/B00L8IHM9K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Universal Electric Fuel Pump Kit</a>
+## <a href="https://www.amazon.com/dp/B00L8IHM9K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Universal Electric Fuel Pump Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B00L8IHM9K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Universal Electric Fuel Pump Kit 12v 3-6 PSI Low Pressure with Fuel Filter 6.56 FT 5/16" id="" src="https://m.media-amazon.com/images/I/41sjemD54JL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00L8IHM9K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Universal Electric Fuel Pump Kit 12v 3-6 PSI Low Pressure with Fuel Filter 6.56 FT 5/16" id="" src="https://m.media-amazon.com/images/I/41sjemD54JL._SL500_.jpg"/></a>
 
 
 The **Universal Electric Fuel Pump Kit 12v 3-6 PSI** is ideal for homeowners and professionals who need a reliable, low-pressure fuel transfer solution. This kit is perfect for those working with **carburetor lawn mowers**, small engines, or diesel and gas fuel systems, especially when replacing old or faulty pumps. If you're looking for an efficient and easy-to-install fuel pump with a built-in filter and a long fuel line, this product fits the bill.
@@ -49,10 +49,10 @@ This **electric fuel pump kit** stands out with its dependable performance and e
 
 Designed by **JDMSPEED**, the pump combines compact size with efficient function, making it suitable for both residential and commercial use. Its low-pressure rating is ideal for sensitive carbureted engines, ensuring fuel delivery without risking damage from excessive pressure. Overall, this kit offers a practical solution for anyone needing a dependable, universal fuel pump replacement.
 
-## <a href="https://www.amazon.com/dp/B082KKC5Q4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Carbole 12 Volt Electric Fuel Pump</a>
+## <a href="https://www.amazon.com/dp/B082KKC5Q4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Carbole 12 Volt Electric Fuel Pump</a>
 
 
-<a href="https://www.amazon.com/dp/B082KKC5Q4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CarBole 12 Volt Electric Fuel Pump 5-9 PSI, 35 GPH for Gasoline Engines" src="https://m.media-amazon.com/images/I/51PWykm+2ZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B082KKC5Q4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CarBole 12 Volt Electric Fuel Pump 5-9 PSI, 35 GPH for Gasoline Engines" src="https://m.media-amazon.com/images/I/51PWykm+2ZL._SL500_.jpg"/></a>
 
 
 The **CarBole 12 Volt Electric Fuel Pump 5-9 PSI, 35 GPH** is ideal for automotive enthusiasts and mechanics who need a reliable and efficient fuel pump for gasoline engines. It is perfect for those looking to upgrade or replace their existing fuel pump with a product that offers consistent performance and durability. Whether you are working on a classic car restoration or maintaining a daily driver, this fuel pump meets the needs of users requiring steady fuel delivery at moderate pressure.
@@ -74,10 +74,10 @@ The **CarBole 12 Volt Electric Fuel Pump** features a robust design engineered t
 
 With a flow rate of 35 GPH, this fuel pump supplies adequate fuel volume for most everyday driving conditions, supporting reliable engine combustion and efficiency. Manufactured by **CarBole**, a reputable brand, this pump emphasizes quality and durability, giving users peace of mind with their purchase. Overall, it is a practical and cost-effective solution for anyone needing a dependable electric fuel pump for gasoline engines.
 
-## <a href="https://www.amazon.com/dp/B07GZJK4CJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">E8012s Electric Fuel Pump</a>
+## <a href="https://www.amazon.com/dp/B07GZJK4CJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">E8012s Electric Fuel Pump</a>
 
 
-<a href="https://www.amazon.com/dp/B07GZJK4CJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="E8012S Electric Fuel Pump - Inline fuel pump Low Pressure 5-9 PSI, 12V Fuel pump Electric Fuel Pump 12v for Carburetor Lawn Mower Transfer Pump" src="https://m.media-amazon.com/images/I/51HqwtG6ZCL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07GZJK4CJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="E8012S Electric Fuel Pump - Inline fuel pump Low Pressure 5-9 PSI, 12V Fuel pump Electric Fuel Pump 12v for Carburetor Lawn Mower Transfer Pump" src="https://m.media-amazon.com/images/I/51HqwtG6ZCL._SL500_.jpg"/></a>
 
 
 The **E8012S Electric Fuel Pump** is ideal for homeowners and professionals seeking a reliable and efficient solution for fuel transfer in small engines. If you own a **carburetor lawn mower** or need a **low-pressure inline fuel pump** operating between **5-9 PSI**, this **12V electric fuel pump** offers an excellent balance of power and precision. It is especially suitable for those who require a compact, lightweight pump for easy installation and consistent fuel flow.
@@ -100,10 +100,10 @@ The **E8012S Electric Fuel Pump** excels in providing steady fuel flow through i
 
 Additionally, the pump's compatibility with a 12V electrical system means it can be powered by common battery sources, increasing its usability across various small engine equipment. Whether you're operating a lawn mower or managing fuel transfer for other small machinery, this electric fuel pump offers a dependable and safe solution that enhances overall fuel system reliability.
 
-## <a href="https://www.amazon.com/dp/B077HQ49PN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Carbole Micro Electric Gasoline Fuel Pump</a>
+## <a href="https://www.amazon.com/dp/B077HQ49PN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Carbole Micro Electric Gasoline Fuel Pump</a>
 
 
-<a href="https://www.amazon.com/dp/B077HQ49PN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CarBole Micro Electric Gasoline Fuel Pump Universal 5/16 inch Inlet and Outlet 12V 1-2A 35GPH 4-7 P.S.I. Operating Fuel Pressure" src="https://m.media-amazon.com/images/I/51fuEy7zNBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B077HQ49PN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CarBole Micro Electric Gasoline Fuel Pump Universal 5/16 inch Inlet and Outlet 12V 1-2A 35GPH 4-7 P.S.I. Operating Fuel Pressure" src="https://m.media-amazon.com/images/I/51fuEy7zNBL._SL500_.jpg"/></a>
 
 
 The **CarBole Micro Electric Gasoline Fuel Pump** is ideal for car enthusiasts and DIY mechanics looking for a reliable, universal fuel pump solution. Whether you're restoring a classic car or upgrading your current vehicle's fuel system, this pump is designed to meet a wide range of needs with its **universal compatibility** and efficient performance.
@@ -124,10 +124,10 @@ The **CarBole Micro Electric Gasoline Fuel Pump** features a **universal design*
 
 Operating at **4-7 P.S.I.**, this fuel pump is perfectly suited for gasoline engines, providing the necessary pressure to support smooth engine operation. The **12V compatibility** means it can seamlessly connect to the electrical systems of most vehicles, offering a hassle-free installation process. While the pump excels in many areas, potential buyers should note that it is not designed for diesel engines and may require some extra fittings during installation for certain vehicle models. Overall, the **CarBole Fuel Pump** is a reliable and efficient choice for enhancing your vehicle's fuel delivery system.
 
-## <a href="https://www.amazon.com/dp/B000CIQ5DG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Carter Universal Electric Fuel Pump</a>
+## <a href="https://www.amazon.com/dp/B000CIQ5DG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Carter Universal Electric Fuel Pump</a>
 
 
-<a href="https://www.amazon.com/dp/B000CIQ5DG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Carter Universal Electric Fuel Pump Automotive Replacement 12V (P4070)" src="https://m.media-amazon.com/images/I/41nJ6pvuBIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000CIQ5DG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Carter Universal Electric Fuel Pump Automotive Replacement 12V (P4070)" src="https://m.media-amazon.com/images/I/41nJ6pvuBIL._SL500_.jpg"/></a>
 
 
 The **Carter Universal Electric Fuel Pump Automotive Replacement 12V (P4070)** is ideal for vehicle owners and mechanics seeking a reliable and efficient replacement fuel pump. If you drive a car or truck that requires a 12V fuel pump and want to ensure consistent fuel delivery for optimal engine performance, this product is a great fit. It is especially suitable for those who value durable automotive parts from a trusted brand.
@@ -149,10 +149,10 @@ The **Carter Universal Electric Fuel Pump** delivers dependable fuel pressure cr
 
 Manufactured by the well-known brand **Carter**, this fuel pump is crafted with quality materials to withstand the rigors of daily driving. It ensures that your engine receives a steady flow of fuel, which can lead to improved fuel efficiency and engine responsiveness. Overall, this replacement pump is a smart investment for maintaining optimal vehicle performance.
 
-## <a href="https://www.amazon.com/dp/B00029JC5S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Holley Red® Electric Fuel Pump</a>
+## <a href="https://www.amazon.com/dp/B00029JC5S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Holley Red® Electric Fuel Pump</a>
 
 
-<a href="https://www.amazon.com/dp/B00029JC5S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Holley 12-801-1 97 GPH RED® Electric Fuel Pump" src="https://m.media-amazon.com/images/I/41bLgYTFpVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00029JC5S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Holley 12-801-1 97 GPH RED® Electric Fuel Pump" src="https://m.media-amazon.com/images/I/41bLgYTFpVL._SL500_.jpg"/></a>
 
 
 The **Holley 12-801-1 97 GPH RED® Electric Fuel Pump** is ideal for automotive enthusiasts and professionals seeking a reliable and high-performance fuel delivery system. This item is perfect for those upgrading their vehicle's fuel system or requiring a consistent fuel flow rate for enhanced engine performance.
@@ -174,10 +174,10 @@ The **Holley 12-801-1 97 GPH RED® Electric Fuel Pump** delivers a steady and de
 
 Additionally, the pump's lightweight design, weighing approximately 3.2 pounds, facilitates easier handling and installation without adding unnecessary bulk. Holley's reputation for manufacturing quality automotive components ensures this fuel pump will provide long-lasting service, reducing maintenance needs and enhancing vehicle reliability on the road.
 
-## <a href="https://www.amazon.com/dp/B08PY7V2MM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sollon Electric Fuel Pump</a>
+## <a href="https://www.amazon.com/dp/B08PY7V2MM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Sollon Electric Fuel Pump</a>
 
 
-<a href="https://www.amazon.com/dp/B08PY7V2MM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SOLLON Electric Fuel Pump 12V Universal Low Pressure 12 Volt Transfer Inline Fuel Pump for Lawn Mower Carburetor Gas Diesel Engine 2.5-4psi HEP-02A" src="https://m.media-amazon.com/images/I/41DaITs1L4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08PY7V2MM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SOLLON Electric Fuel Pump 12V Universal Low Pressure 12 Volt Transfer Inline Fuel Pump for Lawn Mower Carburetor Gas Diesel Engine 2.5-4psi HEP-02A" src="https://m.media-amazon.com/images/I/41DaITs1L4L._SL500_.jpg"/></a>
 
 
 The **SOLLON Electric Fuel Pump 12V Universal Low Pressure** is ideal for homeowners and professionals who need a reliable and efficient fuel transfer solution for small engines. This product is perfect for those who operate lawn mowers, carburetors, gas or diesel engines requiring a consistent low-pressure fuel supply between 2.5-4psi. If you’re looking for a compact, easy-to-install pump to maintain steady fuel flow and improve engine performance, this fuel pump is an excellent choice.
@@ -199,10 +199,10 @@ The **SOLLON Electric Fuel Pump 12V Universal Low Pressure** stands out for its 
 
 Additionally, the pump’s durable construction by **SOLLON** provides users with confidence in its longevity and effectiveness. Whether you’re a homeowner performing routine maintenance or a professional seeking dependable fuel transfer, this electric fuel pump delivers steady fuel flow for carburetors and small engines, enhancing overall operational efficiency.
 
-## <a href="https://www.amazon.com/dp/B00029JC62?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Holley Blue® Electric Fuel Pump With Regulator</a>
+## <a href="https://www.amazon.com/dp/B00029JC62?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Holley Blue® Electric Fuel Pump With Regulator</a>
 
 
-<a href="https://www.amazon.com/dp/B00029JC62?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Holley 12-802-1 110 GPH Blue® Electric Fuel Pump With Regulator" src="https://m.media-amazon.com/images/I/41Yvjef0FaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00029JC62?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Holley 12-802-1 110 GPH Blue® Electric Fuel Pump With Regulator" src="https://m.media-amazon.com/images/I/41Yvjef0FaL._SL500_.jpg"/></a>
 
 
 The **Holley 12-802-1 110 GPH Blue® Electric Fuel Pump With Regulator** is ideal for automotive enthusiasts and professionals seeking a reliable and efficient fuel delivery system. This product is perfect for those who want to enhance their vehicle's fuel performance, especially in high-demand or modified engines requiring consistent fuel pressure and flow.
@@ -225,10 +225,10 @@ The **Holley 12-802-1 110 GPH Blue® Electric Fuel Pump** combines performance a
 
 Additionally, the pump's durable design backed by Holley's reputable manufacturing standards guarantees long-lasting use under demanding conditions. Its relatively lightweight construction facilitates easier installation and reduces strain on the vehicle's fuel system. Overall, this fuel pump delivers a balance of power, consistency, and durability, making it a valuable upgrade for anyone looking to improve their vehicle's fuel delivery system.
 
-## <a href="https://www.amazon.com/dp/B07ZNS6WQR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Carbole Universal Micro Electric Fuel Pump Inline Low Pressure Pump</a>
+## <a href="https://www.amazon.com/dp/B07ZNS6WQR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Carbole Universal Micro Electric Fuel Pump Inline Low Pressure Pump</a>
 
 
-<a href="https://www.amazon.com/dp/B07ZNS6WQR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CarBole Universal Micro Electric Fuel Pump Inline Low Pressure Pump E8012S 12V, 5-9 PSI,30 GPH,5/16 Inch" src="https://m.media-amazon.com/images/I/4148NDo5bIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07ZNS6WQR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="CarBole Universal Micro Electric Fuel Pump Inline Low Pressure Pump E8012S 12V, 5-9 PSI,30 GPH,5/16 Inch" src="https://m.media-amazon.com/images/I/4148NDo5bIL._SL500_.jpg"/></a>
 
 
 The **CarBole Universal Micro Electric Fuel Pump Inline Low Pressure Pump E8012S 12V** is ideal for automotive enthusiasts, mechanics, and DIYers who require a reliable and efficient fuel pump for low-pressure fuel delivery. If you are looking to replace or upgrade your vehicle’s fuel pump with a compact, easy-to-install, and versatile model, this product is designed to meet your needs.
@@ -251,10 +251,10 @@ The **CarBole E8012S fuel pump** offers a blend of efficiency and convenience, m
 
 Additionally, the pump operates at a standard 12V power supply, which is compatible with most automotive electrical systems. The pressure range of 5-9 PSI is ideal for carbureted engines or other low-pressure fuel systems, ensuring smooth and reliable operation. Overall, this pump balances performance and adaptability, making it a valuable component for fuel system maintenance or upgrades.
 
-## <a href="https://www.amazon.com/dp/B0F6LPDY77?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Engineman Universal Electric Fuel Pump</a>
+## <a href="https://www.amazon.com/dp/B0F6LPDY77?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Engineman Universal Electric Fuel Pump</a>
 
 
-<a href="https://www.amazon.com/dp/B0F6LPDY77?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ENGINEMAN Universal Electric Fuel Pump 12V 2.5-4.5 PSI Inline External 5/16 Inch Compatiable with Gas Diesel Marine Carburetor Marine E8016S" src="https://m.media-amazon.com/images/I/518V7sotg0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F6LPDY77?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ENGINEMAN Universal Electric Fuel Pump 12V 2.5-4.5 PSI Inline External 5/16 Inch Compatiable with Gas Diesel Marine Carburetor Marine E8016S" src="https://m.media-amazon.com/images/I/518V7sotg0L._SL500_.jpg"/></a>
 
 
 The **ENGINEMAN Universal Electric Fuel Pump 12V** is ideal for vehicle owners and mechanics who need a reliable and efficient fuel pump compatible with a variety of engines, including gas, diesel, marine, and carburetor systems. If you require a versatile and durable fuel pump that supports inline external installation with a pressure range of 2.5-4.5 PSI, this product is designed to meet those needs effectively.

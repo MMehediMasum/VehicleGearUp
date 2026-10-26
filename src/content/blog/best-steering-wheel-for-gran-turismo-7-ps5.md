@@ -20,10 +20,10 @@ Sim Racing Wheel Stand provides a solid, adjustable base for your setup. COLLINO
 
 
 
-## <a href="https://www.amazon.com/dp/B09PX6GHJ7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hori Racing Wheel Apex</a>
+## <a href="https://www.amazon.com/dp/B09PX6GHJ7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hori Racing Wheel Apex</a>
 
 
-<a href="https://www.amazon.com/dp/B09PX6GHJ7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HORI Racing Wheel Apex for Playstation 5, PlayStation 4 and PC - Officially Licensed by Sony - Compatible with Gran Turismo 7" src="https://m.media-amazon.com/images/I/31nQIBHzuwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09PX6GHJ7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HORI Racing Wheel Apex for Playstation 5, PlayStation 4 and PC - Officially Licensed by Sony - Compatible with Gran Turismo 7" src="https://m.media-amazon.com/images/I/31nQIBHzuwL._SL500_.jpg"/></a>
 
 
 The **HORI Racing Wheel Apex** is ideal for passionate gamers who own a **PlayStation 5, PlayStation 4, or PC** and are looking to elevate their racing game experience. Perfect for fans of titles like **Gran Turismo 7**, this officially licensed product by **Sony** offers a realistic and immersive driving simulation for casual racers and serious enthusiasts alike.
@@ -45,10 +45,10 @@ The **HORI Racing Wheel Apex** offers a well-balanced design that combines perfo
 
 Featuring responsive controls and a sturdy build, this racing wheel enhances the gaming experience by providing precise steering input, which is crucial for competitive racing games like **Gran Turismo 7**. The compatibility across platforms such as **PC** also adds to its versatility, making it a practical choice for gamers who switch between systems. Overall, the HORI Racing Wheel Apex represents a solid entry-level option for those seeking an authentic and enjoyable racing simulation.
 
-## <a href="https://www.amazon.com/dp/B00Z0UWWYC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Logitech G29 Driving Force Racing Wheel And Floor Pedals</a>
+## <a href="https://www.amazon.com/dp/B00Z0UWWYC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Logitech G29 Driving Force Racing Wheel And Floor Pedals</a>
 
 
-<a href="https://www.amazon.com/dp/B00Z0UWWYC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Logitech G29 Driving Force Racing Wheel and Floor Pedals, Real Force Feedback, Stainless Steel Paddle Shifters, Leather Steering Wheel Cover for PS5, PS4, PC, Mac - Black" src="https://m.media-amazon.com/images/I/41FVFskJChL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00Z0UWWYC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Logitech G29 Driving Force Racing Wheel and Floor Pedals, Real Force Feedback, Stainless Steel Paddle Shifters, Leather Steering Wheel Cover for PS5, PS4, PC, Mac - Black" src="https://m.media-amazon.com/images/I/41FVFskJChL._SL500_.jpg"/></a>
 
 
 The **Logitech G29 Driving Force Racing Wheel and Floor Pedals** is ideal for passionate racing game enthusiasts and sim racers who want an immersive and realistic driving experience on platforms like **PS5, PS4, PC, and Mac**. Whether you're a casual gamer looking to elevate your gameplay or a serious competitor aiming for precision control, this racing wheel set offers the perfect blend of durability and performance.
@@ -71,10 +71,10 @@ The **Logitech G29 Racing Wheel** boasts advanced **Real Force Feedback** that r
 
 Designed with versatility in mind, the G29 is compatible across a range of platforms including **PS5, PS4, PC, and Mac**, making it a flexible choice for gamers with multiple systems. Its compact size and relatively lightweight construction mean it can fit into most gaming spaces without hassle. While the pedals are straightforward, they provide responsive inputs suitable for most racing titles, making the G29 an excellent entry-to-mid-level racing wheel that balances performance, quality, and value.
 
-## <a href="https://www.amazon.com/dp/B0B5GCZVC1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Strasse Sim Driving Shoes</a>
+## <a href="https://www.amazon.com/dp/B0B5GCZVC1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Strasse Sim Driving Shoes</a>
 
 
-<a href="https://www.amazon.com/dp/B0B5GCZVC1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="STRASSE SIM Driving Shoes Racing Shoes Gaming Grip Comfortable Pedal Work Steering Sim Cockpit Gran Turismo PS4 PS5 Prestige (S Red)" src="https://m.media-amazon.com/images/I/4154K0qNk2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B5GCZVC1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="STRASSE SIM Driving Shoes Racing Shoes Gaming Grip Comfortable Pedal Work Steering Sim Cockpit Gran Turismo PS4 PS5 Prestige (S Red)" src="https://m.media-amazon.com/images/I/4154K0qNk2L._SL500_.jpg"/></a>
 
 
 The **STRASSE SIM Driving Shoes Racing Shoes** are ideal for avid sim racing enthusiasts and gamers who demand both comfort and precision during long gaming sessions. Perfectly suited for users who engage in racing simulators like **Gran Turismo** on **PS4** and **PS5**, these shoes are designed to enhance pedal control and provide a realistic driving experience. If you spend hours in your sim cockpit or work with steering simulators, these shoes offer the grip and comfort needed for peak performance.
@@ -97,10 +97,10 @@ The **STRASSE SIM Driving Shoes** feature a specialized sole that provides maxim
 
 Beyond performance, these racing shoes bring a professional touch to any sim cockpit setup. With the striking **red color** and premium craftsmanship by **STRASSE**, they not only enhance functionality but also elevate the overall aesthetic of the gaming environment. For serious sim racers and gaming enthusiasts seeking a blend of comfort, grip, and style, these shoes are a worthwhile investment.
 
-## <a href="https://www.amazon.com/dp/B0DYK1G11C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sim Racing Wheel Stand</a>
+## <a href="https://www.amazon.com/dp/B0DYK1G11C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sim Racing Wheel Stand</a>
 
 
-<a href="https://www.amazon.com/dp/B0DYK1G11C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Sim Racing Wheel Stand, Heavy Duty Adjustable Cockpit With Shifter Mount | Foldable Steering Wheel Stand for PC/PS5/Xbox | Universal Compatibility (Pedals Not Included)" src="https://m.media-amazon.com/images/I/41qWmr4raAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DYK1G11C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Sim Racing Wheel Stand, Heavy Duty Adjustable Cockpit With Shifter Mount | Foldable Steering Wheel Stand for PC/PS5/Xbox | Universal Compatibility (Pedals Not Included)" src="https://m.media-amazon.com/images/I/41qWmr4raAL._SL500_.jpg"/></a>
 
 
 The **Sim Racing Wheel Stand** by Hipicute is perfect for **avid racing enthusiasts** and **serious gamers** who seek a more immersive experience. This **heavy-duty adjustable cockpit** is designed for those who want to enhance their racing simulation setup with a sturdy and versatile stand. Ideal for users who play on **PC, PS5, or Xbox**, this stand provides a realistic driving feel without the need for a full cockpit setup.
@@ -121,10 +121,10 @@ The **Hipicute Sim Racing Wheel Stand** features a robust and **heavy-duty const
 
 One of the standout features of this wheel stand is its **foldable nature**, making it an excellent choice for users who need to save space when the stand is not in use. Despite its compact storage capability, the stand maintains its **durability and performance**, supporting a wide range of steering wheels and accessories. This balance between practicality and functionality makes it a valuable addition to any gaming setup.
 
-## <a href="https://www.amazon.com/dp/B0DR3BZ72K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Collino Formula Sim Steering Wheel</a>
+## <a href="https://www.amazon.com/dp/B0DR3BZ72K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Collino Formula Sim Steering Wheel</a>
 
 
-<a href="https://www.amazon.com/dp/B0DR3BZ72K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="COLLINO Formula Sim Steering Wheel for Logitech G29 and G923, PS4/PS5 Racing Wheel" src="https://m.media-amazon.com/images/I/41NwnhnfdWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DR3BZ72K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="COLLINO Formula Sim Steering Wheel for Logitech G29 and G923, PS4/PS5 Racing Wheel" src="https://m.media-amazon.com/images/I/41NwnhnfdWL._SL500_.jpg"/></a>
 
 
 The **COLLINO Formula Sim Steering Wheel** is ideal for racing enthusiasts who use the **Logitech G29** and **G923** racing wheels on **PS4** or **PS5** consoles. Gamers looking to enhance their driving simulation experience with a high-quality, responsive, and durable steering wheel accessory will find this product particularly beneficial. It is perfect for those who demand precision and comfort in their racing gameplay.

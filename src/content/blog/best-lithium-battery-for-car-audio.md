@@ -23,10 +23,10 @@ Some models deliver high amperage for powerful subwoofers and amplifiers. Others
 
 
 
-## <a href="https://www.amazon.com/dp/B08R6Z11HQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Reikken Pr2400 Energie Power Cell</a>
+## <a href="https://www.amazon.com/dp/B08R6Z11HQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Reikken Pr2400 Energie Power Cell</a>
 
 
-<a href="https://www.amazon.com/dp/B08R6Z11HQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Reikken PR2400 Energie 2400 Watt 12 Volt Power Cell" src="https://m.media-amazon.com/images/I/415ZNwKSVTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08R6Z11HQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Reikken PR2400 Energie 2400 Watt 12 Volt Power Cell" src="https://m.media-amazon.com/images/I/415ZNwKSVTL._SL500_.jpg"/></a>
 
 
 The **Reikken PR2400 Energie 2400 Watt 12 Volt Power Cell** is ideal for outdoor enthusiasts, RV owners, and anyone in need of a reliable and portable power source. If you require a robust energy solution for camping, off-grid living, or emergency backup, this power cell is designed to meet those demands efficiently.
@@ -47,10 +47,10 @@ The **Reikken PR2400 Energie 2400 Watt 12 Volt Power Cell** boasts a powerful wa
 
 Additionally, the power cell’s design prioritizes portability without sacrificing performance. Whether you’re camping in remote locations or preparing for power outages, the unit delivers stable and consistent energy. The trusted manufacturing by **Energie** ensures longevity, giving users confidence in their investment for both short-term and long-term use.
 
-## <a href="https://www.amazon.com/dp/B005FYJ5B6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Xs Power D3400 Agm Battery</a>
+## <a href="https://www.amazon.com/dp/B005FYJ5B6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Xs Power D3400 Agm Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B005FYJ5B6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="XS Power D3400 3300 Amp AGM Battery with M6 Terminal Hardware - 12 Volt 80Ah 1150CA Deep Cycle AGM Powercell for Winch, Car Audio Systems - 49.97 lbs, Maintenance Free, Sealed Design" src="https://m.media-amazon.com/images/I/51hY3cAtUVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B005FYJ5B6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="XS Power D3400 3300 Amp AGM Battery with M6 Terminal Hardware - 12 Volt 80Ah 1150CA Deep Cycle AGM Powercell for Winch, Car Audio Systems - 49.97 lbs, Maintenance Free, Sealed Design" src="https://m.media-amazon.com/images/I/51hY3cAtUVL._SL500_.jpg"/></a>
 
 
 The **XS Power D3400 3300 Amp AGM Battery** is ideal for enthusiasts and professionals who require a reliable and powerful energy source for demanding applications such as **winches** and **car audio systems**. This battery is perfect for those who need a durable, maintenance-free solution with high cranking power and deep cycle capability, making it suitable for off-road vehicles, audio competitions, and other high-performance setups.
@@ -73,10 +73,10 @@ The **XS Power D3400** battery is engineered with advanced **Absorbent Glass Mat
 
 With an impressive **80Ah capacity** and a cold cranking amperage (1150CA) rating, this battery delivers consistent power for extended periods, making it an excellent choice for users who rely on winches or high-powered car audio systems. Its maintenance-free nature means users can focus on performance without the hassle of regular upkeep, providing peace of mind and convenience. Overall, the XS Power D3400 combines power, durability, and ease of use for demanding automotive and recreational applications.
 
-## <a href="https://www.amazon.com/dp/B0D8V4QGNZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Xs Power Xmax90-diy 12v Lithium Battery</a>
+## <a href="https://www.amazon.com/dp/B0D8V4QGNZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Xs Power Xmax90-diy 12v Lithium Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B0D8V4QGNZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="XS Power XMAX90-DIY 8300 Amp High-Performance 12V Lithium Battery for In-Car Audio Competition - 12 Volt 90Ah 20,000W LFP Powercell for Audio Systems - 25 lbs, Maintenance Free, Sealed Design" src="https://m.media-amazon.com/images/I/41049jCTmKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D8V4QGNZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="XS Power XMAX90-DIY 8300 Amp High-Performance 12V Lithium Battery for In-Car Audio Competition - 12 Volt 90Ah 20,000W LFP Powercell for Audio Systems - 25 lbs, Maintenance Free, Sealed Design" src="https://m.media-amazon.com/images/I/41049jCTmKL._SL500_.jpg"/></a>
 
 
 The **XS Power XMAX90-DIY 8300 Amp High-Performance 12V Lithium Battery** is ideal for car audio enthusiasts and competitive sound system installers who demand reliable, high-capacity power sources. If you are looking to power intense **in-car audio competitions** or upgrade your vehicle’s audio system to deliver superior sound quality, this battery is designed specifically to meet those needs with robust performance and durability.
@@ -99,10 +99,10 @@ The **XS Power XMAX90-DIY** battery features advanced **Lithium Iron Phosphate (
 
 Additionally, the battery's compact and lightweight construction at just **25 pounds** makes it a convenient upgrade for enthusiasts who want to reduce vehicle weight while boosting power output. The high discharge rate of up to **20,000W** ensures consistent energy delivery for deep bass and crystal-clear sound quality. Whether for daily driving with enhanced audio or professional in-car audio competitions, the XS Power XMAX90-DIY provides reliable, high-performance power tailored to demanding users.
 
-## <a href="https://www.amazon.com/dp/B0B13TGGWR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Xs Power Psx30l Agm Battery</a>
+## <a href="https://www.amazon.com/dp/B0B13TGGWR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Xs Power Psx30l Agm Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B0B13TGGWR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="XS Power PSX30L 2,000 Amp AGM Battery with M6 Terminal Hardware - 12 Volt 32Ah 500CA Deep Cycle AGM Powersports Powercell for UTV, Motorcycle, Snowmobile - 21 lbs, Maintenance Free, Sealed Design" src="https://m.media-amazon.com/images/I/419jRwIX-PL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B13TGGWR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="XS Power PSX30L 2,000 Amp AGM Battery with M6 Terminal Hardware - 12 Volt 32Ah 500CA Deep Cycle AGM Powersports Powercell for UTV, Motorcycle, Snowmobile - 21 lbs, Maintenance Free, Sealed Design" src="https://m.media-amazon.com/images/I/419jRwIX-PL._SL500_.jpg"/></a>
 
 
 The **XS Power PSX30L 2,000 Amp AGM Battery** is perfect for enthusiasts who own **UTVs, motorcycles, or snowmobiles** and need a **reliable, high-performance power source**. It's especially suitable for those who frequently venture into rugged terrains or extreme weather conditions, where a **dependable battery** is crucial. This **deep cycle AGM battery** is ideal for individuals who prefer a **maintenance-free, sealed design** that can withstand the demands of power-intensive activities.
@@ -124,10 +124,10 @@ The **XS Power PSX30L battery** boasts impressive features, such as its **2,000 
 
 In addition to its powerful performance, the battery's **sealed, maintenance-free design** means you won't have to worry about regular upkeep, making it an ideal choice for busy individuals or those who prefer a hassle-free experience. Its **compact dimensions** and relatively lightweight nature make installation and handling easier, ensuring that you can get back to your adventures swiftly and efficiently.
 
-## <a href="https://www.amazon.com/dp/B0CWMY69CG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Limitless Lithium Noli Sodium 30ah Battery</a>
+## <a href="https://www.amazon.com/dp/B0CWMY69CG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Limitless Lithium Noli Sodium 30ah Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B0CWMY69CG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Limitless Lithium NoLi Sodium 30AH Battery for Car Audio Systems Up to 8,000W 10v-16v" src="https://m.media-amazon.com/images/I/41cnsfAax3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CWMY69CG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Limitless Lithium NoLi Sodium 30AH Battery for Car Audio Systems Up to 8,000W 10v-16v" src="https://m.media-amazon.com/images/I/41cnsfAax3L._SL500_.jpg"/></a>
 
 
 The **Limitless Lithium NoLi Sodium 30AH Battery** is ideal for car audio enthusiasts and professionals who demand high performance and reliability. If you are looking to power car audio systems with outputs up to **8,000W**, this battery is designed to deliver consistent and efficient energy within a wide voltage range of **10v-16v**. Perfect for users who want a compact, lightweight, yet powerful battery solution for their vehicle's audio needs.
@@ -150,10 +150,10 @@ The **Limitless Lithium NoLi Sodium 30AH Battery** stands out due to its innovat
 
 Additionally, the battery’s compact and lightweight design significantly eases the installation process in tight vehicle spaces without compromising power capacity. The trusted **Limitless Lithium** brand ensures rigorous manufacturing standards, providing users with a dependable and safe energy source. For car audio enthusiasts seeking superior performance, durability, and efficiency, this battery is a smart investment that supports powerful sound systems effortlessly.
 
-## <a href="https://www.amazon.com/dp/B0CRWT6N2M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Big Jeff Audio Compact 22ah 12v Lithium Lfp Battery</a>
+## <a href="https://www.amazon.com/dp/B0CRWT6N2M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Big Jeff Audio Compact 22ah 12v Lithium Lfp Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B0CRWT6N2M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Big Jeff Audio Compact 22AH 12V Lithium LFP Battery 6000W BJ-LI-22AH" src="https://m.media-amazon.com/images/I/41VmPATQ73L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CRWT6N2M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Big Jeff Audio Compact 22AH 12V Lithium LFP Battery 6000W BJ-LI-22AH" src="https://m.media-amazon.com/images/I/41VmPATQ73L._SL500_.jpg"/></a>
 
 
 The **Big Jeff Audio Compact 22AH 12V Lithium LFP Battery 6000W BJ-LI-22AH** is ideal for users seeking a reliable, high-capacity power source in a compact form. This battery is perfect for outdoor enthusiasts, RV owners, and anyone requiring a lightweight yet powerful energy solution for portable electronics, audio equipment, or backup power systems. If you prioritize durability, safety, and long-lasting performance, this battery is designed to meet those needs effectively.
@@ -175,10 +175,10 @@ The **Big Jeff Audio Compact 22AH 12V Lithium LFP Battery** combines impressive 
 
 Additionally, the battery's compact size and lightweight construction allow for easy integration into systems where space and weight are critical factors. Whether used for portable audio systems or as a backup power solution, the battery's efficient energy storage and delivery help users maintain continuous operation without frequent recharges. The trusted **Big Jeff Audio** brand also assures quality and support, making this battery a smart investment for those needing dependable power in a compact package.
 
-## <a href="https://www.amazon.com/dp/B08LQ27L6Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Xs Power Titan8 Pwr-s5</a>
+## <a href="https://www.amazon.com/dp/B08LQ27L6Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Xs Power Titan8 Pwr-s5</a>
 
 
-<a href="https://www.amazon.com/dp/B08LQ27L6Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="XS Power Titan8 PWR-S5, 12 Volt Lithium Titanate Car Audio Battery, 5000 Watts, 2000A, 10AH" src="https://m.media-amazon.com/images/I/41ZIw0D13zL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08LQ27L6Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="XS Power Titan8 PWR-S5, 12 Volt Lithium Titanate Car Audio Battery, 5000 Watts, 2000A, 10AH" src="https://m.media-amazon.com/images/I/41ZIw0D13zL._SL500_.jpg"/></a>
 
 
 The **XS Power Titan8 PWR-S5** is ideal for car audio enthusiasts and professionals seeking a reliable, high-performance power source. If you demand consistent and powerful energy delivery for your custom audio setups, especially in competitive or high-demand environments, this **12 Volt Lithium Titanate Car Audio Battery** is designed for you.
@@ -200,10 +200,10 @@ The **XS Power Titan8 PWR-S5** features cutting-edge **Lithium Titanate** batter
 
 Users benefit from the battery’s impressive **2000A peak current**, enabling quick bursts of power necessary for delivering clear, distortion-free sound during peak audio moments. With a robust **5000 Watt** power output, the Titan8 ensures your audio system operates at its optimal level. Additionally, the reputable **XS Power** manufacturing ensures durability and reliability, giving users peace of mind that their investment supports consistent, high-quality performance.
 
-## <a href="https://www.amazon.com/dp/B09BQSJPTB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Power Queen 12v 100ah Lifepo4 Battery Bci Group 31</a>
+## <a href="https://www.amazon.com/dp/B09BQSJPTB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Power Queen 12v 100ah Lifepo4 Battery Bci Group 31</a>
 
 
-<a href="https://www.amazon.com/dp/B09BQSJPTB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="power Queen 12V 100Ah LiFePO4 Battery BCI Group 31 Lithium Battery, Deep Cycle Battery with 100A BMS, 1280Wh Energy, Up to 15000 Cycles &amp; 10-Year Lifespan for Trailer RV, Motor Home, Marine" src="https://m.media-amazon.com/images/I/416JrpfrjML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09BQSJPTB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="power Queen 12V 100Ah LiFePO4 Battery BCI Group 31 Lithium Battery, Deep Cycle Battery with 100A BMS, 1280Wh Energy, Up to 15000 Cycles &amp; 10-Year Lifespan for Trailer RV, Motor Home, Marine" src="https://m.media-amazon.com/images/I/416JrpfrjML._SL500_.jpg"/></a>
 
 
 The **power Queen 12V 100Ah LiFePO4 Battery** is ideal for individuals seeking a reliable, long-lasting power source for their **trailer, RV, motor home, or marine** applications. If you need a lightweight yet powerful battery that offers deep cycling capability and exceptional lifespan, this battery is an excellent choice for outdoor enthusiasts, travelers, and professionals relying on off-grid power.
@@ -225,10 +225,10 @@ The **power Queen 12V 100Ah LiFePO4 Battery** stands out due to its advanced lit
 
 Additionally, the integrated **100A BMS** safeguards the battery against overcharging, overheating, and short circuits, ensuring reliable operation and prolonging battery life. The battery’s remarkable ability to handle up to **15,000 charge cycles** translates to years of dependable service, reducing the need for frequent replacements and offering excellent long-term value for users who demand consistent and sustainable power solutions.
 
-## <a href="https://www.amazon.com/dp/B005FYJ67O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Xs Power D6500 Agm Battery</a>
+## <a href="https://www.amazon.com/dp/B005FYJ67O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Xs Power D6500 Agm Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B005FYJ67O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="XS Power D6500 3800 Amp AGM Battery with M6 Terminal Hardware - 12 Volt 86Ah 1100CA Deep Cycle AGM Powercell for Car Audio Systems or Electronics - 53.81 lbs, Maintenance Free, Sealed Design" src="https://m.media-amazon.com/images/I/41PZqDbeBwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B005FYJ67O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="XS Power D6500 3800 Amp AGM Battery with M6 Terminal Hardware - 12 Volt 86Ah 1100CA Deep Cycle AGM Powercell for Car Audio Systems or Electronics - 53.81 lbs, Maintenance Free, Sealed Design" src="https://m.media-amazon.com/images/I/41PZqDbeBwL._SL500_.jpg"/></a>
 
 
 The **XS Power D6500 3800 Amp AGM Battery** is ideal for car audio enthusiasts and electronics users who demand reliable, high-performance power sources. If you need a maintenance-free, deep cycle battery with a sealed design that supports powerful amplifiers and sensitive electronics, this 12 Volt 86Ah battery is a perfect choice. Its robust construction is suited for those who want a durable, long-lasting battery that can handle heavy electrical loads without frequent upkeep.
@@ -251,10 +251,10 @@ The **XS Power D6500** features advanced Absorbent Glass Mat (AGM) technology th
 
 With an impressive 3800 Amp cranking power and 1100 Cold Cranking Amps (CA), this battery ensures strong and reliable starts even in challenging conditions. The integrated M6 terminal hardware facilitates secure and easy installation, while the battery’s robust build can withstand vibrations and shocks typical in automotive environments. Overall, the XS Power D6500 is designed to deliver dependable, long-lasting performance to users who require a high-capacity, maintenance-free power solution for their vehicles or electronic setups.
 
-## <a href="https://www.amazon.com/dp/B0C61ZD6D6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Reikken Pr1600</a>
+## <a href="https://www.amazon.com/dp/B0C61ZD6D6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Reikken Pr1600</a>
 
 
-<a href="https://www.amazon.com/dp/B0C61ZD6D6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Reikken PR1600 Energie 1600 Watt 12 Volt Power Cell" src="https://m.media-amazon.com/images/I/51ofaBRLA2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C61ZD6D6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Reikken PR1600 Energie 1600 Watt 12 Volt Power Cell" src="https://m.media-amazon.com/images/I/51ofaBRLA2L._SL500_.jpg"/></a>
 
 
 The **Reikken PR1600 Energie 1600 Watt 12 Volt Power Cell** is ideal for individuals seeking a reliable and portable power source for their vehicles, outdoor adventures, or emergency backup needs. This product suits those who require a high-capacity battery with durable construction and efficient energy output to keep their devices and equipment running smoothly.

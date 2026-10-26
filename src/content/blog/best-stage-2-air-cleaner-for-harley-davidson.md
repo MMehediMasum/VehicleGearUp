@@ -23,10 +23,10 @@ Popular choices include the XMMT Red Sucker, Arlen Ness Big Sucker Stage II, and
 
 
 
-## <a href="https://www.amazon.com/dp/B0B62XQDHB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Xmmt Red Sucker High Flow Stage 1 Air Cleaner Filter Intake Element</a>
+## <a href="https://www.amazon.com/dp/B0B62XQDHB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Xmmt Red Sucker High Flow Stage 1 Air Cleaner Filter Intake Element</a>
 
 
-<a href="https://www.amazon.com/dp/B0B62XQDHB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="XMMT Red Sucker High Flow Stage 1 Air Cleaner Filter Intake Element For Harley Big Twin Cam Touring 1999-2007, Softail 2000-2015 (except 2008-2016 Touring/Trike)" src="https://m.media-amazon.com/images/I/51V2XT9UPrL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B62XQDHB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="XMMT Red Sucker High Flow Stage 1 Air Cleaner Filter Intake Element For Harley Big Twin Cam Touring 1999-2007, Softail 2000-2015 (except 2008-2016 Touring/Trike)" src="https://m.media-amazon.com/images/I/51V2XT9UPrL._SL500_.jpg"/></a>
 
 
 The **XMMT Red Sucker High Flow Stage 1 Air Cleaner Filter Intake Element** is ideal for motorcycle enthusiasts and riders who own a **Harley Big Twin Cam Touring (1999-2007)** or **Softail (2000-2015)** model, excluding the 2008-2016 Touring/Trike versions. If you're looking to enhance your bike's performance with improved airflow and better engine efficiency, this air filter is a perfect upgrade for you.
@@ -48,10 +48,10 @@ The **XMMT Red Sucker High Flow Stage 1 Air Cleaner Filter** is engineered to ma
 
 Constructed by **XMMT**, a reputable manufacturer known for quality motorcycle parts, this air filter combines durability with efficiency. Its reusable nature means you can clean and maintain it easily, making it a cost-effective upgrade over disposable filters. Installing this filter can also contribute to a smoother throttle response, giving you a more enjoyable and responsive riding experience on your Harley.
 
-## <a href="https://www.amazon.com/dp/B0CNDDGWMN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Arlen Ness Big Sucker™ Stage Ii Air Cleaner</a>
+## <a href="https://www.amazon.com/dp/B0CNDDGWMN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Arlen Ness Big Sucker™ Stage Ii Air Cleaner</a>
 
 
-<a href="https://www.amazon.com/dp/B0CNDDGWMN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Arlen Ness Big Sucker™ Stage II Air Cleaner w/Smooth Cover - Black - 99-17 Twin Cam (Exc. FBW &amp; 99-01 FI FLT) - 50-820" src="https://m.media-amazon.com/images/I/51vqqRVFEpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CNDDGWMN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Arlen Ness Big Sucker™ Stage II Air Cleaner w/Smooth Cover - Black - 99-17 Twin Cam (Exc. FBW &amp; 99-01 FI FLT) - 50-820" src="https://m.media-amazon.com/images/I/51vqqRVFEpL._SL500_.jpg"/></a>
 
 
 The **Arlen Ness Big Sucker™ Stage II Air Cleaner with Smooth Cover** in black is ideal for motorcycle enthusiasts who own a 1999-2017 Twin Cam model (excluding FBW and 1999-2001 FI FLT). If you are looking to enhance your bike's performance while adding a sleek and custom look, this air cleaner is designed to meet those needs effectively. Riders seeking a reliable, high-quality air intake system that combines style and function will find this product particularly beneficial.
@@ -74,10 +74,10 @@ The **Arlen Ness Big Sucker™ Stage II Air Cleaner** features a smooth black co
 
 Constructed with durability in mind, this air cleaner withstands the rigors of regular use while maintaining its sleek appearance. Its compatibility with a wide range of Twin Cam models makes it a versatile upgrade for many riders. Overall, this product offers a combination of performance enhancement and style, making it a valuable addition for those looking to customize and improve their motorcycle’s engine breathing system.
 
-## <a href="https://www.amazon.com/dp/B0C4K9V322?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">High Performance Air Filter Hd-1508</a>
+## <a href="https://www.amazon.com/dp/B0C4K9V322?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">High Performance Air Filter Hd-1508</a>
 
 
-<a href="https://www.amazon.com/dp/B0C4K9V322?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="High Performance Air Filter HD-1508 For 2008-2013 Harley Davidson FLTRX Road Glide Custom, FLHR Road King, FLHRC, FLHTC Electra Glide" src="https://m.media-amazon.com/images/I/41gTvM-hGzL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C4K9V322?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="High Performance Air Filter HD-1508 For 2008-2013 Harley Davidson FLTRX Road Glide Custom, FLHR Road King, FLHRC, FLHTC Electra Glide" src="https://m.media-amazon.com/images/I/41gTvM-hGzL._SL500_.jpg"/></a>
 
 
 The **High Performance Air Filter HD-1508** is ideal for motorcycle enthusiasts who own a **2008-2013 Harley Davidson FLTRX Road Glide Custom, FLHR Road King, FLHRC, or FLHTC Electra Glide**. If you're looking to enhance your bike’s engine efficiency and overall performance, this air filter is designed specifically to meet the needs of riders seeking improved airflow and filtration for their Harley Davidson models.
@@ -99,10 +99,10 @@ The **High Performance Air Filter HD-1508** by **MINSTAR** is engineered to deli
 
 Besides boosting performance, the air filter’s durable design helps protect your engine from dust and debris, thereby extending the lifespan of your motorcycle’s internal components. Its tailored fit for popular Harley models from 2008-2013 ensures that you get a seamless upgrade without modifications. Overall, this filter is a reliable choice for riders who want to maintain peak engine performance and protect their investment.
 
-## <a href="https://www.amazon.com/dp/B0DDKBF6SD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lqito Air Cleaner Outer Cover Billet Steel Stage1 Big Sucker Smooth Stage Compatible With 1993-2023 Harley-davidson Chrome</a>
+## <a href="https://www.amazon.com/dp/B0DDKBF6SD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lqito Air Cleaner Outer Cover Billet Steel Stage1 Big Sucker Smooth Stage Compatible With 1993-2023 Harley-davidson Chrome</a>
 
 
-<a href="https://www.amazon.com/dp/B0DDKBF6SD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Lqito Air Cleaner Outer Cover Billet Steel Stage1 Big Sucker Smooth Stage Compatible With 1993-2023 Harley-Davidson Chrome Replace#18-760" src="https://m.media-amazon.com/images/I/31iysaEY9XL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DDKBF6SD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Lqito Air Cleaner Outer Cover Billet Steel Stage1 Big Sucker Smooth Stage Compatible With 1993-2023 Harley-Davidson Chrome Replace#18-760" src="https://m.media-amazon.com/images/I/31iysaEY9XL._SL500_.jpg"/></a>
 
 
 The **Lqito Air Cleaner Outer Cover** is an ideal purchase for **motorcycle enthusiasts** who own a **1993-2023 Harley-Davidson** and are looking to enhance both the aesthetics and performance of their bike. If you're someone who values a sleek design combined with durability and efficiency, this **chrome** outer cover is designed to meet your needs.
@@ -123,10 +123,10 @@ The **Lqito Air Cleaner Outer Cover** is crafted from **billet steel**, providin
 
 This outer cover is designed for **easy installation**, allowing you to upgrade your bike without requiring extensive mechanical skills or tools. Its compatibility with a wide array of **Harley-Davidson models** from **1993 to 2023** makes it a versatile choice for riders looking to boost their bike's performance and appearance. However, regular maintenance of the **chrome finish** is recommended to keep it looking its best, preserving the **smooth stage** appearance that riders appreciate.
 
-## <a href="https://www.amazon.com/dp/B0CPJ5BSGM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Harley Air Cleaner Filter Sportster Street Road Glide King For Harley Davidson Motorcycle Air Intake</a>
+## <a href="https://www.amazon.com/dp/B0CPJ5BSGM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Harley Air Cleaner Filter Sportster Street Road Glide King For Harley Davidson Motorcycle Air Intake</a>
 
 
-<a href="https://www.amazon.com/dp/B0CPJ5BSGM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="For harley air cleaner filter sportster street road glide king for harley davidson motorcycle air intake (Nake style -Black, A-For Sportster XL models)" src="https://m.media-amazon.com/images/I/41cUadnGKpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CPJ5BSGM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="For harley air cleaner filter sportster street road glide king for harley davidson motorcycle air intake (Nake style -Black, A-For Sportster XL models)" src="https://m.media-amazon.com/images/I/41cUadnGKpL._SL500_.jpg"/></a>
 
 
 The **For Harley Air Cleaner Filter Sportster Street Road Glide King** is an ideal choice for **Harley Davidson motorcycle** enthusiasts who want to enhance their bike's performance and style. Specifically designed for **Sportster XL models**, this air intake filter suits riders looking to improve airflow and engine efficiency while adding a sleek, black **nake style** aesthetic to their motorcycle.
@@ -148,10 +148,10 @@ This **TOPRAMETAL** air cleaner filter is engineered to optimize the air intake 
 
 In addition to performance benefits, the black **nake style** design adds a unique visual appeal to the motorcycle. The filter's robust build quality ensures long-lasting durability, even under tough riding conditions. This combination of aesthetics and functionality makes it a great investment for anyone wanting to maintain their Harley’s iconic look while upgrading its performance components.
 
-## <a href="https://www.amazon.com/dp/B000GZJDN4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Arlen Ness Stage Ii Standard Replacement Air Filter</a>
+## <a href="https://www.amazon.com/dp/B000GZJDN4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Arlen Ness Stage Ii Standard Replacement Air Filter</a>
 
 
-<a href="https://www.amazon.com/dp/B000GZJDN4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Arlen Ness Stage II Standard Replacement Air Filter 18-099" src="https://m.media-amazon.com/images/I/41lrM64cMXL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000GZJDN4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Arlen Ness Stage II Standard Replacement Air Filter 18-099" src="https://m.media-amazon.com/images/I/41lrM64cMXL._SL500_.jpg"/></a>
 
 
 The **Arlen Ness Stage II Standard Replacement Air Filter 18-099** is ideal for motorcycle enthusiasts and riders looking to enhance their bike's performance with a reliable and high-quality air filter. This product is perfect for those who want to maintain optimal engine efficiency and extend the lifespan of their motorcycle by ensuring clean airflow. Riders who value durability and easy maintenance will benefit the most from this replacement air filter.
@@ -173,10 +173,10 @@ The **Arlen Ness Stage II Standard Replacement Air Filter 18-099** boasts a stur
 
 With this replacement air filter, users can expect improved throttle response and smoother engine operation. The enhanced filtration system prevents dirt and debris from entering the engine, thus reducing wear and tear and prolonging engine life. Overall, this product offers a balanced combination of performance, durability, and style, making it a valuable upgrade for motorcycle owners seeking a dependable air filter solution.
 
-## <a href="https://www.amazon.com/dp/B09WHHNKN3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">High Performance Air Filter Hd-0800</a>
+## <a href="https://www.amazon.com/dp/B09WHHNKN3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">High Performance Air Filter Hd-0800</a>
 
 
-<a href="https://www.amazon.com/dp/B09WHHNKN3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="High Performance Air Filter HD-0800 For Harley Davidson 1999-2007 Dyna Series, 2000-2015 Softail Series and 1999-2007 Touring Models Equipped With High-Flow Cleaner Kit" src="https://m.media-amazon.com/images/I/31b1HgeCevL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09WHHNKN3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="High Performance Air Filter HD-0800 For Harley Davidson 1999-2007 Dyna Series, 2000-2015 Softail Series and 1999-2007 Touring Models Equipped With High-Flow Cleaner Kit" src="https://m.media-amazon.com/images/I/31b1HgeCevL._SL500_.jpg"/></a>
 
 
 The **High Performance Air Filter HD-0800** is ideal for motorcycle enthusiasts and riders who own Harley Davidson models from 1999 to 2007 Dyna Series, 2000 to 2015 Softail Series, or 1999 to 2007 Touring Models equipped with a high-flow cleaner kit. This air filter is perfect for those seeking to enhance their bike’s engine efficiency, improve airflow, and boost overall performance without compromising on durability.
@@ -198,10 +198,10 @@ The **High Performance Air Filter HD-0800** is engineered to maximize airflow th
 
 In addition to performance benefits, this air filter also contributes to the longevity of your engine by effectively filtering out dirt and debris. Its design minimizes airflow restrictions, providing a noticeable boost in throttle response and acceleration. Whether you’re a daily rider or a weekend cruiser, the HD-0800 model offers a reliable upgrade that enhances your Harley Davidson’s overall riding experience.
 
-## <a href="https://www.amazon.com/dp/B07BHBFR2C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">K&amp;n Cold Air Intake System</a>
+## <a href="https://www.amazon.com/dp/B07BHBFR2C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">K&amp;n Cold Air Intake System</a>
 
 
-<a href="https://www.amazon.com/dp/B07BHBFR2C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="K&amp;N Cold Air Intake System: High-Flow Air Filter, Increase Performance &amp; Acceleration: Compatible with 2001-2017 Harley Davidson: (See Product Description for Selected Models) RK-3953" src="https://m.media-amazon.com/images/I/41hP08rkKqS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07BHBFR2C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="K&amp;N Cold Air Intake System: High-Flow Air Filter, Increase Performance &amp; Acceleration: Compatible with 2001-2017 Harley Davidson: (See Product Description for Selected Models) RK-3953" src="https://m.media-amazon.com/images/I/41hP08rkKqS._SL500_.jpg"/></a>
 
 
 The **K&N Cold Air Intake System** is ideal for motorcycle enthusiasts and Harley Davidson owners looking to boost their bike's performance. Specifically designed for models from **2001 to 2017 Harley Davidson**, this product is perfect for riders who want to increase acceleration and improve engine efficiency with an easy-to-install upgrade. If you're seeking enhanced throttle response and a more powerful ride, this intake system is tailored for you.
@@ -224,10 +224,10 @@ The **K&N Cold Air Intake System** is engineered to optimize airflow into your H
 
 Constructed by **K&N Engineering**, a brand known for quality and reliability, this intake system offers durability and long-term performance benefits. Its lightweight design ensures that it doesn't add unnecessary weight, helping maintain your motorcycle's balance and handling. Whether you're a casual rider or a performance enthusiast, this intake system is a smart investment to unlock your Harley Davidson's true potential.
 
-## <a href="https://www.amazon.com/dp/B0CP87K2VD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Harley Air Cleaner Filter Touring Street Glide Road King Electra Tri Trike Dyna Sportster Xl 883 1200 Softail Air Intake</a>
+## <a href="https://www.amazon.com/dp/B0CP87K2VD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Harley Air Cleaner Filter Touring Street Glide Road King Electra Tri Trike Dyna Sportster Xl 883 1200 Softail Air Intake</a>
 
 
-<a href="https://www.amazon.com/dp/B0CP87K2VD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="For harley air cleaner filter Touring street glide road king electra tri trike Dyna Sportster XL 883 1200 Softail air intake (Drift style -Contrast Cut, C-For Touring 08-16, Softail 16-17)" src="https://m.media-amazon.com/images/I/41dTH4OPkcL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CP87K2VD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="For harley air cleaner filter Touring street glide road king electra tri trike Dyna Sportster XL 883 1200 Softail air intake (Drift style -Contrast Cut, C-For Touring 08-16, Softail 16-17)" src="https://m.media-amazon.com/images/I/41dTH4OPkcL._SL500_.jpg"/></a>
 
 
 The **For Harley Air Cleaner Filter Touring Street Glide Road King Electra Tri Trike Dyna Sportster XL 883 1200 Softail Air Intake** (Drift style - Contrast Cut, C-For Touring 08-16, Softail 16-17) is ideal for motorcycle enthusiasts looking to enhance the performance and aesthetics of their Harley-Davidson Touring or Softail models. This product is perfect for riders who want a reliable and stylish air intake system that boosts engine efficiency while maintaining a custom look.
@@ -250,10 +250,10 @@ This **air intake filter** by TOPRAMETAL is designed with precision to maximize 
 
 By improving the engine’s breathing capability, this air cleaner filter helps in delivering a more responsive throttle and smoother ride quality. Riders will appreciate the balance of performance and style, as the product offers a noticeable improvement in acceleration and fuel efficiency while contributing to the iconic Harley aesthetic. Overall, this air intake filter is a valuable addition for those seeking to enhance their Harley-Davidson's performance and appearance simultaneously.
 
-## <a href="https://www.amazon.com/dp/B0CZHMX2JD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Harley Davidson Stage 1 Air Filter</a>
+## <a href="https://www.amazon.com/dp/B0CZHMX2JD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Harley Davidson Stage 1 Air Filter</a>
 
 
-<a href="https://www.amazon.com/dp/B0CZHMX2JD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Harley Davidson Stage 1 Air Filter Air Cleaner cover 5.5” Big Sucker Center Hole" src="https://m.media-amazon.com/images/I/710kluy4j2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CZHMX2JD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Harley Davidson Stage 1 Air Filter Air Cleaner cover 5.5” Big Sucker Center Hole" src="https://m.media-amazon.com/images/I/710kluy4j2L._SL500_.jpg"/></a>
 
 
 The **Harley Davidson Stage 1 Air Filter Air Cleaner cover 5.5” Big Sucker Center Hole** is ideal for motorcycle enthusiasts and riders looking to enhance the performance of their Harley Davidson bikes. This product suits those who want to improve air intake efficiency, boost engine power, and add a custom look to their motorcycle with a reliable and high-quality air filter cover.

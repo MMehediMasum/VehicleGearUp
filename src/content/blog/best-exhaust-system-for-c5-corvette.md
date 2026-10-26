@@ -23,10 +23,10 @@ Some systems feature dual center or quad rear exit tips, enhancing the car’s a
 
 
 
-## <a href="https://www.amazon.com/dp/B01IFUGK8W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dna Motoring Cbe-cc97-57l-t8 Stainless Steel Cat Back Exhaust System</a>
+## <a href="https://www.amazon.com/dp/B01IFUGK8W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dna Motoring Cbe-cc97-57l-t8 Stainless Steel Cat Back Exhaust System</a>
 
 
-<a href="https://www.amazon.com/dp/B01IFUGK8W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="DNA MOTORING CBE-CC97-57L-T8 Stainless Steel Cat Back Exhaust System [Compatible with 97-04 Chevy Corvette V8 5.7L]" src="https://m.media-amazon.com/images/I/41Ay4ZqX2OL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01IFUGK8W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="DNA MOTORING CBE-CC97-57L-T8 Stainless Steel Cat Back Exhaust System [Compatible with 97-04 Chevy Corvette V8 5.7L]" src="https://m.media-amazon.com/images/I/41Ay4ZqX2OL._SL500_.jpg"/></a>
 
 
 The **DNA MOTORING CBE-CC97-57L-T8 Stainless Steel Cat Back Exhaust System** is ideal for automotive enthusiasts and owners of the **1997-2004 Chevy Corvette V8 5.7L** who want to enhance their vehicle's performance and sound. This product is perfect for those looking to upgrade their exhaust system with a durable and high-quality option that boosts horsepower and delivers a more aggressive exhaust note.
@@ -48,10 +48,10 @@ The **DNA MOTORING CBE-CC97-57L-T8 Cat Back Exhaust System** is crafted from pre
 
 Installation is straightforward thanks to the precise fitment tailored to the **1997-2004 Chevy Corvette V8 5.7L**. The bolt-on design eliminates the need for cutting or welding, making it accessible for many car enthusiasts. Additionally, the upgrade promotes better fuel efficiency by allowing the engine to breathe more freely. Overall, this exhaust system is a practical and effective upgrade for Corvette owners seeking enhanced performance and a bold exhaust note.
 
-## <a href="https://www.amazon.com/dp/B000CIMC74?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Borla 140039 Cat-back Performance Exhaust System</a>
+## <a href="https://www.amazon.com/dp/B000CIMC74?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Borla 140039 Cat-back Performance Exhaust System</a>
 
 
-<a href="https://www.amazon.com/dp/B000CIMC74?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img src="https://m.media-amazon.com/images/I/41p46jRL5dL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000CIMC74?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img src="https://m.media-amazon.com/images/I/41p46jRL5dL._SL500_.jpg"/></a>
 
 
 The **BORLA 140039 Cat-Back Performance Exhaust System** is ideal for **Chevrolet Corvette (C5) and Z06 (C5) V8** owners from model years **1997 to 2004** who are looking to enhance their vehicle’s exhaust sound, performance, and durability. Enthusiasts seeking a high-quality, aggressive exhaust note combined with superior craftsmanship and long-lasting materials will find this system perfect for their needs.
@@ -74,10 +74,10 @@ The **BORLA 140039 Cat-Back Exhaust System** features premium-grade **T-304 stai
 
 By utilizing advanced engineering and precise manufacturing, this exhaust system delivers a robust and deep exhaust note that enhances the driving experience without causing unpleasant cabin drone. The seamless integration with the vehicle ensures easy installation and a perfect fit, allowing Corvette owners to enjoy a noticeable performance upgrade and enhanced sound quality. Overall, the BORLA 140039 is a premium choice for enthusiasts aiming to boost their car’s performance and style.
 
-## <a href="https://www.amazon.com/dp/B0DTK9S71Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Kax Stainless Steel Cat Back Exhaust System</a>
+## <a href="https://www.amazon.com/dp/B0DTK9S71Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Kax Stainless Steel Cat Back Exhaust System</a>
 
 
-<a href="https://www.amazon.com/dp/B0DTK9S71Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="KAX Stainless Steel Cat Back Exhaust System Compatible with 1997-2004 Corvette" src="https://m.media-amazon.com/images/I/41j9E9iES7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DTK9S71Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="KAX Stainless Steel Cat Back Exhaust System Compatible with 1997-2004 Corvette" src="https://m.media-amazon.com/images/I/41j9E9iES7L._SL500_.jpg"/></a>
 
 
 The **KAX Stainless Steel Cat Back Exhaust System Compatible with 1997-2004 Corvette** is ideal for Corvette owners who are looking to enhance their vehicle's performance and sound quality. This product is perfect for automotive enthusiasts who want a durable, high-quality exhaust upgrade that delivers improved exhaust flow and a sportier exhaust note without compromising reliability. If you own a 1997-2004 Corvette and want to upgrade your exhaust system with a brand that combines performance and style, this is the right choice.
@@ -100,10 +100,10 @@ The **KAX Stainless Steel Cat Back Exhaust System** is built with precision and 
 
 This system not only boosts the performance of your Corvette by improving exhaust gas evacuation but also enhances the sound profile, giving your car a sporty and aggressive tone that enthusiasts appreciate. The balance of sound and performance makes it a valuable upgrade for daily drivers and weekend racers alike. While installation might be best handled by professionals, the benefits of improved horsepower, torque, and exhaust tone make the investment worthwhile for serious Corvette owners.
 
-## <a href="https://www.amazon.com/dp/B0DQPVC9Y2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Philtop Cat-back System</a>
+## <a href="https://www.amazon.com/dp/B0DQPVC9Y2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Philtop Cat-back System</a>
 
 
-<a href="https://www.amazon.com/dp/B0DQPVC9Y2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PHILTOP Cat-Back System, Stainless Steel Cat Back Exhaust System Fit for 1997-2004 Corvette" src="https://m.media-amazon.com/images/I/419UbIlEjAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DQPVC9Y2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PHILTOP Cat-Back System, Stainless Steel Cat Back Exhaust System Fit for 1997-2004 Corvette" src="https://m.media-amazon.com/images/I/419UbIlEjAL._SL500_.jpg"/></a>
 
 
 The **PHILTOP Cat-Back System** is an ideal purchase for **Corvette enthusiasts** and owners of the **1997-2004 Corvette** models who are looking to enhance their vehicle's performance and sound. This exhaust system is perfect for those seeking to replace their existing system with a high-quality, durable option that promises improved exhaust flow and a more aggressive exhaust note. If you're someone who prioritizes performance upgrades and enjoys the thrill of a roaring engine, this product is tailored for you.
@@ -124,10 +124,10 @@ The **PHILTOP Cat-Back System** is crafted from **high-quality stainless steel**
 
 One of the standout features of this exhaust system is its ability to significantly enhance the **vehicle's performance**. By optimizing the exhaust flow, it allows the engine to breathe more efficiently, which can lead to an increase in horsepower and torque. This is particularly beneficial for those who use their Corvette for track days or spirited driving sessions. Additionally, the **aggressive exhaust note** not only turns heads but also adds an exciting dimension to the driving experience, making every journey a memorable one.
 
-## <a href="https://www.amazon.com/dp/B000CIMC6A?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Borla 140038 Cat-back Perf. Exhaust System For 1997-2004 Chevrolet Corvette (c5) V8 &amp; Z06 (c5) V8</a>
+## <a href="https://www.amazon.com/dp/B000CIMC6A?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Borla 140038 Cat-back Perf. Exhaust System For 1997-2004 Chevrolet Corvette (c5) V8 &amp; Z06 (c5) V8</a>
 
 
-<a href="https://www.amazon.com/dp/B000CIMC6A?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BORLA 140038 Cat-Back Perf. Exhaust System for 1997-2004 Chevrolet Corvette (C5) V8 &amp; Z06 (C5) V8 T-304 Stainless Steel S-Type Classic Dual Center Rear Exit Dual 4" src="https://m.media-amazon.com/images/I/413z7QwcxxL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000CIMC6A?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BORLA 140038 Cat-Back Perf. Exhaust System for 1997-2004 Chevrolet Corvette (C5) V8 &amp; Z06 (C5) V8 T-304 Stainless Steel S-Type Classic Dual Center Rear Exit Dual 4" src="https://m.media-amazon.com/images/I/413z7QwcxxL._SL500_.jpg"/></a>
 
 
 The **BORLA 140038 Cat-Back Performance Exhaust System** is ideal for automotive enthusiasts and Chevrolet Corvette owners, specifically those with the **1997-2004 Corvette (C5) V8** and **Z06 (C5) V8** models. If you're looking to enhance your vehicle's exhaust flow, improve horsepower, and enjoy a deeper, more aggressive exhaust note without sacrificing quality, this exhaust system is designed for you. It's perfect for drivers who prioritize both performance and style in their car upgrades.
@@ -150,10 +150,10 @@ The **BORLA 140038 Cat-Back Exhaust System** features premium-grade **T-304 stai
 
 Additionally, the polished dual 4-inch round tips on each side provide a stylish and aggressive look that complements the Corvette’s sporty character. Borla's meticulous engineering ensures an exact fit, preserving the vehicle's integrity while delivering significant performance benefits. Whether you're cruising or pushing your Corvette to its limits, this exhaust system offers an impressive sound profile and performance boost that appeals to true car enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B00KTT0GMO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Auto Dynasty Quad Rolled Muffler Tip Catback Exhaust System</a>
+## <a href="https://www.amazon.com/dp/B00KTT0GMO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Auto Dynasty Quad Rolled Muffler Tip Catback Exhaust System</a>
 
 
-<a href="https://www.amazon.com/dp/B00KTT0GMO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Auto Dynasty 3.75 Inches Quad Rolled Muffler Tip Catback Exhaust System Compatible with 97-04 Chevy Corvette C5 LS1 LS6, Stainless Steel" src="https://m.media-amazon.com/images/I/41LWuzbp4aL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00KTT0GMO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Auto Dynasty 3.75 Inches Quad Rolled Muffler Tip Catback Exhaust System Compatible with 97-04 Chevy Corvette C5 LS1 LS6, Stainless Steel" src="https://m.media-amazon.com/images/I/41LWuzbp4aL._SL500_.jpg"/></a>
 
 
 The **Auto Dynasty 3.75 Inches Quad Rolled Muffler Tip Catback Exhaust System** is an ideal upgrade for **Chevy Corvette C5 owners** from model years **1997 to 2004** equipped with **LS1 or LS6 engines**. Enthusiasts looking to enhance their vehicle’s sound, performance, and aesthetics will find this exhaust system a perfect fit. Whether you’re a casual driver wanting a sportier exhaust note or a performance-minded individual seeking improved exhaust flow, this system caters to both needs.
@@ -175,10 +175,10 @@ The **Auto Dynasty Catback Exhaust System** boasts high-quality **stainless stee
 
 Designed specifically for the **Chevy Corvette C5**, this exhaust system guarantees a precise fit, eliminating common installation headaches. The deep, refined exhaust note it produces elevates the auditory experience, making every drive more engaging. Additionally, its relatively lightweight design means it won’t add unnecessary weight to your vehicle, preserving your Corvette’s agility and handling characteristics.
 
-## <a href="https://www.amazon.com/dp/B000CIGAWC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Borla 60087 Performance Exhaust Merge X-pipe</a>
+## <a href="https://www.amazon.com/dp/B000CIGAWC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Borla 60087 Performance Exhaust Merge X-pipe</a>
 
 
-<a href="https://www.amazon.com/dp/B000CIGAWC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BORLA 60087 Performance Exhaust Merge X-Pipe 1997-2007 Chevrolet Corvette (C5) V8 &amp; Corvette Z06 (C5) V8 2.5" src="https://m.media-amazon.com/images/I/317I77KXqFL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000CIGAWC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BORLA 60087 Performance Exhaust Merge X-Pipe 1997-2007 Chevrolet Corvette (C5) V8 &amp; Corvette Z06 (C5) V8 2.5" src="https://m.media-amazon.com/images/I/317I77KXqFL._SL500_.jpg"/></a>
 
 
 The **BORLA 60087 Performance Exhaust Merge X-Pipe** is ideal for automotive enthusiasts and owners of the **1997-2007 Chevrolet Corvette (C5) V8** and **Corvette Z06 (C5) V8** models who want to enhance their vehicle's performance and exhaust sound. If you are looking to improve exhaust flow, increase horsepower, and achieve a deep, aggressive tone, this high-quality aftermarket exhaust component is designed specifically for you.
@@ -202,10 +202,10 @@ The **BORLA 60087 Merge X-Pipe** is engineered from premium **T-304 stainless st
 
 Beyond performance gains, the **BORLA 60087 X-Pipe** delivers an enhanced exhaust sound that is deeper and more aggressive, providing an exhilarating driving experience. The lightweight nature of the assembly at just **18 pounds** means it adds minimal weight to your vehicle, which helps maintain handling characteristics. Overall, this X-pipe is a smart upgrade for Corvette owners seeking both performance and auditory improvements with a reliable, high-quality product from a trusted brand.
 
-## <a href="https://www.amazon.com/dp/B07Z5RTCQG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Srs Catback Exhaust Compatible For 1997-2004 Chevy Corvette C5/z06 Ls 5.7l</a>
+## <a href="https://www.amazon.com/dp/B07Z5RTCQG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Srs Catback Exhaust Compatible For 1997-2004 Chevy Corvette C5/z06 Ls 5.7l</a>
 
 
-<a href="https://www.amazon.com/dp/B07Z5RTCQG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img src="https://m.media-amazon.com/images/I/41ihXqZwymL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07Z5RTCQG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img src="https://m.media-amazon.com/images/I/41ihXqZwymL._SL500_.jpg"/></a>
 
 
 The **SRS Catback Exhaust Compatible/Replacement for 1997-2004 CHEVY CORVETTE C5/Z06 LS 5.7L QUAD 4"** is ideal for Corvette enthusiasts and car owners looking to enhance their vehicle's performance and sound. If you own a **1997-2004 Chevrolet Corvette C5 or Z06 with an LS 5.7L engine** and want a high-quality, direct-fit exhaust system upgrade, this product is designed specifically for you. It is perfect for those who appreciate improved exhaust flow, a more aggressive exhaust note, and increased horsepower without compromising the OEM fitment.
@@ -228,10 +228,10 @@ The **SRS Catback Exhaust** is engineered to optimize the performance of the Che
 
 Constructed by **SR**S Tuning****, this exhaust system is built with premium materials to ensure durability and longevity under demanding conditions. Its direct-fit design means it installs easily without the need for major modifications, preserving the vehicle's factory alignment and performance. Overall, this exhaust system is a worthwhile investment for Corvette owners looking to boost performance, sound quality, and style in one comprehensive upgrade.
 
-## <a href="https://www.amazon.com/dp/B07HF61CQM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Auto Dynasty Quad 4.25 Inches Oval Muffler Tip Catback Exhaust System</a>
+## <a href="https://www.amazon.com/dp/B07HF61CQM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Auto Dynasty Quad 4.25 Inches Oval Muffler Tip Catback Exhaust System</a>
 
 
-<a href="https://www.amazon.com/dp/B07HF61CQM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Auto Dynasty Quad 4.25 Inches Oval Muffler Tip Catback Exhaust System Compatible with Chevy Corvette 97-04, Stainless Steel" src="https://m.media-amazon.com/images/I/41e-IetfGXL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07HF61CQM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Auto Dynasty Quad 4.25 Inches Oval Muffler Tip Catback Exhaust System Compatible with Chevy Corvette 97-04, Stainless Steel" src="https://m.media-amazon.com/images/I/41e-IetfGXL._SL500_.jpg"/></a>
 
 
 The **Auto Dynasty Quad 4.25 Inches Oval Muffler Tip Catback Exhaust System** is an excellent choice for **Chevy Corvette owners from 1997 to 2004** looking to enhance their vehicle's performance and sound. Ideal for car enthusiasts who want a combination of style, durability, and improved exhaust flow, this system fits perfectly for those aiming to upgrade their exhaust without compromising quality.
@@ -253,10 +253,10 @@ The **Auto Dynasty Catback Exhaust System** stands out with its robust **stainle
 
 By optimizing the exhaust flow, this system helps the **Chevy Corvette** achieve a more powerful and refined sound profile, which is a significant benefit for performance enthusiasts. The precise fitment guarantees no leaks or installation issues, making it a seamless upgrade that enhances both the look and feel of the vehicle. Overall, it combines functional performance improvements with a visually appealing design for Corvette owners who demand quality and style.
 
-## <a href="https://www.amazon.com/dp/B001M0XR3Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Eurosport Daytona</a>
+## <a href="https://www.amazon.com/dp/B001M0XR3Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Eurosport Daytona</a>
 
 
-<a href="https://www.amazon.com/dp/B001M0XR3Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Eurosport Daytona- Compatible with 1997-2004 C5 Exhaust Enhancer Plate - C5 Flags (Stainless Steel)" src="https://m.media-amazon.com/images/I/312j6Dh9lBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B001M0XR3Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Eurosport Daytona- Compatible with 1997-2004 C5 Exhaust Enhancer Plate - C5 Flags (Stainless Steel)" src="https://m.media-amazon.com/images/I/312j6Dh9lBL._SL500_.jpg"/></a>
 
 
 The **Eurosport Daytona Compatible Exhaust Enhancer Plate** is an ideal upgrade for owners of **1997-2004 C5 Corvettes** who are looking to improve their vehicle’s exhaust system performance while adding a sleek, durable touch. This product is perfect for automotive enthusiasts and C5 owners who value both aesthetics and enhanced exhaust sound quality. If you want a hassle-free installation with a robust, stainless steel design, this exhaust enhancer plate is tailored for you.

@@ -23,10 +23,10 @@ Each offers unique features like gas charging or monotube design for smooth ride
 
 
 
-## <a href="https://www.amazon.com/dp/B07YZPVKZ2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rough Country 0-2" N3 Rear Shocks For 99-16 Ford Super Duty</a>
+## <a href="https://www.amazon.com/dp/B07YZPVKZ2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rough Country 0-2" N3 Rear Shocks For 99-16 Ford Super Duty</a>
 
 
-<a href="https://www.amazon.com/dp/B07YZPVKZ2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rough Country 0-2" src="https://m.media-amazon.com/images/I/31LJcn4qMqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07YZPVKZ2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rough Country 0-2" src="https://m.media-amazon.com/images/I/31LJcn4qMqL._SL500_.jpg"/></a>
 
 
 The **Rough Country 0-2" N3 Rear Shocks for 99-16 Ford Super Duty** are ideal for truck owners looking to improve their vehicle's ride quality and off-road performance. If you own a **Ford Super Duty** from 1999 to 2016 and want enhanced suspension that can handle rough terrains while maintaining a smooth drive, these shocks are designed for you. Perfect for both daily drivers and off-road enthusiasts, they provide a reliable upgrade to your truck’s rear suspension system.
@@ -49,10 +49,10 @@ The **Rough Country 0-2" N3 Rear Shocks** are engineered to enhance your truck�
 
 Additionally, the silver coating not only adds to the aesthetic appeal but also protects the shocks from rust and wear over time, increasing their longevity. The lightweight design ensures that your truck’s performance is not compromised by added weight, while the compatibility with 1999-2016 Ford Super Duty models guarantees an easy, bolt-on installation. Overall, these rear shocks provide a balanced combination of durability, performance, and style for serious truck owners.
 
-## <a href="https://www.amazon.com/dp/B01F81291I?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Bilstein 5100 Series Rear Shocks</a>
+## <a href="https://www.amazon.com/dp/B01F81291I?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Bilstein 5100 Series Rear Shocks</a>
 
 
-<a href="https://www.amazon.com/dp/B01F81291I?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Bilstein 5100 Series Pair of Rear Shocks fits 1999 2016 F250 &amp; F350 Super Duty with 0-2” Rear Lift - High Performance - Strong &amp; Durable Quality - Easy Installation" src="https://m.media-amazon.com/images/I/31kUKeXpjnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01F81291I?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Bilstein 5100 Series Pair of Rear Shocks fits 1999 2016 F250 &amp; F350 Super Duty with 0-2” Rear Lift - High Performance - Strong &amp; Durable Quality - Easy Installation" src="https://m.media-amazon.com/images/I/31kUKeXpjnL._SL500_.jpg"/></a>
 
 
 The **Bilstein 5100 Series Pair of Rear Shocks** is ideal for owners of **1999 to 2016 Ford F250 and F350 Super Duty trucks** who have a rear lift of 0-2 inches and are seeking a **high-performance suspension upgrade**. If you want to improve your truck’s handling, durability, and ride quality with an easy-to-install solution, this product is designed specifically for you.
@@ -75,10 +75,10 @@ The **Bilstein 5100 Series Rear Shocks** feature a robust construction with dime
 
 With their strong and durable build, these shocks are designed to withstand the rigors of heavy-duty use. The improved shock damping helps maintain tire contact with the road, enhancing traction and safety. Their easy installation process means you can upgrade your truck’s suspension without professional help or extensive modifications, making it a practical choice for both enthusiasts and everyday drivers looking for reliable performance enhancements.
 
-## <a href="https://www.amazon.com/dp/B0DPWQG8TJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Maxpeedingrods Rear Shock Absorbers For Ford F-250 F-350 Super Duty</a>
+## <a href="https://www.amazon.com/dp/B0DPWQG8TJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Maxpeedingrods Rear Shock Absorbers For Ford F-250 F-350 Super Duty</a>
 
 
-<a href="https://www.amazon.com/dp/B0DPWQG8TJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="maXpeedingrods 0-2" src="https://m.media-amazon.com/images/I/31ybXcnb-yL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DPWQG8TJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="maXpeedingrods 0-2" src="https://m.media-amazon.com/images/I/31ybXcnb-yL._SL500_.jpg"/></a>
 
 
 The **maXpeedingrods 0-2" Rear Shock Absorbers** are ideal for owners of **Ford F-250 and F-350 Super Duty 4WD and RWD models from 1999 to 2016** who are looking to enhance their vehicle's suspension performance. This upgraded version, known as the **G1 Upgraded Version**, is perfect for drivers who require improved ride comfort, better handling, and increased durability on various terrains. Whether you use your truck for heavy-duty work or off-road adventures, these shock absorbers are designed to meet the demands of tough driving conditions.
@@ -100,10 +100,10 @@ The **maXpeedingrods Rear Shock Absorbers** feature precise dimensions of approx
 
 By upgrading to the **G1 version**, users benefit from improved damping characteristics that translate into better handling and less wear on other suspension components. This upgrade not only improves driving comfort but also supports safer vehicle control, especially when carrying heavy loads or towing. The shock absorbers' compatibility with both 4WD and RWD models adds versatility for a wide range of Ford Super Duty owners seeking to maintain or enhance their truck's performance.
 
-## <a href="https://www.amazon.com/dp/B0CSSGJF8L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">A-premium Rear Pair Shock Absorber Compatible With Ford Super Duty</a>
+## <a href="https://www.amazon.com/dp/B0CSSGJF8L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">A-premium Rear Pair Shock Absorber Compatible With Ford Super Duty</a>
 
 
-<a href="https://www.amazon.com/dp/B0CSSGJF8L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="A-Premium Rear Pair (2) Shock Absorber Compatible with Ford F-250 F250 Super Duty 2005-2016, F-350 F350 Super Duty 2008-2016, F-450 F450 Super Duty 2011-2016, Driver and Passenger Side" src="https://m.media-amazon.com/images/I/41qGw5FbmzL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CSSGJF8L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="A-Premium Rear Pair (2) Shock Absorber Compatible with Ford F-250 F250 Super Duty 2005-2016, F-350 F350 Super Duty 2008-2016, F-450 F450 Super Duty 2011-2016, Driver and Passenger Side" src="https://m.media-amazon.com/images/I/41qGw5FbmzL._SL500_.jpg"/></a>
 
 
 For those who own a **Ford F-250, F-350, or F-450 Super Duty** from the specified model years and are looking to enhance their vehicle's suspension system, the **A-Premium Rear Pair Shock Absorber** is an ideal choice. This product is designed for drivers who prioritize comfort and performance, ensuring a smooth and controlled ride even on rough terrains.
@@ -124,10 +124,10 @@ The **A-Premium Rear Pair Shock Absorber** is engineered to provide enhanced sus
 
 Furthermore, these shock absorbers are crafted with high-quality materials that contribute to their **durability** and **longevity**. With an easy installation process, they allow users to replace their old or worn-out shocks without much hassle. As a result, drivers experience improved handling and safety, making this product a worthy investment for enhancing the overall driving experience of your Ford Super Duty.
 
-## <a href="https://www.amazon.com/dp/B07YZQ1RJ2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rough Country Rear Shocks</a>
+## <a href="https://www.amazon.com/dp/B07YZQ1RJ2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rough Country Rear Shocks</a>
 
 
-<a href="https://www.amazon.com/dp/B07YZQ1RJ2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rough Country 0-4.5" src="https://m.media-amazon.com/images/I/31LJcn4qMqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07YZQ1RJ2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rough Country 0-4.5" src="https://m.media-amazon.com/images/I/31LJcn4qMqL._SL500_.jpg"/></a>
 
 
 The **Rough Country 0-4.5" N3 Rear Shocks for 17-24 Ford Super Duty - 23190\_A** is ideal for truck owners looking to improve their vehicle's suspension performance, especially those who frequently drive on rough terrain or carry heavy loads. If you own a **2017 to 2024 Ford Super Duty** and want enhanced stability, comfort, and control, these shocks are designed specifically to meet your needs.
@@ -149,10 +149,10 @@ These **Rough Country Rear Shocks** feature a height of **3.0 inches**, width of
 
 Additionally, the shocks' design enhances vehicle stability by maintaining better tire contact with the road surface, which directly improves handling and safety. Whether you are hauling equipment or navigating off-road paths, these shocks contribute to a controlled and confident driving experience. By investing in the **Rough Country 0-4.5" N3 Rear Shocks**, you ensure your Ford Super Duty stays reliable and performs optimally under demanding conditions.
 
-## <a href="https://www.amazon.com/dp/B09S5DWCD4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ocpty Rear Shock Absorbers For Ford F-250 And F-350 Super Duty</a>
+## <a href="https://www.amazon.com/dp/B09S5DWCD4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ocpty Rear Shock Absorbers For Ford F-250 And F-350 Super Duty</a>
 
 
-<a href="https://www.amazon.com/dp/B09S5DWCD4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OCPTY Rear Shock Absorbers for Ford Fits 2005 2006 2007 2008 2009 2010 2011 2012 for Ford for F-250 Super Duty,2005-2007 for Ford for F-350 Super Duty 349146-2pcs Struts Shocks" src="https://m.media-amazon.com/images/I/31okLwogz+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09S5DWCD4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OCPTY Rear Shock Absorbers for Ford Fits 2005 2006 2007 2008 2009 2010 2011 2012 for Ford for F-250 Super Duty,2005-2007 for Ford for F-350 Super Duty 349146-2pcs Struts Shocks" src="https://m.media-amazon.com/images/I/31okLwogz+L._SL500_.jpg"/></a>
 
 
 The **OCPTY Rear Shock Absorbers** are ideal for owners of **Ford F-250 Super Duty** and **F-350 Super Duty** trucks from model years **2005 to 2012** who seek reliable and durable suspension upgrades. If you frequently drive on rough terrains or carry heavy loads, these shock absorbers will help enhance your vehicle's stability and ride comfort.
@@ -174,10 +174,10 @@ The **OCPTY Rear Shock Absorbers** feature robust construction tailored to the d
 
 Additionally, the shocks’ durable black coating protects against rust and environmental damage, extending their lifespan and maintaining optimal performance over time. By upgrading to the OCPTY rear shocks, users benefit from enhanced vehicle stability, reduced wear on other suspension components, and improved handling, especially when hauling heavy loads or towing. This makes them a practical and cost-effective choice for truck owners seeking dependable suspension upgrades.
 
-## <a href="https://www.amazon.com/dp/B0CRSL9F52?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Trendsauto 5100 Series Pair Of Rear Monotube Shocks</a>
+## <a href="https://www.amazon.com/dp/B0CRSL9F52?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Trendsauto 5100 Series Pair Of Rear Monotube Shocks</a>
 
 
-<a href="https://www.amazon.com/dp/B0CRSL9F52?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="TrendsAuto 5100 Series Pair of Rear Monotube Shocks fits 2005-2016 F250 F350 Super Duty 4WD with 4" src="https://m.media-amazon.com/images/I/3113YBSpvaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CRSL9F52?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="TrendsAuto 5100 Series Pair of Rear Monotube Shocks fits 2005-2016 F250 F350 Super Duty 4WD with 4" src="https://m.media-amazon.com/images/I/3113YBSpvaL._SL500_.jpg"/></a>
 
 
 The **TrendsAuto 5100 Series Pair of Rear Monotube Shocks** is ideal for truck owners who drive a **2005-2016 F250 or F350 Super Duty 4WD** equipped with a **4" rear lift**. This product is perfect for those looking to improve their vehicle’s ride quality, handling, and stability, especially when navigating rough terrain or carrying heavy loads. If you want durable, high-performance shocks that can withstand demanding conditions while enhancing your truck's off-road capabilities, these shocks are an excellent choice.
@@ -200,10 +200,10 @@ The **TrendsAuto 5100 Series Rear Monotube Shocks** feature a robust design tail
 
 Additionally, these shocks are precision-engineered to match the specific suspension geometry of the **F250 and F350 Super Duty 4WD models with a 4" rear lift**. This ensures optimal performance and compatibility, reducing wear and tear on other suspension components. The included **TrendsAuto decal** adds a touch of style, making it clear that your vehicle is equipped with premium aftermarket parts designed for enhanced performance and durability.
 
-## <a href="https://www.amazon.com/dp/B07YZQZCBR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rough Country Rear Shock Absorbers For Ford F-250/f-350</a>
+## <a href="https://www.amazon.com/dp/B07YZQZCBR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rough Country Rear Shock Absorbers For Ford F-250/f-350</a>
 
 
-<a href="https://www.amazon.com/dp/B07YZQZCBR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rough Country 2.5-4.5" src="https://m.media-amazon.com/images/I/31cnuCNNzRL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07YZQZCBR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rough Country 2.5-4.5" src="https://m.media-amazon.com/images/I/31cnuCNNzRL._SL500_.jpg"/></a>
 
 
 The **Rough Country 2.5-4.5" N3 Rear Shock Absorbers** are ideal for truck owners who drive **1999-2016 Ford F-250 and F-350** models and seek to improve their vehicle’s rear suspension performance. This product is perfect for those who frequently carry heavy loads, tow trailers, or navigate rough terrains, providing enhanced stability and comfort. If you want to upgrade your truck’s shock absorbers with a reliable and durable solution, this item is designed for you.
@@ -226,10 +226,10 @@ The **Rough Country 2.5-4.5" N3 Rear Shock Absorbers** feature a robust design m
 
 Additionally, these shock absorbers contribute to better stability while carrying heavy payloads or towing, reducing body roll and improving traction. Their sturdy build minimizes wear and tear, ensuring a longer lifespan even under demanding use. The product’s relatively lightweight design does not compromise durability, making it easier to handle during installation or replacement. Overall, the Rough Country rear shocks are a smart upgrade for Ford truck owners seeking enhanced suspension performance and reliability.
 
-## <a href="https://www.amazon.com/dp/B083FC87CV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rancho Rs5000x Gas Shocks Rear Pair</a>
+## <a href="https://www.amazon.com/dp/B083FC87CV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rancho Rs5000x Gas Shocks Rear Pair</a>
 
 
-<a href="https://www.amazon.com/dp/B083FC87CV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rancho RS5000X Gas Shocks Rear Pair for 2005-2016 Ford F-250 Super Duty 4WD" src="https://m.media-amazon.com/images/I/31U7iee2wDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B083FC87CV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rancho RS5000X Gas Shocks Rear Pair for 2005-2016 Ford F-250 Super Duty 4WD" src="https://m.media-amazon.com/images/I/31U7iee2wDL._SL500_.jpg"/></a>
 
 
 The **Rancho RS5000X Gas Shocks Rear Pair** are ideal for owners of **2005-2016 Ford F-250 Super Duty 4WD** trucks who demand enhanced suspension performance and durability. Whether you use your truck for heavy-duty hauling, off-road adventures, or daily driving, these shocks are designed to provide superior control and stability, making them perfect for those seeking to improve ride quality and vehicle handling under tough conditions.
@@ -252,10 +252,10 @@ The **Rancho RS5000X Gas Shocks Rear Pair** feature a robust design with a heigh
 
 Additionally, the white finish not only offers a clean, professional look but also protects against corrosion and wear, extending the lifespan of the shocks. These shocks improve the overall driving experience by reducing body roll and improving traction, which enhances safety and confidence behind the wheel. For Ford F-250 Super Duty 4WD owners looking to upgrade their suspension system, the Rancho RS5000X is a reliable and effective choice.
 
-## <a href="https://www.amazon.com/dp/B0D98PBQVC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Trendsauto Rs5000x Series Set Of Front &amp; Rear Gas Shocks</a>
+## <a href="https://www.amazon.com/dp/B0D98PBQVC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Trendsauto Rs5000x Series Set Of Front &amp; Rear Gas Shocks</a>
 
 
-<a href="https://www.amazon.com/dp/B0D98PBQVC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img src="https://m.media-amazon.com/images/I/41bOKCPRW-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D98PBQVC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img src="https://m.media-amazon.com/images/I/41bOKCPRW-L._SL500_.jpg"/></a>
 
 
 The **TrendsAuto RS5000X Series Set of Front & Rear Gas Shocks** is ideal for truck owners who drive a **2017 to 2024 Ford F250 or F350 Super Duty 4WD** with no lift or a 0" lift. This product is perfect for those seeking to enhance their vehicle’s **handling and performance** on various terrains while maintaining a smooth and controlled ride. If you want reliable, durable shocks designed specifically for your heavy-duty truck, this set is an excellent choice.

@@ -23,10 +23,10 @@ Many models include useful features like LED headlights and USB charging ports f
 
 
 
-## <a href="https://www.amazon.com/dp/B0FF2Z6CK4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Mioox Electric Scooter </a>
+## <a href="https://www.amazon.com/dp/B0FF2Z6CK4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Mioox Electric Scooter </a>
 
 
-<a href="https://www.amazon.com/dp/B0FF2Z6CK4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MIOOX Electric Scooter with 48V 30AH Lithium Battery, 60-80km Range, 45km/h Speed, Disc &amp; Drum Brakes, LED or LCD Headlight, Comfortable Seat, Non-RTO, 3-Year Battery Warranty (Red)" src="https://m.media-amazon.com/images/I/41tOIuLd-hL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FF2Z6CK4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MIOOX Electric Scooter with 48V 30AH Lithium Battery, 60-80km Range, 45km/h Speed, Disc &amp; Drum Brakes, LED or LCD Headlight, Comfortable Seat, Non-RTO, 3-Year Battery Warranty (Red)" src="https://m.media-amazon.com/images/I/41tOIuLd-hL._SL500_.jpg"/></a>
 
 
 The **MIOOX Electric Scooter with 48V 30AH Lithium Battery** is ideal for urban commuters, eco-conscious riders, and anyone looking for a reliable, efficient, and comfortable mode of transportation. If you want to avoid traffic congestion, reduce your carbon footprint, and enjoy a smooth ride with impressive speed and range, this electric scooter is designed for you. Its combination of power, safety features, and comfort makes it perfect for daily commuting and leisure rides alike.
@@ -52,10 +52,10 @@ The **MIOOX Electric Scooter** features a powerful **48V 30AH Lithium Battery** 
 
 Comfort has also been prioritized with a well-padded seat, making longer rides more enjoyable and less tiring. The inclusion of either an **LED or LCD headlight** improves visibility during night rides or low-light conditions, increasing safety. Additionally, the scooter’s **non-RTO** status simplifies the registration process and reduces ownership costs. Overall, this electric scooter balances performance, safety, and comfort, catering well to urban riders seeking an eco-friendly and efficient transportation solution.
 
-## <a href="https://www.amazon.com/dp/B0FGNQRGML?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mioox Electric Scooter Mes-02</a>
+## <a href="https://www.amazon.com/dp/B0FGNQRGML?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mioox Electric Scooter Mes-02</a>
 
 
-<a href="https://www.amazon.com/dp/B0FGNQRGML?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MIOOX Electric Scooter with 48V 30AH Lithium Battery, 60-80km Range, 45km/h Speed, Disc &amp; Drum Brakes, LED or LCD Headlight, Comfortable Seat, Non-RTO, 3-Year Battery Warranty - MES-02 (White)" src="https://m.media-amazon.com/images/I/41Vu9XbF+CL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FGNQRGML?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MIOOX Electric Scooter with 48V 30AH Lithium Battery, 60-80km Range, 45km/h Speed, Disc &amp; Drum Brakes, LED or LCD Headlight, Comfortable Seat, Non-RTO, 3-Year Battery Warranty - MES-02 (White)" src="https://m.media-amazon.com/images/I/41Vu9XbF+CL._SL500_.jpg"/></a>
 
 
 The **MIOOX Electric Scooter with 48V 30AH Lithium Battery** is ideal for urban commuters and eco-conscious riders looking for a reliable and efficient mode of transportation. If you want a scooter that offers a long range, decent speed, and comfortable riding experience without worrying about registration hassles, this scooter is a perfect fit.
@@ -79,10 +79,10 @@ The **MIOOX Electric Scooter MES-02** is engineered to deliver an impressive bal
 
 Comfort and usability are key features of this scooter. The well-padded **comfortable seat** allows for longer journeys without discomfort, while the bright **LED or LCD headlight** ensures visibility during night rides. Additionally, the scooter's **non-RTO status** simplifies the ownership process by eliminating registration requirements. Backed by a **3-year battery warranty**, the MIOOX Electric Scooter offers peace of mind alongside its practical design and performance.
 
-## <a href="https://www.amazon.com/dp/B0F1TJS6MQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Godaup Electric Scooter</a>
+## <a href="https://www.amazon.com/dp/B0F1TJS6MQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Godaup Electric Scooter</a>
 
 
-<a href="https://www.amazon.com/dp/B0F1TJS6MQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GODAUP Electric Scooter for Women &amp; Students | 60km Range | No License/RTO | 250W Motor | Wide Foot Deck E-Bike (Green), for Adult" src="https://m.media-amazon.com/images/I/41tQBArrw+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F1TJS6MQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GODAUP Electric Scooter for Women &amp; Students | 60km Range | No License/RTO | 250W Motor | Wide Foot Deck E-Bike (Green), for Adult" src="https://m.media-amazon.com/images/I/41tQBArrw+L._SL500_.jpg"/></a>
 
 
 The **GODAUP Electric Scooter for Women & Students** is ideal for those seeking a convenient and eco-friendly mode of transportation without the hassle of licenses or registration. Perfect for **adults** who commute short to medium distances, especially **students** and **women** looking for a lightweight, easy-to-use e-bike with a stylish design and reliable performance.
@@ -106,10 +106,10 @@ The **GODAUP Electric Scooter** boasts a **250W motor** that ensures efficient p
 
 With a robust **60km range**, this e-bike minimizes the need for frequent recharging, enabling users to travel longer distances on a single charge. Additionally, the fact that it requires **no license or RTO registration** simplifies ownership, especially for younger riders and those new to electric scooters. The vibrant **green color** adds a fresh and modern aesthetic, appealing to style-conscious commuters.
 
-## <a href="https://www.amazon.com/dp/B09MN75D6R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gigaglitz Coco Electric Scooter</a>
+## <a href="https://www.amazon.com/dp/B09MN75D6R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gigaglitz Coco Electric Scooter</a>
 
 
-<a href="https://www.amazon.com/dp/B09MN75D6R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gigaglitz Coco Electric Scooter with Big Wheels - Will Come to You by Transport in 9-12 Days from Order in Nearest Warehouse - Multicolor" src="https://m.media-amazon.com/images/I/41o8owoBkrL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09MN75D6R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gigaglitz Coco Electric Scooter with Big Wheels - Will Come to You by Transport in 9-12 Days from Order in Nearest Warehouse - Multicolor" src="https://m.media-amazon.com/images/I/41o8owoBkrL._SL500_.jpg"/></a>
 
 
 The **Gigaglitz Coco Electric Scooter with Big Wheels** is ideal for urban commuters and recreational riders seeking a reliable, stylish, and comfortable electric scooter. Perfect for those who want to navigate city streets or parks with ease, this scooter caters to both teenagers and adults looking for an eco-friendly and efficient mode of transportation. Its multicolor design and robust build make it appealing for users who value both performance and aesthetics.
@@ -132,10 +132,10 @@ The **Gigaglitz Coco Electric Scooter with Big Wheels** boasts large wheels that
 
 Another standout feature is its vibrant multicolor design, which not only adds to the aesthetic appeal but also enhances visibility for safety during low-light conditions. Being manufactured by a reputable brand like **Gigaglitz** in **Zhejiang, China** assures users of durable materials and reliable engineering. Overall, this electric scooter combines functionality, style, and user-friendly dimensions, making it a great choice for daily commuting and leisure rides alike.
 
-## <a href="https://www.amazon.com/dp/B0FDK6BDT6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ultrabikes Roar Electric Scooter</a>
+## <a href="https://www.amazon.com/dp/B0FDK6BDT6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ultrabikes Roar Electric Scooter</a>
 
 
-<a href="https://www.amazon.com/dp/B0FDK6BDT6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ULTRABIKES Roar Electric Scooter with 60V 32 AH Lithium Ion Battery | 2 Year Warranty on Battery | 70 KM Range on Single Charge | 3 Speed Modes | USB Charging Facility (Green)" src="https://m.media-amazon.com/images/I/41+GA2qoU2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FDK6BDT6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ULTRABIKES Roar Electric Scooter with 60V 32 AH Lithium Ion Battery | 2 Year Warranty on Battery | 70 KM Range on Single Charge | 3 Speed Modes | USB Charging Facility (Green)" src="https://m.media-amazon.com/images/I/41+GA2qoU2L._SL500_.jpg"/></a>
 
 
 The **ULTRABIKES Roar Electric Scooter** is ideal for urban commuters, eco-conscious riders, and anyone seeking a reliable and efficient mode of transportation. If you want a scooter that combines long-range capability with versatile speed options and modern features, this green electric scooter is a perfect choice. It suits individuals who need a convenient daily travel solution that balances power, durability, and smart technology.
@@ -157,10 +157,10 @@ The **ULTRABIKES Roar Electric Scooter** stands out due to its robust **60V 32 A
 
 Designed with both performance and durability in mind, this electric scooter’s substantial size and weight contribute to a stable and comfortable ride, even on uneven surfaces. The **2 year warranty** on the battery provides added assurance regarding the longevity and reliability of the scooter. Whether navigating city streets or suburban roads, the ULTRABIKES Roar Electric Scooter offers a blend of power, flexibility, and innovative features that cater to modern riders looking for an eco-friendly transport solution.
 
-## <a href="https://www.amazon.com/dp/B0DNCLN2XL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ultrabikes Zeal Plus Electric Scooter</a>
+## <a href="https://www.amazon.com/dp/B0DNCLN2XL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ultrabikes Zeal Plus Electric Scooter</a>
 
 
-<a href="https://www.amazon.com/dp/B0DNCLN2XL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ULTRABIKES Zeal Plus Electric Scooter with 60V 25AH Lithium Ion Battery | 2 Year Warranty on Battery | 60 KM Range on Single Charge | 3 Speed Modes | USB Charging Facility I 55 KMPH TOP Speed (Black)" src="https://m.media-amazon.com/images/I/51ZAQ1SMqnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DNCLN2XL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ULTRABIKES Zeal Plus Electric Scooter with 60V 25AH Lithium Ion Battery | 2 Year Warranty on Battery | 60 KM Range on Single Charge | 3 Speed Modes | USB Charging Facility I 55 KMPH TOP Speed (Black)" src="https://m.media-amazon.com/images/I/51ZAQ1SMqnL._SL500_.jpg"/></a>
 
 
 The **ULTRABIKES Zeal Plus Electric Scooter** is an ideal choice for urban commuters seeking an eco-friendly and efficient mode of transportation. It's perfect for those who value speed, reliability, and modern features in their daily commute. Whether you're a student, a professional, or someone who simply wants to navigate through city traffic with ease, this electric scooter is designed to meet your needs.
@@ -182,10 +182,10 @@ The **ULTRABIKES Zeal Plus Electric Scooter** features a robust **60V 25AH Lithi
 
 Equipped with **three distinct speed modes**, the scooter offers flexibility for different riding conditions, whether you're navigating through crowded city streets or cruising on open roads. The **USB charging facility** is an added convenience, allowing riders to charge their electronic devices while on the move, ensuring you stay connected. The sleek **black design** adds a touch of elegance, although the limited color option may not cater to everyone's taste. However, for those who prioritize performance and features over aesthetics, the **ULTRABIKES Zeal Plus** is a compelling choice.
 
-## <a href="https://www.amazon.com/dp/B0FK5ZQY42?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mioox Electric Scooter</a>
+## <a href="https://www.amazon.com/dp/B0FK5ZQY42?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mioox Electric Scooter</a>
 
 
-<a href="https://www.amazon.com/dp/B0FK5ZQY42?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MIOOX Electric Scooter with 48V 30AH Lithium Battery, 120-140km Range, 45km/h Speed, Disc &amp; Drum Brakes, LED or LCD Headlight, Comfortable Seat, Non-RTO, 3-Year Battery Warranty (Red)" src="https://m.media-amazon.com/images/I/415eYNY5RLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FK5ZQY42?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MIOOX Electric Scooter with 48V 30AH Lithium Battery, 120-140km Range, 45km/h Speed, Disc &amp; Drum Brakes, LED or LCD Headlight, Comfortable Seat, Non-RTO, 3-Year Battery Warranty (Red)" src="https://m.media-amazon.com/images/I/415eYNY5RLL._SL500_.jpg"/></a>
 
 
 The **MIOOX Electric Scooter** is perfect for urban commuters and eco-conscious riders looking for a reliable, long-range, and comfortable electric scooter. If you want to replace short car trips or public transport with an efficient and stylish mode of transportation, this scooter is ideal for you. It suits daily commuters, students, and anyone seeking a non-RTO electric vehicle with impressive performance and durability.
@@ -210,10 +210,10 @@ Featuring a powerful **48V 30AH lithium battery**, the MIOOX Electric Scooter of
 
 Beyond performance, the scooter's design focuses on rider comfort with a well-padded **comfortable seat** and intuitive controls. The option between **LED or LCD headlights** improves visibility during night rides, increasing safety. Being a **non-RTO vehicle**, it simplifies the ownership process, while the **3-year battery warranty** guarantees long-term reliability, making the MIOOX Electric Scooter a smart investment for daily transportation needs.
 
-## <a href="https://www.amazon.com/dp/B0DY1Y9734?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ultrabikes Roar Electric Scooter</a>
+## <a href="https://www.amazon.com/dp/B0DY1Y9734?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ultrabikes Roar Electric Scooter</a>
 
 
-<a href="https://www.amazon.com/dp/B0DY1Y9734?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ULTRABIKES Roar Electric Scooter With 60V 24AH Lithium Ion Battery|2 Year Warranty On Battery|60 KM Range On Single Charge|3 Speed Modes|USB Charging Facility I 50 KMPH TOP Speed (Black),for Adult" src="https://m.media-amazon.com/images/I/41w7d8OPDvL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DY1Y9734?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ULTRABIKES Roar Electric Scooter With 60V 24AH Lithium Ion Battery|2 Year Warranty On Battery|60 KM Range On Single Charge|3 Speed Modes|USB Charging Facility I 50 KMPH TOP Speed (Black),for Adult" src="https://m.media-amazon.com/images/I/41w7d8OPDvL._SL500_.jpg"/></a>
 
 
 The **ULTRABIKES Roar Electric Scooter** is ideal for adults seeking a powerful and reliable mode of urban transportation. Whether you are a daily commuter, a weekend explorer, or someone who values eco-friendly travel, this scooter offers excellent performance with convenience and style. Its robust features make it perfect for those who want a long-range, fast, and versatile electric scooter to navigate city streets efficiently.
@@ -237,10 +237,10 @@ The **ULTRABIKES Roar Electric Scooter** stands out with its powerful **60V 24AH
 
 Designed with a top speed of **50 KMPH**, this scooter caters to riders who value speed without compromising on stability and safety. The robust build, complemented by a **2-year warranty on the battery**, offers reliability and confidence to users investing in this product. While the scooter's weight and size are significant, these factors contribute to its durability and performance, making it a smart choice for serious adult riders looking for an efficient and stylish electric scooter.
 
-## <a href="https://www.amazon.com/dp/B0DGVXW3XC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Zeal Plus Adult Electric Scooter</a>
+## <a href="https://www.amazon.com/dp/B0DGVXW3XC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Zeal Plus Adult Electric Scooter</a>
 
 
-<a href="https://www.amazon.com/dp/B0DGVXW3XC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Zeal Plus Adult Electric Scooter With 25Ah Lithium Ion Battery | 2 Year Warranty On Battery | 60 Km Range On Single Charge | 3 Speed Modes | USB Charging Facility (Black)" src="https://m.media-amazon.com/images/I/41OjyKfnKwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DGVXW3XC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Zeal Plus Adult Electric Scooter With 25Ah Lithium Ion Battery | 2 Year Warranty On Battery | 60 Km Range On Single Charge | 3 Speed Modes | USB Charging Facility (Black)" src="https://m.media-amazon.com/images/I/41OjyKfnKwL._SL500_.jpg"/></a>
 
 
 The **Zeal Plus Adult Electric Scooter** is ideal for urban commuters, college students, and anyone seeking an eco-friendly and efficient mode of transportation. Those who value portability, a long-lasting battery, and versatile speed options will find this scooter a perfect fit for daily travel and leisure rides.
@@ -262,10 +262,10 @@ The **Zeal Plus Adult Electric Scooter** boasts a powerful **25Ah lithium-ion ba
 
 Additionally, the integrated **USB charging facility** is a thoughtful feature for modern users who need to keep their smartphones or other devices charged while on the move. Despite its slightly heavier weight and larger dimensions, the scooter's exceptional battery life and performance make it an excellent investment for users prioritizing efficiency and convenience in their daily transportation needs.
 
-## <a href="https://www.amazon.com/dp/B0DV12Z5XY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ultrabikes Roar Electric Scooter</a>
+## <a href="https://www.amazon.com/dp/B0DV12Z5XY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ultrabikes Roar Electric Scooter</a>
 
 
-<a href="https://www.amazon.com/dp/B0DV12Z5XY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ULTRABIKES Roar Electric Scooter with 48V 32AH Lithium Ion Battery | 2 Year Warranty on Battery | 80 KM Range on Single Charge | 3 Speed Modes | USB Charging Facility I 45 KMPH TOP Speed (Yellow)" src="https://m.media-amazon.com/images/I/51DInkt9-IL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DV12Z5XY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ULTRABIKES Roar Electric Scooter with 48V 32AH Lithium Ion Battery | 2 Year Warranty on Battery | 80 KM Range on Single Charge | 3 Speed Modes | USB Charging Facility I 45 KMPH TOP Speed (Yellow)" src="https://m.media-amazon.com/images/I/51DInkt9-IL._SL500_.jpg"/></a>
 
 
 The **ULTRABIKES Roar Electric Scooter** is ideal for urban commuters and electric scooter enthusiasts looking for a reliable, high-performance ride. If you need an eco-friendly transportation option with a long range, fast speed, and multiple speed settings, this scooter is designed to meet your daily travel needs efficiently.

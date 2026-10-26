@@ -23,10 +23,10 @@ Lead-acid, AGM, gel, and lithium-ion batteries all have pros and cons for invert
 
 
 
-## <a href="https://www.amazon.com/dp/B07GNGTBDM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ysolx 500w Power Inverter</a>
+## <a href="https://www.amazon.com/dp/B07GNGTBDM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ysolx 500w Power Inverter</a>
 
 
-<a href="https://www.amazon.com/dp/B07GNGTBDM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="YSOLX 500W Power Inverter DC 12V to 110V AC Converter with 2 USB Ports and 2 AC Outlet, Car Charger Adpater for Road Trip and Camping" src="https://m.media-amazon.com/images/I/512r4r+nh0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07GNGTBDM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="YSOLX 500W Power Inverter DC 12V to 110V AC Converter with 2 USB Ports and 2 AC Outlet, Car Charger Adpater for Road Trip and Camping" src="https://m.media-amazon.com/images/I/512r4r+nh0L._SL500_.jpg"/></a>
 
 
 The **YSOLX 500W Power Inverter** is ideal for travelers, campers, and anyone who needs a reliable way to convert **DC 12V** power from a car battery into **110V AC** electricity. If you often find yourself on road trips or outdoor adventures where access to traditional power outlets is limited, this device is designed for you. Its compact size and multiple charging options make it perfect for powering small appliances, electronic devices, and USB gadgets on the go.
@@ -49,10 +49,10 @@ The **YSOLX 500W Power Inverter** features a robust build with dimensions of 8.6
 
 The design emphasizes user convenience and safety, with clear indicators and multiple output options. The dual AC outlets enable you to power more than one appliance at a time, perfect for camping setups or emergency situations. Its sturdy red casing ensures durability and easy spotting in your gear. Overall, the **YSOLX 500W Power Inverter** is an essential accessory for anyone who needs dependable power conversion while on the road or in the wild.
 
-## <a href="https://www.amazon.com/dp/B0DS3V7L7F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">220w Power Inverter For Dewalt 20v Battery</a>
+## <a href="https://www.amazon.com/dp/B0DS3V7L7F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">220w Power Inverter For Dewalt 20v Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B0DS3V7L7F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="220W Power Inverter for Dewalt 20V Battery, DC 20V to AC 110V Battery Inverter, Portable Power Station Generator with 1 AC Outlet, 2 USB Ports &amp; 1 Type-C Fast Charging, 400LM LED Work Light" src="https://m.media-amazon.com/images/I/510avOxQ1NL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DS3V7L7F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="220W Power Inverter for Dewalt 20V Battery, DC 20V to AC 110V Battery Inverter, Portable Power Station Generator with 1 AC Outlet, 2 USB Ports &amp; 1 Type-C Fast Charging, 400LM LED Work Light" src="https://m.media-amazon.com/images/I/510avOxQ1NL._SL500_.jpg"/></a>
 
 
 The **220W Power Inverter for Dewalt 20V Battery** is ideal for DIY enthusiasts, professionals, and outdoor adventurers who need a reliable and portable power source. If you own Dewalt 20V batteries and require a convenient way to convert DC power to AC power for tools, gadgets, or charging devices on the go, this inverter is the perfect companion. It’s especially useful for those working in remote locations or without easy access to traditional power outlets.
@@ -73,10 +73,10 @@ The **PlantPalGear 220W Power Inverter** offers a seamless way to power AC devic
 
 Additionally, the built-in **400LM LED work light** adds an extra layer of functionality, making it easier to work in dark or confined spaces. The inverter’s compact and sturdy design allows you to carry it effortlessly, ensuring that power is always within reach. Whether you’re tackling a home improvement project, camping, or managing an outdoor event, this portable power station generator delivers reliable performance and convenience.
 
-## <a href="https://www.amazon.com/dp/B0DCJL6P5Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Belttt 3000w Pure Sine Wave Inverter</a>
+## <a href="https://www.amazon.com/dp/B0DCJL6P5Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Belttt 3000w Pure Sine Wave Inverter</a>
 
 
-<a href="https://www.amazon.com/dp/B0DCJL6P5Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BELTTT 3000W Pure Sine Wave Inverter 12V DC to 120V AC for RV, Truck, Off-Grid, Home, Solar Car Power Inverter with Dual AC, 20A Socket, 5V 2.1A USB, Hardwire Port, Remote Controller 23Ft Cable" src="https://m.media-amazon.com/images/I/51-Ti3gPxFL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DCJL6P5Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BELTTT 3000W Pure Sine Wave Inverter 12V DC to 120V AC for RV, Truck, Off-Grid, Home, Solar Car Power Inverter with Dual AC, 20A Socket, 5V 2.1A USB, Hardwire Port, Remote Controller 23Ft Cable" src="https://m.media-amazon.com/images/I/51-Ti3gPxFL._SL500_.jpg"/></a>
 
 
 The **BELTTT 3000W Pure Sine Wave Inverter** is ideal for individuals who require a reliable and powerful power conversion solution for their **RV, truck, off-grid setups, home, or solar car**. If you need to convert **12V DC** to **120V AC** efficiently while maintaining clean and stable power output, this inverter is designed to meet those needs. It is perfect for outdoor enthusiasts, travelers, and homeowners seeking an uninterrupted power supply for sensitive electronics and appliances.
@@ -99,10 +99,10 @@ The BELTTT 3000W Pure Sine Wave Inverter stands out with its ability to deliver 
 
 Additionally, the inverter’s **remote controller with a 23-foot cable** enhances user convenience by allowing remote monitoring and control, especially useful in vehicle or off-grid applications where direct access to the inverter may be limited. Its compact yet sturdy design balances portability with durability, making it suitable for both stationary and mobile power needs. Overall, this inverter offers a comprehensive solution for anyone looking to maintain steady and clean power in diverse environments.
 
-## <a href="https://www.amazon.com/dp/B0DHGX4Y9F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">220w Azocek Power Inverter</a>
+## <a href="https://www.amazon.com/dp/B0DHGX4Y9F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">220w Azocek Power Inverter</a>
 
 
-<a href="https://www.amazon.com/dp/B0DHGX4Y9F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="220W Azocek Power Inverter Compatible with Milwaukee 18V Battery, DC 18V to AC 110V Portable Power Station with 1 AC Outlet, 2 USB Ports &amp; 1 Type-C Fast Charging, 400LM LED Work Light" src="https://m.media-amazon.com/images/I/41hDCWP8UmL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DHGX4Y9F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="220W Azocek Power Inverter Compatible with Milwaukee 18V Battery, DC 18V to AC 110V Portable Power Station with 1 AC Outlet, 2 USB Ports &amp; 1 Type-C Fast Charging, 400LM LED Work Light" src="https://m.media-amazon.com/images/I/41hDCWP8UmL._SL500_.jpg"/></a>
 
 
 The **220W Azocek Power Inverter** is the perfect solution for those who often find themselves on the go and require a reliable power source. Whether you are a frequent camper, traveler, or someone who needs a portable power backup for tools and gadgets, this inverter is designed for you. It is especially ideal for DIY enthusiasts and professionals who utilize **Milwaukee 18V batteries** and need to convert **DC 18V to AC 110V** seamlessly.
@@ -122,10 +122,10 @@ The **Azocek Power Inverter** stands out for its ability to provide multiple pow
 
 Additionally, the inclusion of a **400LM LED Work Light** is a thoughtful addition, providing a practical solution for working in dimly lit environments. Whether you're camping under the stars or working on a project in your garage, this feature ensures you have the light you need. The **Azocek Power Inverter** is not only a power source but also a reliable companion in various scenarios.
 
-## <a href="https://www.amazon.com/dp/B0CQ2MHKJ5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">200w Power Inverter Compatible With Dewalt Dc 20v To Ac 110-120v</a>
+## <a href="https://www.amazon.com/dp/B0CQ2MHKJ5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">200w Power Inverter Compatible With Dewalt Dc 20v To Ac 110-120v</a>
 
 
-<a href="https://www.amazon.com/dp/B0CQ2MHKJ5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="200W Power Inverter Compatible with Dewalt, DC 20V to AC 110-120V Battery Inverter, Portable Power Station Generator, Charger Adapter Battery Powered Outlet with 2 USB Ports &amp; 1 Type-C &amp; 1 AC Outlet" src="https://m.media-amazon.com/images/I/41P5fSYzemL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CQ2MHKJ5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="200W Power Inverter Compatible with Dewalt, DC 20V to AC 110-120V Battery Inverter, Portable Power Station Generator, Charger Adapter Battery Powered Outlet with 2 USB Ports &amp; 1 Type-C &amp; 1 AC Outlet" src="https://m.media-amazon.com/images/I/41P5fSYzemL._SL500_.jpg"/></a>
 
 
 The **200W Power Inverter Compatible with Dewalt** is ideal for professionals and DIY enthusiasts who need a reliable and portable power source on the go. If you frequently work on job sites or need to power small electronic devices using your Dewalt 20V batteries, this inverter is designed for you. It is perfect for those looking to convert DC power from a Dewalt battery into AC power for charging and running devices without access to traditional power outlets.
@@ -147,10 +147,10 @@ This **portable power station generator** offers a convenient solution to power 
 
 Additionally, the inclusion of multiple charging ports such as 2 USB ports and 1 Type-C port alongside the AC outlet enhances its versatility. This means you can simultaneously charge smartphones, tablets, laptops, or power tools with ease. The **LIVOWALNY** power inverter is a perfect accessory for those who need a dependable and portable power source for outdoor work, camping, or emergency backup, ensuring you stay powered up no matter where you are.
 
-## <a href="https://www.amazon.com/dp/B0CPDGXT5H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Pro Chaser 400w Power Inverters For Vehicles</a>
+## <a href="https://www.amazon.com/dp/B0CPDGXT5H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Pro Chaser 400w Power Inverters For Vehicles</a>
 
 
-<a href="https://www.amazon.com/dp/B0CPDGXT5H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Pro Chaser 400W Power Inverters for Vehicles - DC 12v to AC 110v Car Inverter Converter, 6.2A Dual USB Charging Ports, Dual AC Adapter for Laptops Air Compressor" src="https://m.media-amazon.com/images/I/41MNF0L0feL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CPDGXT5H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Pro Chaser 400W Power Inverters for Vehicles - DC 12v to AC 110v Car Inverter Converter, 6.2A Dual USB Charging Ports, Dual AC Adapter for Laptops Air Compressor" src="https://m.media-amazon.com/images/I/41MNF0L0feL._SL500_.jpg"/></a>
 
 
 The **Pro Chaser 400W Power Inverter** is perfect for travelers, outdoor enthusiasts, and anyone who needs reliable power on the go. If you own a vehicle and require a convenient way to convert your car’s **DC 12V power** to standard **AC 110V** outlets, this inverter is an ideal choice. It’s especially suited for those who want to charge laptops, run small electronics, or power devices like air compressors while on the road.
@@ -172,10 +172,10 @@ The **Pro Chaser 400W Power Inverter** features a compact footprint measuring ju
 
 Additionally, the inclusion of dual **USB charging ports** with a combined 6.2A output means you can simultaneously charge smartphones, tablets, or other USB-powered devices without needing extra adapters. This makes the inverter a versatile and convenient power solution for road trips, camping, or emergency situations where access to traditional power sources is limited.
 
-## <a href="https://www.amazon.com/dp/B082V5TC11?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Twing Car 1000w Inverter</a>
+## <a href="https://www.amazon.com/dp/B082V5TC11?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Twing Car 1000w Inverter</a>
 
 
-<a href="https://www.amazon.com/dp/B082V5TC11?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="TWING Car 1000w Inverter,12v DC to 110v Power Inverters for Vehicles 1000 watt with Dual AC Outlets 3.0A USB and Type-C,12 Volt Inverter Car Cigarette Lighter Battery" src="https://m.media-amazon.com/images/I/41kndFhr88L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B082V5TC11?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="TWING Car 1000w Inverter,12v DC to 110v Power Inverters for Vehicles 1000 watt with Dual AC Outlets 3.0A USB and Type-C,12 Volt Inverter Car Cigarette Lighter Battery" src="https://m.media-amazon.com/images/I/41kndFhr88L._SL500_.jpg"/></a>
 
 
 The **TWING Car 1000w Inverter** is ideal for drivers and travelers who need a reliable power source on the go. Whether you frequently use electronic devices during road trips, work remotely from your vehicle, or require emergency power backup, this inverter is designed to convert your vehicle’s **12v DC** power into usable **110v AC** electricity efficiently. It is perfect for anyone looking to power multiple devices safely and conveniently while on the road.
@@ -198,10 +198,10 @@ The **TWING Car 1000w Inverter** boasts a robust power output of **1000 watts**,
 
 Designed with portability in mind, the inverter’s compact size and lightweight build make it easy to store and transport within any vehicle. Installation is straightforward, as it plugs directly into the **car cigarette lighter** or can be connected to the vehicle’s battery for more stable power delivery. The bright red color not only adds a stylish touch but also helps users quickly locate the device when needed. Overall, this inverter offers an efficient and practical solution for in-car power needs.
 
-## <a href="https://www.amazon.com/dp/B082TMBYR6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jackery Portable Power Station Explorer 300</a>
+## <a href="https://www.amazon.com/dp/B082TMBYR6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jackery Portable Power Station Explorer 300</a>
 
 
-<a href="https://www.amazon.com/dp/B082TMBYR6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Jackery Portable Power Station Explorer 300, 293Wh Backup Lithium Battery, Solar Generator for Outdoors Camping Travel Hunting Blackout (Solar Panel Optional)" src="https://m.media-amazon.com/images/I/511uY4VGxyS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B082TMBYR6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Jackery Portable Power Station Explorer 300, 293Wh Backup Lithium Battery, Solar Generator for Outdoors Camping Travel Hunting Blackout (Solar Panel Optional)" src="https://m.media-amazon.com/images/I/511uY4VGxyS._SL500_.jpg"/></a>
 
 
 The **Jackery Portable Power Station Explorer 300** is ideal for outdoor enthusiasts, campers, travelers, and anyone in need of a reliable backup power source during blackouts. Its compact design and substantial **293Wh lithium battery** make it perfect for those who require portable and efficient power on the go without the hassle of traditional generators. Whether you’re hunting, camping, or simply preparing for emergencies, this power station offers a versatile and eco-friendly solution.
@@ -224,10 +224,10 @@ The **Jackery Explorer 300** boasts a sleek and durable design with dimensions t
 
 Beyond its technical specifications, the Explorer 300 stands out for its quiet operation and ease of use, eliminating the noise and fumes commonly associated with traditional generators. This feature makes it especially suitable for camping and indoor backup during blackouts. The compact weight and size also mean it can be easily stored or carried without burden, providing peace of mind for those who prioritize portability without sacrificing power. Overall, the Jackery Portable Power Station Explorer 300 delivers a dependable, versatile, and green energy solution for a wide range of users.
 
-## <a href="https://www.amazon.com/dp/B0CQ4Q6WB9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">200w Portable Power Inverter For Dewalt 20v</a>
+## <a href="https://www.amazon.com/dp/B0CQ4Q6WB9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">200w Portable Power Inverter For Dewalt 20v</a>
 
 
-<a href="https://www.amazon.com/dp/B0CQ4Q6WB9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="200W Portable Power Inverter for DeWALT 20V,Ecarke Outdoor Generato Battery Converter with 2 USB&amp;LED&amp;AC Battery Powered Outlet,Convert DC 18V/20V to AC 110V-120V Portable Power Station(Tool Only)" src="https://m.media-amazon.com/images/I/41hmGvfJIYL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CQ4Q6WB9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="200W Portable Power Inverter for DeWALT 20V,Ecarke Outdoor Generato Battery Converter with 2 USB&amp;LED&amp;AC Battery Powered Outlet,Convert DC 18V/20V to AC 110V-120V Portable Power Station(Tool Only)" src="https://m.media-amazon.com/images/I/41hmGvfJIYL._SL500_.jpg"/></a>
 
 
 The **200W Portable Power Inverter for DeWALT 20V** by **Ecarke** is ideal for professionals and DIY enthusiasts who use **DeWALT 20V batteries** and need a reliable, compact power source on the go. Whether you're working on outdoor projects, camping, or facing power outages, this inverter converts your battery power into usable AC electricity, making it perfect for those who require portability and versatility in their power tools and devices.
@@ -250,10 +250,10 @@ The **Ecarke 200W Portable Power Inverter** stands out with its ability to seaml
 
 Designed with portability in mind, the inverter’s compact dimensions (**3.1 x 4.6 x 4.9 inches**) and lightweight nature make it an excellent companion for outdoor activities or job sites. The robust construction ensures durability, while its compatibility with **DeWALT 20V batteries** provides a seamless experience for users already invested in the DeWALT ecosystem. Overall, this portable power station is a convenient and efficient solution for those needing dependable power conversion in a compact package.
 
-## <a href="https://www.amazon.com/dp/B0BW83F6QJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ego Power+ Portable Inverter</a>
+## <a href="https://www.amazon.com/dp/B0BW83F6QJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ego Power+ Portable Inverter</a>
 
 
-<a href="https://www.amazon.com/dp/B0BW83F6QJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="EGO POWER+ Portable Inverter, 400W, Power Inverter Generator, Quiet. Battery and Charger Not Included - PAD5000" src="https://m.media-amazon.com/images/I/41zhqURspTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BW83F6QJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="EGO POWER+ Portable Inverter, 400W, Power Inverter Generator, Quiet. Battery and Charger Not Included - PAD5000" src="https://m.media-amazon.com/images/I/41zhqURspTL._SL500_.jpg"/></a>
 
 
 The **EGO POWER+ Portable Inverter, 400W** is ideal for outdoor enthusiasts, campers, and anyone in need of a reliable, quiet power source on the go. This compact inverter generator is perfect for users who require portable power for small appliances, tools, or electronic devices without the noise and bulk of traditional generators. It is especially suitable for those who already own EGO Power+ batteries, as the **battery and charger are not included**.

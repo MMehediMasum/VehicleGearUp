@@ -23,10 +23,10 @@ This guide covers top tire options designed specifically for the Charger Scat Pa
 
 
 
-## <a href="https://www.amazon.com/dp/B0CNTQWJBH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wildwell Charger Rear Diffuser</a>
+## <a href="https://www.amazon.com/dp/B0CNTQWJBH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wildwell Charger Rear Diffuser</a>
 
 
-<a href="https://www.amazon.com/dp/B0CNTQWJBH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="WildWell Charger Rear Diffuser for Dodge Charger Widebody SRT Hellcat Scat Pack 2020-2024 Carbon Fiber Style" src="https://m.media-amazon.com/images/I/51xZ1O0JSLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CNTQWJBH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="WildWell Charger Rear Diffuser for Dodge Charger Widebody SRT Hellcat Scat Pack 2020-2024 Carbon Fiber Style" src="https://m.media-amazon.com/images/I/51xZ1O0JSLL._SL500_.jpg"/></a>
 
 
 The **WildWell Charger Rear Diffuser** in **Carbon Fiber Style** is perfect for Dodge Charger enthusiasts who own the **Widebody SRT Hellcat Scat Pack models from 2020 to 2024**. This product is ideal for drivers looking to enhance the aggressive look of their vehicle while improving its aerodynamic performance. If you are passionate about both aesthetics and functional upgrades, this diffuser is tailored for you.
@@ -49,10 +49,10 @@ The **WildWell Charger Rear Diffuser** features a precise design that complement
 
 Additionally, the diffuser's build quality reflects WildWell Motor Sports’ commitment to durability and style. The product’s tailored fit ensures that it integrates seamlessly with the car’s rear bumper, preserving the factory aesthetics while adding a custom touch. For owners seeking to boost their car’s curb appeal and aerodynamic efficiency, this rear diffuser offers a well-rounded solution.
 
-## <a href="https://www.amazon.com/dp/B0DSS43B8N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Neespoc Front Bumper Lip Splitter Spoiler</a>
+## <a href="https://www.amazon.com/dp/B0DSS43B8N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Neespoc Front Bumper Lip Splitter Spoiler</a>
 
 
-<a href="https://www.amazon.com/dp/B0DSS43B8N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="NEESPOC Front Bumper Lip Splitter Spoiler Fit for Dodge Charger SRT Hellcat Widebody 2020-2023 Matte Black Accessories Air Chin Body Kit" src="https://m.media-amazon.com/images/I/51VY5+O3vsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DSS43B8N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="NEESPOC Front Bumper Lip Splitter Spoiler Fit for Dodge Charger SRT Hellcat Widebody 2020-2023 Matte Black Accessories Air Chin Body Kit" src="https://m.media-amazon.com/images/I/51VY5+O3vsL._SL500_.jpg"/></a>
 
 
 The **NEESPOC Front Bumper Lip Splitter Spoiler** is ideal for car enthusiasts and owners of the **Dodge Charger SRT Hellcat Widebody 2020-2023** who want to enhance their vehicle's aggressive look and aerodynamic performance. If you are looking to upgrade your car’s exterior with a stylish yet functional accessory that improves downforce and stability at high speeds, this product is a perfect fit.
@@ -75,10 +75,10 @@ The **NEESPOC Front Bumper Lip Splitter Spoiler** is engineered to seamlessly in
 
 Beyond aesthetics, this splitter acts as an air chin body kit that channels airflow efficiently under the car, reducing drag and enhancing stability. This means drivers experience better control and confidence at higher speeds. Additionally, the sturdy construction from **NEESPOC** ensures that the splitter can withstand daily driving conditions and minor impacts, making it both a stylish and practical upgrade for any Dodge Charger enthusiast.
 
-## <a href="https://www.amazon.com/dp/B0DSBN67JJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wheelx Front Bumper Lip Compatible With 2020-2023 Dodge Charger Srt Hellcat Scat</a>
+## <a href="https://www.amazon.com/dp/B0DSBN67JJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wheelx Front Bumper Lip Compatible With 2020-2023 Dodge Charger Srt Hellcat Scat</a>
 
 
-<a href="https://www.amazon.com/dp/B0DSBN67JJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="WheelX 3Pcs Front Bumper Lip Compatible with 2020-2023 Dodge Charger SRT Hellcat Scat (Only Widebody), Air Dam Lower Chin Spoiler Splitter, Protection Body Kit (Matte Black)" src="https://m.media-amazon.com/images/I/41v9qUDZODL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DSBN67JJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="WheelX 3Pcs Front Bumper Lip Compatible with 2020-2023 Dodge Charger SRT Hellcat Scat (Only Widebody), Air Dam Lower Chin Spoiler Splitter, Protection Body Kit (Matte Black)" src="https://m.media-amazon.com/images/I/41v9qUDZODL._SL500_.jpg"/></a>
 
 
 The **WheelX 3Pcs Front Bumper Lip** is ideal for car enthusiasts and owners of the **2020-2023 Dodge Charger SRT Hellcat Scat** with the widebody configuration who want to enhance the aggressive look and aerodynamic performance of their vehicle while protecting the front bumper. If you are looking to add a sleek, durable, and functional upgrade to your car's exterior, this body kit is a perfect fit.
@@ -101,10 +101,10 @@ The **WheelX Front Bumper Lip** features a precise fit for the widebody **Dodge 
 
 Additionally, the bumper lip acts as a protective barrier against minor scrapes and impacts, preserving the original paint and bodywork. The kit’s construction focuses on both form and function, making it a valuable upgrade for those who want to maintain the performance integrity of their Charger while giving it a custom, race-inspired look. Overall, this body kit offers a balance of style, protection, and aerodynamic benefits tailored to specific Dodge Charger models.
 
-## <a href="https://www.amazon.com/dp/B0DSBNM81K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wheelx Front Lip Compatible With 2020-2023 Dodge Charger Srt Hellcat Scat</a>
+## <a href="https://www.amazon.com/dp/B0DSBNM81K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wheelx Front Lip Compatible With 2020-2023 Dodge Charger Srt Hellcat Scat</a>
 
 
-<a href="https://www.amazon.com/dp/B0DSBNM81K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="WheelX 4Pcs Front Lip Compatible with 2020-2023 Dodge Charger SRT Hellcat Scat (Only Fit Widebody), Bumper Air Dam Lower Chin Spoiler Splitter, Protection Body Kit (Matte Black)" src="https://m.media-amazon.com/images/I/41Y9eCwxAuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DSBNM81K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="WheelX 4Pcs Front Lip Compatible with 2020-2023 Dodge Charger SRT Hellcat Scat (Only Fit Widebody), Bumper Air Dam Lower Chin Spoiler Splitter, Protection Body Kit (Matte Black)" src="https://m.media-amazon.com/images/I/41Y9eCwxAuL._SL500_.jpg"/></a>
 
 
 The **WheelX 4Pcs Front Lip** is ideal for car enthusiasts and owners of the **2020-2023 Dodge Charger SRT Hellcat Scat** with a **widebody** configuration who want to enhance the appearance and protection of their vehicle. If you are looking to add a stylish, aggressive look while improving your car's aerodynamics and body protection, this **matte black bumper air dam lower chin spoiler splitter** is a perfect fit. It is specifically designed to fit only the widebody model, ensuring a seamless and precise installation.
@@ -126,10 +126,10 @@ The **WheelX Front Lip** kit offers a combination of style and function, tailore
 
 Beyond aesthetics, the front lip serves as a protective barrier for the lower chin of the bumper, shielding it from scratches, scrapes, and minor road hazards. This helps maintain the car's exterior in pristine condition, potentially reducing repair costs and preserving resale value. With four pieces included in the kit, the coverage is comprehensive, offering robust protection and a cohesive look. Overall, the **WheelX 4Pcs Front Lip** is an excellent upgrade for those looking to combine performance enhancements with visual appeal on their Dodge Charger widebody.
 
-## <a href="https://www.amazon.com/dp/B0F1FG8WK5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Front Lip For Dodge Charger 2015-2023 Glossy Black Front Bumper Lip Splitter</a>
+## <a href="https://www.amazon.com/dp/B0F1FG8WK5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Front Lip For Dodge Charger 2015-2023 Glossy Black Front Bumper Lip Splitter</a>
 
 
-<a href="https://www.amazon.com/dp/B0F1FG8WK5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Front Lip for Dodge Charger 2015-2023 Glossy Black Front Bumper Lip Splitter for Charger SRT GT, R/T, Scat Pack,SXT (Not for Widebody)" src="https://m.media-amazon.com/images/I/31E1n536pFL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F1FG8WK5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Front Lip for Dodge Charger 2015-2023 Glossy Black Front Bumper Lip Splitter for Charger SRT GT, R/T, Scat Pack,SXT (Not for Widebody)" src="https://m.media-amazon.com/images/I/31E1n536pFL._SL500_.jpg"/></a>
 
 
 The **Front Lip for Dodge Charger 2015-2023 Glossy Black Front Bumper Lip Splitter** is ideal for car enthusiasts and Dodge Charger owners looking to enhance the sporty appearance and aerodynamic performance of their vehicle. Specifically designed for Charger models such as **SRT**, **GT**, **R/T**, **Scat Pack**, and **SXT** (excluding Widebody versions), this front lip is perfect for those who want a sleek, aggressive look while maintaining quality and durability.
@@ -152,10 +152,10 @@ This **Front Bumper Lip Splitter** is crafted from high-quality materials, ensur
 
 Moreover, the lip splitter is tailored specifically for Charger models from 2015 to 2023, guaranteeing a precise fit and seamless integration with the existing front bumper. The product is manufactured by **Tempsnow**, a brand recognized for reliable automotive parts, ensuring that users receive a product that meets performance and quality standards. Overall, this front lip splitter offers both functional and visual upgrades, making it an excellent choice for Dodge Charger owners aiming to personalize their ride.
 
-## <a href="https://www.amazon.com/dp/B0CZC6J6JW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Oe Wheels Dg22 20 Inch Rims And Tires</a>
+## <a href="https://www.amazon.com/dp/B0CZC6J6JW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Oe Wheels Dg22 20 Inch Rims And Tires</a>
 
 
-<a href="https://www.amazon.com/dp/B0CZC6J6JW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OE Wheels DG22 20 Inch Rims and Tires Fit Charger/Challenger SRT Hellcat Style 5x115 20x9 Satin Black - Hollander 2640 - iMove Gen 3 AS 245/45-20 (Set of 4)" src="https://m.media-amazon.com/images/I/51Yh1Ba+3RL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CZC6J6JW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OE Wheels DG22 20 Inch Rims and Tires Fit Charger/Challenger SRT Hellcat Style 5x115 20x9 Satin Black - Hollander 2640 - iMove Gen 3 AS 245/45-20 (Set of 4)" src="https://m.media-amazon.com/images/I/51Yh1Ba+3RL._SL500_.jpg"/></a>
 
 
 The **OE Wheels DG22 20 Inch Rims and Tires** are perfect for car enthusiasts who own a **Charger** or **Challenger SRT Hellcat** and are looking to enhance their vehicle's performance and appearance. This set is designed for individuals who value style and functionality, offering a sleek **Satin Black** finish that complements the aggressive look of these iconic cars. If you're someone who enjoys driving with confidence and wants to upgrade your vehicle's stance, this product is an ideal choice.
@@ -176,10 +176,10 @@ The **OE Wheels DG22** offers an impressive **20x9 inch** dimension that not onl
 
 The **high-quality construction** of these rims and tires from **OE Wheels LLC** guarantees they can withstand the rigors of the road while maintaining their pristine appearance. The **black finish** adds a touch of elegance and aggression, which is perfect for those looking to make a statement. Overall, this set is an excellent investment for anyone looking to improve their vehicle's performance and aesthetics without compromising on quality.
 
-## <a href="https://www.amazon.com/dp/B08NDVHNLN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ninte Front Lip For Dodge Charger Srt Scat Pack Widebody 2015-2023</a>
+## <a href="https://www.amazon.com/dp/B08NDVHNLN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ninte Front Lip For Dodge Charger Srt Scat Pack Widebody 2015-2023</a>
 
 
-<a href="https://www.amazon.com/dp/B08NDVHNLN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="NINTE Front Lip for Dodge Charger SRT Scat Pack Widebody 2015-2023 V3 Style Matte Black ABS Front Bumper Lip" src="https://m.media-amazon.com/images/I/516PTGqXj6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08NDVHNLN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="NINTE Front Lip for Dodge Charger SRT Scat Pack Widebody 2015-2023 V3 Style Matte Black ABS Front Bumper Lip" src="https://m.media-amazon.com/images/I/516PTGqXj6L._SL500_.jpg"/></a>
 
 
 The **NINTE Front Lip for Dodge Charger SRT Scat Pack Widebody 2015-2023 V3 Style** in **Matte Black** is perfect for car enthusiasts who want to enhance the aggressive look and aerodynamic performance of their vehicle. Ideal customers include owners of the Dodge Charger SRT Scat Pack Widebody from model years 2015 to 2023 seeking a stylish, durable, and easy-to-install front bumper lip that improves both aesthetics and functionality.
@@ -202,10 +202,10 @@ The **NINTE Front Lip** is crafted from robust **ABS plastic**, which offers exc
 
 This front lip significantly improves the vehicle’s **aerodynamics**, directing airflow more efficiently around the front bumper. This can contribute to enhanced stability at higher speeds and potentially better fuel efficiency. Additionally, the aggressive styling of the lip accentuates the muscular design of the Charger, making it a great upgrade for those looking to boost both performance and curb appeal.
 
-## <a href="https://www.amazon.com/dp/B0FLDLNS1C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Front Wheel Arch Compatible For Dodge Charger 2020-2023 Srt Hellcat/scat Pack Widebody Fender Flare Molding Oe Part</a>
+## <a href="https://www.amazon.com/dp/B0FLDLNS1C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Front Wheel Arch Compatible For Dodge Charger 2020-2023 Srt Hellcat/scat Pack Widebody Fender Flare Molding Oe Part</a>
 
 
-<a href="https://www.amazon.com/dp/B0FLDLNS1C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Front Wheel Arch Compatible For Dodge Charger 2020-2023 SRT Hellcat/Scat Pack Widebody Fender Flare Molding 6TN40TZZAE 6TN41TZZAE OE Part(Matte Black Right)" src="https://m.media-amazon.com/images/I/21TRrJqerwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FLDLNS1C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Front Wheel Arch Compatible For Dodge Charger 2020-2023 SRT Hellcat/Scat Pack Widebody Fender Flare Molding 6TN40TZZAE 6TN41TZZAE OE Part(Matte Black Right)" src="https://m.media-amazon.com/images/I/21TRrJqerwL._SL500_.jpg"/></a>
 
 
 The **Front Wheel Arch Compatible For Dodge Charger 2020-2023 SRT Hellcat/Scat Pack Widebody Fender Flare Molding** is ideal for car enthusiasts and Dodge Charger owners looking to enhance their vehicle's appearance and functionality. If you own a **2020-2023 Dodge Charger SRT Hellcat or Scat Pack Widebody** and want to maintain OEM quality while adding a stylish, rugged look, this **matte black right fender flare molding** is an excellent choice. It is perfect for those who want a seamless fit and durable protection for their front wheel arch.
@@ -227,10 +227,10 @@ This **front wheel arch fender flare molding** is designed by **JRSRAZXO** and m
 
 Its OEM part compatibility guarantees a hassle-free installation process, as it fits perfectly without the need for modifications. This fender flare molding not only upgrades the car's exterior but also helps maintain its resale value by preserving the original bodywork. For Dodge Charger owners seeking both style and protection, this product delivers a reliable and visually appealing solution.
 
-## <a href="https://www.amazon.com/dp/B0CTH8VQ3T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Modilover Front Bumper Lip Spoiler</a>
+## <a href="https://www.amazon.com/dp/B0CTH8VQ3T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Modilover Front Bumper Lip Spoiler</a>
 
 
-<a href="https://www.amazon.com/dp/B0CTH8VQ3T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MODILOVER Front Bumper Lip Spoiler, Compatible with 2020-2023 Dodge Charger Scat Pack 392 / SRT Widebody Models, PP Gloss Black OEM Style Add-on Front Splitter Air Dam Chin Protector" src="https://m.media-amazon.com/images/I/21lVpcaiwsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CTH8VQ3T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="MODILOVER Front Bumper Lip Spoiler, Compatible with 2020-2023 Dodge Charger Scat Pack 392 / SRT Widebody Models, PP Gloss Black OEM Style Add-on Front Splitter Air Dam Chin Protector" src="https://m.media-amazon.com/images/I/21lVpcaiwsL._SL500_.jpg"/></a>
 
 
 The **MODILOVER Front Bumper Lip Spoiler** is ideal for car enthusiasts and owners of the **2020-2023 Dodge Charger Scat Pack 392** and **SRT Widebody Models** who want to enhance their vehicle's aesthetic appeal and aerodynamic performance. If you are looking to add a stylish, OEM-style front splitter that also functions as an air dam and chin protector, this product is designed specifically for you.
@@ -252,10 +252,10 @@ The **MODILOVER Front Bumper Lip Spoiler** is crafted from high-quality **polypr
 
 Functionally, this front splitter acts as an effective **air dam**, improving the vehicle’s aerodynamics by reducing air turbulence and increasing downforce. This can contribute to better handling and stability at higher speeds. Additionally, it serves as a **chin protector**, shielding the lower bumper from damage caused by road obstacles or curbs. Overall, the MODILOVER Front Bumper Lip Spoiler combines style and practicality, making it a valuable upgrade for Dodge Charger owners who want to elevate both the appearance and performance of their vehicle.
 
-## <a href="https://www.amazon.com/dp/B0CZC7QH2K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Oe Wheels Dg23 20 Inch Rims And Tires</a>
+## <a href="https://www.amazon.com/dp/B0CZC7QH2K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Oe Wheels Dg23 20 Inch Rims And Tires</a>
 
 
-<a href="https://www.amazon.com/dp/B0CZC7QH2K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OE Wheels DG23 20 Inch Rims and Tires Fit Charger/Challenger SRT Hellcat Style 5x115 20x9 Satin Black - Hollander 2718 - iMove Gen 3 AS 245/45-20 (Set of 4)" src="https://m.media-amazon.com/images/I/51tqRcLfmfL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CZC7QH2K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OE Wheels DG23 20 Inch Rims and Tires Fit Charger/Challenger SRT Hellcat Style 5x115 20x9 Satin Black - Hollander 2718 - iMove Gen 3 AS 245/45-20 (Set of 4)" src="https://m.media-amazon.com/images/I/51tqRcLfmfL._SL500_.jpg"/></a>
 
 
 The **OE Wheels DG23 20 Inch Rims and Tires** are ideal for automotive enthusiasts and owners of the **Charger** or **Challenger SRT Hellcat** who want to upgrade their vehicle’s appearance and performance. Designed specifically to fit with a **5x115 bolt pattern** and sized at **20x9 inches**, this set is perfect for those seeking a bold, aggressive look combined with durable, high-quality materials.

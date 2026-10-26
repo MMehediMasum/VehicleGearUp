@@ -20,10 +20,10 @@ Others, such as Bob Smith Industries Ultra-Cure Tire Glue, provide waterproof an
 
 
 
-## <a href="https://www.amazon.com/dp/B0D3V2Q6P6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Viomis 30g Black Rubber Glue</a>
+## <a href="https://www.amazon.com/dp/B0D3V2Q6P6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Viomis 30g Black Rubber Glue</a>
 
 
-<a href="https://www.amazon.com/dp/B0D3V2Q6P6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Viomis 30g Black Rubber Glue, RC Tire Glue, Super Rubber Adhesive for Tire Repair, Rubber Edge Bonding, DIY Crafts, and More - Quick-Dry, High-Strength Rubber Patch Glue for Durable Bonding" src="https://m.media-amazon.com/images/I/31ebYj36-LL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D3V2Q6P6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Viomis 30g Black Rubber Glue, RC Tire Glue, Super Rubber Adhesive for Tire Repair, Rubber Edge Bonding, DIY Crafts, and More - Quick-Dry, High-Strength Rubber Patch Glue for Durable Bonding" src="https://m.media-amazon.com/images/I/31ebYj36-LL._SL500_.jpg"/></a>
 
 
 The **Viomis 30g Black Rubber Glue** is ideal for hobbyists, DIY enthusiasts, and professionals who require a reliable adhesive for repairing **RC tires**, bonding rubber edges, and various craft projects. If you're looking for a quick-drying, durable solution to fix or enhance rubber components, this high-strength **super rubber adhesive** is designed to meet your needs effectively.
@@ -45,10 +45,10 @@ The **Viomis Black Rubber Glue** excels in providing a strong, flexible bond ide
 
 With its high-strength formula, this adhesive ensures that rubber edges and patches remain securely bonded even under stress or movement. The black color is an added benefit, as it blends perfectly with most rubber surfaces, maintaining a clean and professional look in your repairs or crafts. Overall, the **Viomis Rubber Glue** offers a dependable solution for anyone needing a specialized adhesive for rubber applications.
 
-## <a href="https://www.amazon.com/dp/B00AE7VA5S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pro-line Racing Pro-bond Tire Glue</a>
+## <a href="https://www.amazon.com/dp/B00AE7VA5S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pro-line Racing Pro-bond Tire Glue</a>
 
 
-<a href="https://www.amazon.com/dp/B00AE7VA5S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pro-Line Racing Pro-Bond Tire Glue PRO603100 Misc. Adhesives Fillers" src="https://m.media-amazon.com/images/I/31flH0IYg-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00AE7VA5S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pro-Line Racing Pro-Bond Tire Glue PRO603100 Misc. Adhesives Fillers" src="https://m.media-amazon.com/images/I/31flH0IYg-L._SL500_.jpg"/></a>
 
 
 The **Pro-Line Racing Pro-Bond Tire Glue PRO603100** is ideal for RC enthusiasts and hobbyists who demand a reliable and durable adhesive for securing tires to wheels. If you frequently participate in off-road racing or need a strong bond for your RC vehicle tires, this product is designed to provide superior performance and peace of mind.
@@ -70,10 +70,10 @@ The **Pro-Bond Tire Glue** from **Pro-Line Racing** features a clear adhesive fo
 
 Designed with the RC hobbyist in mind, this tire glue is easy to apply with precision and control, thanks to its well-sized container. Its durable adhesive properties withstand the stresses of rough terrain and high-speed maneuvers, keeping your tires securely attached. Overall, the **Pro-Bond Tire Glue PRO603100** offers an effective and efficient solution for maintaining optimal tire performance on your RC vehicles.
 
-## <a href="https://www.amazon.com/dp/B0DGQ2LWF4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rubber Glue</a>
+## <a href="https://www.amazon.com/dp/B0DGQ2LWF4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rubber Glue</a>
 
 
-<a href="https://www.amazon.com/dp/B0DGQ2LWF4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rubber Glue, Fast-Drying Adhesive for Tires, Black Superglue, 30g (Pack of 1)" src="https://m.media-amazon.com/images/I/417H1l90jEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DGQ2LWF4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rubber Glue, Fast-Drying Adhesive for Tires, Black Superglue, 30g (Pack of 1)" src="https://m.media-amazon.com/images/I/417H1l90jEL._SL500_.jpg"/></a>
 
 
 The **Rubber Glue, Fast-Drying Adhesive for Tires** is ideal for individuals who need a reliable and quick solution for repairing or bonding rubber surfaces, especially tires. Whether you are a vehicle owner, a mechanic, or a DIY enthusiast working on tire maintenance or rubber repairs, this adhesive offers the perfect balance of strength and speed to get the job done efficiently.
@@ -96,10 +96,10 @@ The **Nexkayee Rubber Glue** features a fast-drying adhesive that is specially f
 
 This superglue is designed to offer a durable and flexible bond that withstands the stresses tires typically face, such as friction, pressure, and exposure to various weather conditions. By using this adhesive, users can achieve effective tire repairs without the need for professional services, saving time and money. Overall, it provides a reliable and user-friendly solution tailored for rubber maintenance and repair needs.
 
-## <a href="https://www.amazon.com/dp/B0D923YWJ3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rubber Glue</a>
+## <a href="https://www.amazon.com/dp/B0D923YWJ3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rubber Glue</a>
 
 
-<a href="https://www.amazon.com/dp/B0D923YWJ3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rubber Glue,100g Super Glue for Rubber, RC Tires, Seals, Gaskets, Shoe Soles, Hose, Rubber Adhesive Heavy Duty, Waterproof, Motorcycle Handlebar Grip Glue for Automotive Parts, Bike Tires" src="https://m.media-amazon.com/images/I/51rq27qNlHL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D923YWJ3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rubber Glue,100g Super Glue for Rubber, RC Tires, Seals, Gaskets, Shoe Soles, Hose, Rubber Adhesive Heavy Duty, Waterproof, Motorcycle Handlebar Grip Glue for Automotive Parts, Bike Tires" src="https://m.media-amazon.com/images/I/51rq27qNlHL._SL500_.jpg"/></a>
 
 
 The **Rubber Glue, 100g Super Glue for Rubber** is ideal for individuals who frequently work with **rubber materials** such as RC enthusiasts, automotive repair professionals, and DIY hobbyists. If you need a reliable adhesive for **RC tires, seals, gaskets, shoe soles, hoses**, or **motorcycle handlebar grips**, this product is designed to offer a durable and waterproof bonding solution.
@@ -121,10 +121,10 @@ The **Rubber Glue** by **Meuvcol** is specially formulated for bonding rubber co
 
 Additionally, the heavy-duty nature of this adhesive means it can withstand the stresses and flexing typical of rubber parts like bike tires and hoses. Users will appreciate the strong, lasting hold it provides without compromising the flexibility of the rubber. With a 100g container, this glue is both economical and convenient for regular use, ensuring you have enough adhesive for multiple repair or assembly projects.
 
-## <a href="https://www.amazon.com/dp/B0CS6QMSC1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Y'allcandiy Super Glue For Rubber</a>
+## <a href="https://www.amazon.com/dp/B0CS6QMSC1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Y'allcandiy Super Glue For Rubber</a>
 
 
-<a href="https://www.amazon.com/dp/B0CS6QMSC1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Y'allCanDiy Super Glue for Rubber - Cyanoacrylate Based Adhesive for RC Tires, Seals, Gaskets, Soles, Hose, Mat &amp; Neoprene, Automotive Parts Repair. Waterproof, Heavy Duty CA Glue" src="https://m.media-amazon.com/images/I/51eU5ryiXxL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CS6QMSC1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Y'allCanDiy Super Glue for Rubber - Cyanoacrylate Based Adhesive for RC Tires, Seals, Gaskets, Soles, Hose, Mat &amp; Neoprene, Automotive Parts Repair. Waterproof, Heavy Duty CA Glue" src="https://m.media-amazon.com/images/I/51eU5ryiXxL._SL500_.jpg"/></a>
 
 
 The **Y'allCanDiy Super Glue for Rubber** is ideal for hobbyists, automotive enthusiasts, and DIY repair professionals who need a reliable adhesive for **rubber materials**. If you work frequently with **RC tires, seals, gaskets, soles, hoses, mats, neoprene**, or automotive parts, this **heavy duty cyanoacrylate-based glue** offers a waterproof and durable bonding solution to keep your projects intact.
@@ -147,10 +147,10 @@ The **Y'allCanDiy Super Glue** stands out due to its specialized formulation for
 
 Additionally, the glue’s lightweight design makes it convenient to store and use whenever needed. The rapid curing time of the **cyanoacrylate-based adhesive** improves efficiency, allowing users to complete repairs quickly without sacrificing bond strength. Overall, this glue is a versatile and dependable choice for anyone working with rubber components in demanding environments.
 
-## <a href="https://www.amazon.com/dp/B0F134LB7V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bottrony Rubber Glue</a>
+## <a href="https://www.amazon.com/dp/B0F134LB7V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bottrony Rubber Glue</a>
 
 
-<a href="https://www.amazon.com/dp/B0F134LB7V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bottrony Rubber Glue, 2 Pcs Instant Super Glue for Rubber, Waterproof, Heat-Resistant, Clear Strong Adhesive for RC Tires, Seals, Gaskets, Shoe Soles, Hose Repair and More" src="https://m.media-amazon.com/images/I/41ztqNAMkmL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F134LB7V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bottrony Rubber Glue, 2 Pcs Instant Super Glue for Rubber, Waterproof, Heat-Resistant, Clear Strong Adhesive for RC Tires, Seals, Gaskets, Shoe Soles, Hose Repair and More" src="https://m.media-amazon.com/images/I/41ztqNAMkmL._SL500_.jpg"/></a>
 
 
 The **Bottrony Rubber Glue** is ideal for hobbyists, DIY enthusiasts, and professionals who require a reliable and durable adhesive for rubber materials. Whether you're repairing **RC tires**, **seals**, **gaskets**, or even fixing **shoe soles** and **hoses**, this product is designed to deliver a strong, waterproof, and heat-resistant bond. If you need quick and efficient repairs with a clear finish, this glue is a perfect choice.
@@ -172,10 +172,10 @@ The **Bottrony Rubber Glue** offers a powerful solution for bonding rubber mater
 
 This glue is packaged in a convenient 2-piece set, allowing for multiple repair tasks or sharing with others. Its versatility means it can be used across various applications, from hobby projects like **RC tires** to essential household repairs such as fixing **shoe soles** and **hoses**. The ease of use combined with professional-grade bonding results in a product that meets the needs of both casual users and demanding professionals alike.
 
-## <a href="https://www.amazon.com/dp/B083P2M3D3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Team Losi Racing Tire Glue</a>
+## <a href="https://www.amazon.com/dp/B083P2M3D3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Team Losi Racing Tire Glue</a>
 
 
-<a href="https://www.amazon.com/dp/B083P2M3D3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TEAM LOSI RACING Tire Glue 1oz Thin TLR76006 CA's" src="https://m.media-amazon.com/images/I/41QkFVqX6ML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B083P2M3D3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TEAM LOSI RACING Tire Glue 1oz Thin TLR76006 CA's" src="https://m.media-amazon.com/images/I/41QkFVqX6ML._SL500_.jpg"/></a>
 
 
 Ideal for **RC car enthusiasts** and professional racers, the **TEAM LOSI RACING Tire Glue 1oz Thin TLR76006 CA's** is perfect for those who require a reliable and strong adhesive to secure tires during intense racing conditions. If you are looking for a high-performance tire glue that offers quick bonding and long-lasting hold, this product is designed specifically for you.
@@ -197,10 +197,10 @@ The **TEAM LOSI RACING Tire Glue 1oz Thin TLR76006 CA's** stands out due to its 
 
 Additionally, the compact dimensions of this product (Height: 1.0 inches, Width: 4.0 inches, Length: 4.0 inches) make it highly portable and convenient to carry in your racing toolkit. As a product from the reputable **Team Losi Racing** manufacturer, users can trust in its quality and performance, ensuring their RC tires remain securely glued during all types of racing events.
 
-## <a href="https://www.amazon.com/dp/B018MV8T92?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ultra-cure Tire Glue</a>
+## <a href="https://www.amazon.com/dp/B018MV8T92?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ultra-cure Tire Glue</a>
 
 
-<a href="https://www.amazon.com/dp/B018MV8T92?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bob Smith Industries BSI-130 Ultra-Cure Tire Glue, Clear" src="https://m.media-amazon.com/images/I/41G1DBYCY8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B018MV8T92?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bob Smith Industries BSI-130 Ultra-Cure Tire Glue, Clear" src="https://m.media-amazon.com/images/I/41G1DBYCY8L._SL500_.jpg"/></a>
 
 
 The **Bob Smith Industries BSI-130 Ultra-Cure Tire Glue, Clear** is an ideal choice for hobbyists and professionals who frequently work with tires and require a reliable adhesive solution. Whether you're a remote control car enthusiast or a professional mechanic, this glue offers the precision and strength needed for quick tire repairs and modifications.
@@ -221,10 +221,10 @@ The **BSI-130 Ultra-Cure Tire Glue** is designed for those who need a dependable
 
 Additionally, the **clear color** ensures that repairs are discreet and do not detract from the appearance of the tire. The glue's **lightweight and compact dimensions** make it easy to carry in a toolbox or pocket, ensuring that you're always prepared for any tire-related emergencies. This usability feature is particularly advantageous for fieldwork or outdoor activities where immediate repairs might be necessary.
 
-## <a href="https://www.amazon.com/dp/B0F5X4QLWM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Black Rubber Glue</a>
+## <a href="https://www.amazon.com/dp/B0F5X4QLWM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Black Rubber Glue</a>
 
 
-<a href="https://www.amazon.com/dp/B0F5X4QLWM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Black Rubber Glue, 20g Heavy Duty Rubber Adhesive for Tire, Tube, Shoes, Plastic, Metal &amp; DIY Projects – Quick-Dry, Waterproof, Heat-Resistant Rubber Cement for Sidewalls, RC Tires &amp; Auto Repair" src="https://m.media-amazon.com/images/I/41IwwrqYiZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F5X4QLWM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Black Rubber Glue, 20g Heavy Duty Rubber Adhesive for Tire, Tube, Shoes, Plastic, Metal &amp; DIY Projects – Quick-Dry, Waterproof, Heat-Resistant Rubber Cement for Sidewalls, RC Tires &amp; Auto Repair" src="https://m.media-amazon.com/images/I/41IwwrqYiZL._SL500_.jpg"/></a>
 
 
 The **Black Rubber Glue, 20g Heavy Duty Rubber Adhesive** is ideal for individuals who frequently work on **tire, tube, shoe, plastic, metal,** and various **DIY projects**. Whether you are an automotive enthusiast, a hobbyist repairing RC tires, or someone needing a reliable adhesive for home repairs, this product is designed to meet your heavy-duty bonding needs with ease and efficiency.
@@ -246,10 +246,10 @@ The **Black Rubber Glue** boasts a **quick-dry** and **waterproof** formula that
 
 Additionally, the adhesive’s versatility is a major benefit. It bonds effectively to a wide range of materials including **rubber, plastic, and metal**, making it an all-in-one solution for many repair and crafting tasks. The compact size also means it is portable and convenient for quick fixes on the go, making it a practical addition to any tool kit.
 
-## <a href="https://www.amazon.com/dp/B0F4DFVFB6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Clenymagi Rubber Glue</a>
+## <a href="https://www.amazon.com/dp/B0F4DFVFB6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Clenymagi Rubber Glue</a>
 
 
-<a href="https://www.amazon.com/dp/B0F4DFVFB6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ClenyMagi Rubber Glue, Super Glue for Rubber, Fast Drying Clear Adhesive for RC Tire, Shoes, Belt, Soles, Hose, Mat Repair and More, Waterproof, Heat-Resistant Strong Adhesive" src="https://m.media-amazon.com/images/I/41BKagv+pqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F4DFVFB6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ClenyMagi Rubber Glue, Super Glue for Rubber, Fast Drying Clear Adhesive for RC Tire, Shoes, Belt, Soles, Hose, Mat Repair and More, Waterproof, Heat-Resistant Strong Adhesive" src="https://m.media-amazon.com/images/I/41BKagv+pqL._SL500_.jpg"/></a>
 
 
 The **ClenyMagi Rubber Glue** is ideal for individuals who frequently work with rubber materials or need a reliable adhesive for quick repairs. Whether you’re a hobbyist repairing **RC tires**, a shoemaker fixing soles and belts, or someone looking to mend household items like hoses and mats, this **fast-drying, clear adhesive** offers a versatile and durable solution. It’s perfect for anyone seeking a strong, waterproof, and heat-resistant glue that bonds effectively to rubber surfaces.

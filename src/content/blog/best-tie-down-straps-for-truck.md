@@ -23,10 +23,10 @@ Soft loop straps protect delicate items from scratches. Features like padded han
 
 
 
-## <a href="https://www.amazon.com/dp/B01N7P7EOX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rhino Usa Ratchet Straps Tie Downs</a>
+## <a href="https://www.amazon.com/dp/B01N7P7EOX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rhino Usa Ratchet Straps Tie Downs</a>
 
 
-<a href="https://www.amazon.com/dp/B01N7P7EOX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rhino USA Ratchet Straps Tie Downs (4-Pack) - 1 Inch x 15 Feet (1,823lb Break Strength) - Ultimate Tie Down Straps with Safety S Hooks - for Trucks, Cargo, Moving, Appliances - Black" src="https://m.media-amazon.com/images/I/51X4AqEpD3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01N7P7EOX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rhino USA Ratchet Straps Tie Downs (4-Pack) - 1 Inch x 15 Feet (1,823lb Break Strength) - Ultimate Tie Down Straps with Safety S Hooks - for Trucks, Cargo, Moving, Appliances - Black" src="https://m.media-amazon.com/images/I/51X4AqEpD3L._SL500_.jpg"/></a>
 
 
 The **Rhino USA Ratchet Straps Tie Downs (4-Pack)** are ideal for anyone who frequently needs to secure heavy loads during transport. Whether you are a professional mover, truck driver, or a DIY enthusiast handling cargo, appliances, or equipment, these straps provide reliable strength and safety. If you are looking for durable and easy-to-use tie down solutions to keep your items firmly in place, this product is designed for you.
@@ -48,10 +48,10 @@ The **Rhino USA Ratchet Straps** offer robust and reliable tensioning with their
 
 Constructed with high-quality materials, these straps provide longevity and consistent performance under demanding conditions. The **1,823-pound break strength** rating gives peace of mind that your cargo will remain safely fastened, even on rough roads. Additionally, the compact and lightweight design allows for easy storage and transport, making the Rhino USA Ratchet Straps a practical choice for anyone needing dependable tie down solutions.
 
-## <a href="https://www.amazon.com/dp/B01F7KSAGI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Augo Ratchet Straps</a>
+## <a href="https://www.amazon.com/dp/B01F7KSAGI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Augo Ratchet Straps</a>
 
 
-<a href="https://www.amazon.com/dp/B01F7KSAGI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="AUGO Ratchet Straps Heavy Duty 4 Pack -15 FT - 2200 LB Break Strength – with Safety Lock S Hooks - Cargo Straps for Moving, Appliances, Motorcycle – Soft Loop Tie Down Straps" src="https://m.media-amazon.com/images/I/61NgLbXhDcL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01F7KSAGI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="AUGO Ratchet Straps Heavy Duty 4 Pack -15 FT - 2200 LB Break Strength – with Safety Lock S Hooks - Cargo Straps for Moving, Appliances, Motorcycle – Soft Loop Tie Down Straps" src="https://m.media-amazon.com/images/I/61NgLbXhDcL._SL500_.jpg"/></a>
 
 
 The **AUGO Ratchet Straps Heavy Duty 4 Pack** is ideal for individuals who frequently need to secure heavy loads, such as movers, motorcyclists, or anyone transporting large appliances. If you require reliable, strong, and durable cargo straps that provide peace of mind during transit, these straps are a perfect choice.
@@ -73,10 +73,10 @@ The **AUGO Ratchet Straps** feature a robust construction that offers a strong h
 
 Additionally, these straps come in a pack of four, each measuring 15 feet long, providing flexibility for various load sizes. The **soft loop tie down design** helps protect your cargo from scratches and damage, which is particularly beneficial when handling delicate or expensive items. Their durable blue polyester material also ensures long-lasting use, resisting fraying and wear even with frequent use.
 
-## <a href="https://www.amazon.com/dp/B07F23GJKF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rhino Usa Ratchet Straps Heavy Duty Kit (4-pack)</a>
+## <a href="https://www.amazon.com/dp/B07F23GJKF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rhino Usa Ratchet Straps Heavy Duty Kit (4-pack)</a>
 
 
-<a href="https://www.amazon.com/dp/B07F23GJKF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rhino USA Ratchet Straps Heavy Duty Kit (4-Pack) - 1.6 Inch x 8 Feet (5,208lb Break Strength) - Ultimate Tie Down Straps with Safety S Hooks for Trucks, ATV, UTV, Motorcycle, Cargo &amp; More - Black" src="https://m.media-amazon.com/images/I/51RqR3ifHhL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07F23GJKF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rhino USA Ratchet Straps Heavy Duty Kit (4-Pack) - 1.6 Inch x 8 Feet (5,208lb Break Strength) - Ultimate Tie Down Straps with Safety S Hooks for Trucks, ATV, UTV, Motorcycle, Cargo &amp; More - Black" src="https://m.media-amazon.com/images/I/51RqR3ifHhL._SL500_.jpg"/></a>
 
 
 The **Rhino USA Ratchet Straps Heavy Duty Kit** is ideal for individuals who frequently need to secure heavy loads during transport. Whether you are a truck owner, ATV or UTV enthusiast, motorcycle rider, or someone who regularly hauls cargo, these **ultimate tie down straps** provide the reliability and strength required to keep your equipment safe and stable. If you value durability and safety in your tie-down solutions, this kit is designed specifically for you.
@@ -98,10 +98,10 @@ The **Rhino USA Ratchet Straps Heavy Duty Kit** combines robust construction wit
 
 Designed with convenience in mind, the kit includes **four durable straps** outfitted with reliable **safety S hooks** that provide quick attachment and detachment without sacrificing security. The black color and quality material resist wear and weather damage, making these straps a long-lasting solution. Whether you're hauling recreational vehicles or general cargo, these straps deliver peace of mind by maintaining load stability under demanding conditions.
 
-## <a href="https://www.amazon.com/dp/B0CPJTDQ1B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rhino Usa Retractable Ratchet Straps (2-pack)</a>
+## <a href="https://www.amazon.com/dp/B0CPJTDQ1B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rhino Usa Retractable Ratchet Straps (2-pack)</a>
 
 
-<a href="https://www.amazon.com/dp/B0CPJTDQ1B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rhino USA Retractable Ratchet Straps (2-Pack) - 1 Inch x 10 Feet (1,209lb Break Strength) - Heavy Duty Auto Self Retracting Tie Down Straps for Truck, Cargo Trailer, Motorcycle, Rad &amp; More - Black" src="https://m.media-amazon.com/images/I/51fVamRzS9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CPJTDQ1B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rhino USA Retractable Ratchet Straps (2-Pack) - 1 Inch x 10 Feet (1,209lb Break Strength) - Heavy Duty Auto Self Retracting Tie Down Straps for Truck, Cargo Trailer, Motorcycle, Rad &amp; More - Black" src="https://m.media-amazon.com/images/I/51fVamRzS9L._SL500_.jpg"/></a>
 
 
 The **Rhino USA Retractable Ratchet Straps (2-Pack)** are ideal for individuals who frequently need to secure loads during transportation, such as truck owners, cargo trailer operators, motorcycle enthusiasts, and anyone who requires reliable tie-down solutions. If you value durability, ease of use, and strong holding power, these heavy-duty straps are an excellent choice.
@@ -123,10 +123,10 @@ The **Rhino USA Retractable Ratchet Straps** feature a robust 1,209lb break stre
 
 Designed with a 1-inch width and a 10-foot length, these straps provide versatility for a wide range of applications—from securing motorcycles and rad vehicles to holding down cargo on trucks or trailers. The durable black finish protects the straps from wear and tear, extending their lifespan even under harsh conditions. Overall, these straps combine strength, convenience, and durability, making them a reliable choice for anyone in need of heavy-duty tie-down solutions.
 
-## <a href="https://www.amazon.com/dp/B0BRKP5GNY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Haccoplanet Ratchet Tie Down Straps</a>
+## <a href="https://www.amazon.com/dp/B0BRKP5GNY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Haccoplanet Ratchet Tie Down Straps</a>
 
 
-<a href="https://www.amazon.com/dp/B0BRKP5GNY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Haccoplanet Ratchet Tie Down Straps, 2340lb Break Strength, 4pc 1inch x 16FT Tie Down Strap Set with Padded Handles &amp; Coated S Hook W/Safety Clip, Cargo Strap Tie Down for Motorcycle, Truck (Black)" src="https://m.media-amazon.com/images/I/51Doyogw9SL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BRKP5GNY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Haccoplanet Ratchet Tie Down Straps, 2340lb Break Strength, 4pc 1inch x 16FT Tie Down Strap Set with Padded Handles &amp; Coated S Hook W/Safety Clip, Cargo Strap Tie Down for Motorcycle, Truck (Black)" src="https://m.media-amazon.com/images/I/51Doyogw9SL._SL500_.jpg"/></a>
 
 
 The **Haccoplanet Ratchet Tie Down Straps** are ideal for anyone needing a reliable and strong solution to secure cargo during transport. Whether you are a motorcycle enthusiast, truck owner, or frequently haul heavy items, these **tie down straps** provide the durability and safety necessary to keep your load stable and protected. If you prioritize secure fastening and ease of use, this product is an excellent choice.
@@ -149,10 +149,10 @@ The **Haccoplanet Ratchet Tie Down Straps** combine strength and user-friendly f
 
 Additionally, the **coated S hooks with safety clips** provide an added layer of security by preventing accidental detachment. The black finish not only adds to the aesthetic appeal but also offers resistance to wear and environmental factors. With dimensions of **1 inch by 16 feet**, these straps are versatile enough to handle various cargo sizes, making them a practical investment for anyone looking to improve cargo safety during transport.
 
-## <a href="https://www.amazon.com/dp/B09PRLJ6JZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rhino Usa Car Tie Down Straps With J Hooks</a>
+## <a href="https://www.amazon.com/dp/B09PRLJ6JZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rhino Usa Car Tie Down Straps With J Hooks</a>
 
 
-<a href="https://www.amazon.com/dp/B09PRLJ6JZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rhino USA Car Tie Down Straps with J Hooks – 4 Pack 2" src="https://m.media-amazon.com/images/I/717R6d4sQQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09PRLJ6JZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rhino USA Car Tie Down Straps with J Hooks – 4 Pack 2" src="https://m.media-amazon.com/images/I/717R6d4sQQL._SL500_.jpg"/></a>
 
 
 The **Rhino USA Car Tie Down Straps with J Hooks** are ideal for vehicle owners and outdoor enthusiasts who need reliable and durable tie-down solutions. If you frequently transport cars, UTVs, or powersports equipment on trailers, these heavy-duty straps provide the security and strength necessary to keep your loads stable during transit. They are perfect for those seeking high-quality, easy-to-use straps that can handle heavy weights without compromising safety.
@@ -174,10 +174,10 @@ The **Rhino USA Car Tie Down Straps** feature a robust construction with an impr
 
 Designed with durability in mind, these tie-down straps measure **2 inches by 8 feet**, giving ample length for various load sizes while maintaining strength. The black color not only adds to their aesthetic appeal but also contributes to resistance against dirt and fading, ensuring the straps maintain their integrity over time. Overall, these straps provide a dependable and user-friendly solution for anyone needing to safely secure heavy loads on trailers or trucks.
 
-## <a href="https://www.amazon.com/dp/B017902W8G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Cartman Lashing Straps Cargo Tie-down Strap</a>
+## <a href="https://www.amazon.com/dp/B017902W8G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Cartman Lashing Straps Cargo Tie-down Strap</a>
 
 
-<a href="https://www.amazon.com/dp/B017902W8G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Cartman 1" src="https://m.media-amazon.com/images/I/51JW+uPoiPL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B017902W8G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Cartman 1" src="https://m.media-amazon.com/images/I/51JW+uPoiPL._SL500_.jpg"/></a>
 
 
 The **Cartman 1" x 12' Lashing Straps** are ideal for **outdoor enthusiasts**, **DIY movers**, and anyone needing a reliable solution for securing cargo. Whether you're an avid camper needing to secure gear or a homeowner transporting items in a trailer, these **durable straps** ensure your belongings stay in place during transit. With a **600lbs capacity**, they offer a robust solution for medium-duty tasks.
@@ -198,10 +198,10 @@ The **Cartman Lashing Straps** feature a **1-inch width and 12-foot length**, pr
 
 Made with **durable materials**, these straps are designed to withstand the elements, making them a reliable choice for outdoor adventures. The **carry bag** included with the pack adds convenience, allowing users to keep the straps organized and ready for use at any time. With their combination of strength, versatility, and ease of use, these straps are a practical addition to any toolkit.
 
-## <a href="https://www.amazon.com/dp/B081794JZT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Fortem Ratchet Straps</a>
+## <a href="https://www.amazon.com/dp/B081794JZT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Fortem Ratchet Straps</a>
 
 
-<a href="https://www.amazon.com/dp/B081794JZT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="FORTEM Ratchet Straps, 1650lb Break Strength, 4 Pack 15ft x 1in Tie Down Strap Set, 4 Soft Loops, Motorcycle Straps Tie Downs, Cargo Cam Buckles for Trucks, Rubber Handles, Carry Bag" src="https://m.media-amazon.com/images/I/51cFVQiSH4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B081794JZT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="FORTEM Ratchet Straps, 1650lb Break Strength, 4 Pack 15ft x 1in Tie Down Strap Set, 4 Soft Loops, Motorcycle Straps Tie Downs, Cargo Cam Buckles for Trucks, Rubber Handles, Carry Bag" src="https://m.media-amazon.com/images/I/51cFVQiSH4L._SL500_.jpg"/></a>
 
 
 The **FORTEM Ratchet Straps** are ideal for individuals who frequently transport heavy or bulky items such as motorcycles, cargo, or equipment. Whether you are a truck owner, motorcycle enthusiast, or someone who needs reliable tie-down solutions, this 4-pack set offers durable and secure straps designed to handle demanding loads with ease.
@@ -224,10 +224,10 @@ The **FORTEM Ratchet Straps** feature a robust design with a high **1650lb break
 
 Additionally, the **rubber handles** on the ratchets improve user comfort and control, reducing hand fatigue when tightening the straps. The **cargo cam buckles** allow for fast and reliable adjustments, saving time during loading and unloading. Packaged in a **compact carry bag**, these straps are easy to store and transport, making them a practical solution for anyone needing dependable tie-downs for trucks, trailers, or other vehicles.
 
-## <a href="https://www.amazon.com/dp/B07V6X65QD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Stanley S1007 Ratchet Tie Down Straps</a>
+## <a href="https://www.amazon.com/dp/B07V6X65QD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Stanley S1007 Ratchet Tie Down Straps</a>
 
 
-<a href="https://www.amazon.com/dp/B07V6X65QD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="STANLEY S1007 Black/Yellow 1.5" src="https://m.media-amazon.com/images/I/51Rrj8rz5cL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07V6X65QD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="STANLEY S1007 Black/Yellow 1.5" src="https://m.media-amazon.com/images/I/51Rrj8rz5cL._SL500_.jpg"/></a>
 
 
 The **STANLEY S1007 Black/Yellow 1.5" x 16' Ratchet Tie Down Straps** are ideal for anyone needing a reliable and durable solution for securing cargo during transport. Whether you're a professional mover, a contractor transporting tools and equipment, or a weekend warrior hauling recreational gear, these straps provide the strength and ease of use necessary to keep your items safe and secure.
@@ -249,10 +249,10 @@ The **STANLEY S1007 ratchet tie down straps** are engineered for strength and re
 
 Manufactured by **BCS International** under the trusted **STANLEY** brand, these straps combine quality materials with thoughtful design. The ratchet mechanism provides a secure and tight fastening, which helps prevent slippage. Whether securing construction materials, outdoor equipment, or household goods, these tie-downs offer peace of mind and convenience. Their lightweight build makes them easy to carry and store, ensuring they are ready whenever you need to secure your load safely.
 
-## <a href="https://www.amazon.com/dp/B0C27QKNG9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Kje 4 Pack Car Tie Down Straps For Trailers</a>
+## <a href="https://www.amazon.com/dp/B0C27QKNG9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Kje 4 Pack Car Tie Down Straps For Trailers</a>
 
 
-<a href="https://www.amazon.com/dp/B0C27QKNG9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="KJE 4 Pack Car Tie Down Straps for Trailers - Tire Ratchet Strap with Flat Hooks - 2" src="https://m.media-amazon.com/images/I/51pzL9BjCDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C27QKNG9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="KJE 4 Pack Car Tie Down Straps for Trailers - Tire Ratchet Strap with Flat Hooks - 2" src="https://m.media-amazon.com/images/I/51pzL9BjCDL._SL500_.jpg"/></a>
 
 
 The **KJE 4 Pack Car Tie Down Straps for Trailers** are ideal for vehicle owners who frequently transport their **UTVs, SUVs, or cars** using trailers. If you need reliable, heavy-duty straps that ensure your vehicle stays securely in place during transit, these **ratchet straps with flat hooks** provide a perfect solution. Whether you are a professional hauler or a weekend adventurer, these straps are designed to handle tough conditions with ease.

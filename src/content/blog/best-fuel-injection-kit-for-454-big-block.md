@@ -23,10 +23,10 @@ Stainless steel bolts and mechanical fuel pumps also improve durability. Choosin
 
 
 
-## <a href="https://www.amazon.com/dp/B09V4PB3YM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Partsflow Full Complete Gasket Set</a>
+## <a href="https://www.amazon.com/dp/B09V4PB3YM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Partsflow Full Complete Gasket Set</a>
 
 
-<a href="https://www.amazon.com/dp/B09V4PB3YM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PartsFlow Full Complete Gasket Set for BBC Big Block Chevy 454 427 396 for Chevy C30 for GMC for Pontiac for Pontiac 7.4L,6.6L V8 Ks2679" src="https://m.media-amazon.com/images/I/51eArtWFe2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09V4PB3YM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PartsFlow Full Complete Gasket Set for BBC Big Block Chevy 454 427 396 for Chevy C30 for GMC for Pontiac for Pontiac 7.4L,6.6L V8 Ks2679" src="https://m.media-amazon.com/images/I/51eArtWFe2L._SL500_.jpg"/></a>
 
 
 The **PartsFlow Full Complete Gasket Set** is ideal for automotive enthusiasts, mechanics, and professionals working on classic or performance engines. Specifically designed for the **BBC Big Block Chevy 454, 427, 396** engines as well as compatible with **Chevy C30, GMC, and Pontiac 7.4L, 6.6L V8** engines, this gasket set is perfect for those seeking a reliable, comprehensive solution for engine rebuilds or repairs.
@@ -48,10 +48,10 @@ The **PartsFlow Full Complete Gasket Set** includes all necessary gaskets needed
 
 With this gasket set, users benefit from reduced engine downtime and improved efficiency during engine rebuilds or repairs. The precision fit of each gasket minimizes the risk of engine damage caused by leaks or improper sealing. Overall, this gasket set from **PartsFlow** delivers both quality and convenience, making it a smart choice for anyone looking to maintain or restore their big block Chevy or compatible V8 engines.
 
-## <a href="https://www.amazon.com/dp/B0CK5BKVKZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Black Steel Fuel Pump Block Off Plate</a>
+## <a href="https://www.amazon.com/dp/B0CK5BKVKZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Black Steel Fuel Pump Block Off Plate</a>
 
 
-<a href="https://www.amazon.com/dp/B0CK5BKVKZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Black Steel Fuel Pump Block Off Plate Compatible With Chevy/Ford Big Block 396-454 Engines" src="https://m.media-amazon.com/images/I/41xxBbXSyPL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CK5BKVKZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Black Steel Fuel Pump Block Off Plate Compatible With Chevy/Ford Big Block 396-454 Engines" src="https://m.media-amazon.com/images/I/41xxBbXSyPL._SL500_.jpg"/></a>
 
 
 The **Black Steel Fuel Pump Block Off Plate** is ideal for automotive enthusiasts and mechanics who own or work on **Chevy** or **Ford Big Block engines** ranging from **396 to 454 cubic inches**. This product is perfect for those looking to securely seal the fuel pump mounting area, especially when converting to an electric fuel pump setup or performing engine modifications that require the removal of the mechanical fuel pump.
@@ -73,10 +73,10 @@ This **fuel pump block off plate** is built by **Cobra-Tek**, a brand known for 
 
 Users benefit from a clean and efficient sealing solution when transitioning to modern fuel delivery systems or customizing their engine setup. The corrosion-resistant finish not only improves the part’s longevity but also enhances the overall engine bay aesthetics. Overall, this block off plate offers a reliable and professional-grade option for those upgrading or maintaining their big block engines.
 
-## <a href="https://www.amazon.com/dp/B0F2FK4BMS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">8 Pieces Fuel Injector Kit For Mercruiser 454 Bbc</a>
+## <a href="https://www.amazon.com/dp/B0F2FK4BMS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">8 Pieces Fuel Injector Kit For Mercruiser 454 Bbc</a>
 
 
-<a href="https://www.amazon.com/dp/B0F2FK4BMS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="8 Pieces Fuel Injector Kit 25180245 802632T for Mercruiser 454 BBC - Marine Grade Injection System for 1998-2001 GM Big Block Engines" src="https://m.media-amazon.com/images/I/41tdzKJyN2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F2FK4BMS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="8 Pieces Fuel Injector Kit 25180245 802632T for Mercruiser 454 BBC - Marine Grade Injection System for 1998-2001 GM Big Block Engines" src="https://m.media-amazon.com/images/I/41tdzKJyN2L._SL500_.jpg"/></a>
 
 
 The **8 Pieces Fuel Injector Kit 25180245 802632T** is ideal for boat owners and marine mechanics who operate **Mercruiser 454 BBC** engines from 1998 to 2001, specifically those with **GM Big Block engines**. If you're looking to maintain or enhance the performance of your marine engine with a reliable, marine-grade injection system, this kit is designed to meet your needs.
@@ -98,10 +98,10 @@ This **fuel injector kit** is crafted to provide optimal fuel atomization and in
 
 By installing this **ZDKK** fuel injector kit, users benefit from smoother engine operation, reduced emissions, and enhanced throttle response. Its lightweight and compact design facilitate easier handling during installation, while the durable materials ensure longevity and reliability on the water. For anyone serious about maintaining peak marine engine performance, this kit offers an effective and efficient solution.
 
-## <a href="https://www.amazon.com/dp/B0CVMQNWB3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Bbc Fuel Pump Bolts Stainless Steel Kit Big Block Chevy</a>
+## <a href="https://www.amazon.com/dp/B0CVMQNWB3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Bbc Fuel Pump Bolts Stainless Steel Kit Big Block Chevy</a>
 
 
-<a href="https://www.amazon.com/dp/B0CVMQNWB3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BBC Fuel Pump Bolts Stainless Steel Kit Big Block Chevy 396 402 427 454 502" src="https://m.media-amazon.com/images/I/41lSZNGj-pL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CVMQNWB3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BBC Fuel Pump Bolts Stainless Steel Kit Big Block Chevy 396 402 427 454 502" src="https://m.media-amazon.com/images/I/41lSZNGj-pL._SL500_.jpg"/></a>
 
 
 The **BBC Fuel Pump Bolts Stainless Steel Kit** is ideal for car enthusiasts and professional mechanics who work on **Big Block Chevy engines** such as the 396, 402, 427, 454, and 502. If you are looking to upgrade or replace your fuel pump mounting hardware with durable and corrosion-resistant components, this kit from **269 Motorsports** is designed to meet your needs. It is perfect for those seeking reliability and longevity in their engine restoration or performance build projects.
@@ -123,10 +123,10 @@ The **BBC Fuel Pump Bolts Stainless Steel Kit** offers robust features tailored 
 
 Users benefit not only from the enhanced strength and longevity but also from the ease of installation that comes with a kit engineered by **269 Motorsports**. The attention to detail and quality manufacturing means that the bolts will maintain their integrity under high stress and temperature variations, ensuring the fuel pump remains firmly attached. This reliability is essential for maintaining optimal fuel delivery and engine performance, making this bolt kit a valuable investment for both professional mechanics and automotive enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B0BWFPP5HQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Big Block Chevyy Black Fuel Pump Block Off Plate Steel Bbc 396 427 454</a>
+## <a href="https://www.amazon.com/dp/B0BWFPP5HQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Big Block Chevyy Black Fuel Pump Block Off Plate Steel Bbc 396 427 454</a>
 
 
-<a href="https://www.amazon.com/dp/B0BWFPP5HQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="New Big Block CHEVYY Black Fuel Pump BLOCKk Off Plate Steel BBC 396 427 454 2058BK" src="https://m.media-amazon.com/images/I/31ZJjgiZCOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BWFPP5HQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="New Big Block CHEVYY Black Fuel Pump BLOCKk Off Plate Steel BBC 396 427 454 2058BK" src="https://m.media-amazon.com/images/I/31ZJjgiZCOL._SL500_.jpg"/></a>
 
 
 The **New Big Block CHEVYY Black Fuel Pump BLOCKk Off Plate Steel BBC 396 427 454 2058BK** is ideal for automotive enthusiasts and professional mechanics who work on classic Chevrolet Big Block engines. If you are looking to upgrade or replace your fuel pump block off plate with a durable and reliable component, this product is designed to fit engines such as the **BBC 396, 427, and 454**. Buyers seeking a sturdy steel build with precise compatibility will find this item beneficial for their restoration or performance projects.
@@ -148,10 +148,10 @@ This **fuel pump block off plate** is engineered to provide a secure seal where 
 
 Designed with precision by **OLM**, this component guarantees a snug fit for the specified **Big Block Chevrolet engines**, minimizing installation issues and improving overall engine reliability. Whether you're restoring a classic muscle car or upgrading your engine components, this block off plate delivers a practical and cost-effective solution to maintain engine integrity and performance.
 
-## <a href="https://www.amazon.com/dp/B0CRVPTTBK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Munirater Full Complete Gasket Set Replacement For Bbc Big Block 454 427 396 V8</a>
+## <a href="https://www.amazon.com/dp/B0CRVPTTBK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Munirater Full Complete Gasket Set Replacement For Bbc Big Block 454 427 396 V8</a>
 
 
-<a href="https://www.amazon.com/dp/B0CRVPTTBK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="munirater Full Complete Gasket Set Replacement for BBC Big Block 454 427 396 V8 Replacement for 260-1009" src="https://m.media-amazon.com/images/I/51aL1hRZfsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CRVPTTBK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="munirater Full Complete Gasket Set Replacement for BBC Big Block 454 427 396 V8 Replacement for 260-1009" src="https://m.media-amazon.com/images/I/51aL1hRZfsL._SL500_.jpg"/></a>
 
 
 The **munirater Full Complete Gasket Set Replacement for BBC Big Block 454 427 396 V8** is ideal for car enthusiasts and professional mechanics who require a reliable gasket set for their **Big Block Chevrolet engines**. This comprehensive gasket set is perfect for those looking to rebuild or replace gaskets in their **BBC 454, 427, or 396 V8 engines**, ensuring optimal performance and longevity.
@@ -171,10 +171,10 @@ The **munirater Full Complete Gasket Set** offers a robust solution for those lo
 
 Furthermore, the gaskets are crafted from high-quality materials, providing durability and resistance against the high temperatures and pressures typical in high-displacement engines. This ensures that users can rely on their engine to perform optimally under demanding conditions. However, due to its specialized nature, the gasket set is best suited for those with experience in engine maintenance or those willing to seek professional installation services.
 
-## <a href="https://www.amazon.com/dp/B0DLKMPYYC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Chrome Mechanical Fuel Pump</a>
+## <a href="https://www.amazon.com/dp/B0DLKMPYYC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Chrome Mechanical Fuel Pump</a>
 
 
-<a href="https://www.amazon.com/dp/B0DLKMPYYC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Chrome Mechanical Fuel Pump Compatible With Big Block Chevy BBC 396-454 V8 Engine" src="https://m.media-amazon.com/images/I/417WyQZpplL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DLKMPYYC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Chrome Mechanical Fuel Pump Compatible With Big Block Chevy BBC 396-454 V8 Engine" src="https://m.media-amazon.com/images/I/417WyQZpplL._SL500_.jpg"/></a>
 
 
 The **Chrome Mechanical Fuel Pump** is ideal for automotive enthusiasts and mechanics who own or work on a **Big Block Chevy (BBC) 396-454 V8 Engine**. If you are looking to upgrade or replace your fuel pump with a durable, reliable, and visually appealing component, this product from **YUCHENSHLP** is designed to meet those needs. Its compatibility with BBC engines makes it a perfect choice for performance upgrades and restoration projects.
@@ -197,10 +197,10 @@ The **Chrome Mechanical Fuel Pump** by **YUCHENSHLP** boasts a sturdy design and
 
 Additionally, this fuel pump improves fuel flow efficiency, supporting better throttle response and smoother engine operation. Enthusiasts restoring or upgrading their BBC engines will appreciate the combination of durability and aesthetics, as the chrome finish resists rust and wear while elevating the overall engine bay look. While it is tailored for mechanical fuel systems, its robust build makes it a trusted choice for those who prioritize classic engine compatibility and dependable performance.
 
-## <a href="https://www.amazon.com/dp/B000C9KN4W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Acdelco 217-454 Gm Original Equipment Fuel Injector O-ring Kit</a>
+## <a href="https://www.amazon.com/dp/B000C9KN4W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Acdelco 217-454 Gm Original Equipment Fuel Injector O-ring Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B000C9KN4W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ACDelco 217-454 GM Original Equipment Fuel Injector O-Ring Kit with Seal and O-Rings" src="https://m.media-amazon.com/images/I/41Jgl6Wvd6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000C9KN4W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ACDelco 217-454 GM Original Equipment Fuel Injector O-Ring Kit with Seal and O-Rings" src="https://m.media-amazon.com/images/I/41Jgl6Wvd6L._SL500_.jpg"/></a>
 
 
 The **ACDelco 217-454 GM Original Equipment Fuel Injector O-Ring Kit with Seal and O-Rings** is ideal for vehicle owners and automotive technicians who want to maintain or repair their fuel injection system with high-quality, reliable components. This kit is perfect for those seeking genuine OEM parts to ensure proper fit, function, and longevity in their GM vehicles.
@@ -223,10 +223,10 @@ The **ACDelco 217-454 Fuel Injector O-Ring Kit** offers a comprehensive solution
 
 Additionally, the materials used in this kit are engineered to withstand harsh operating conditions, including exposure to fuel and heat, which enhances the longevity of the fuel injection system. For users, this translates into fewer maintenance worries and improved vehicle reliability. Overall, this kit is an excellent investment for anyone looking to preserve or restore their GM vehicle’s fuel injector system with trusted, high-quality parts.
 
-## <a href="https://www.amazon.com/dp/B003D2C0DW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Edelbrock Efi Fuel Rail Kit Chrysler Big Block 413-440</a>
+## <a href="https://www.amazon.com/dp/B003D2C0DW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Edelbrock Efi Fuel Rail Kit Chrysler Big Block 413-440</a>
 
 
-<a href="https://www.amazon.com/dp/B003D2C0DW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Edelbrock 3644 EFI Fuel Rail Kit Chrysler Big Block 413-440, Multicolor, One Size" src="https://m.media-amazon.com/images/I/41R25W10nOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B003D2C0DW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Edelbrock 3644 EFI Fuel Rail Kit Chrysler Big Block 413-440, Multicolor, One Size" src="https://m.media-amazon.com/images/I/41R25W10nOL._SL500_.jpg"/></a>
 
 
 The **Edelbrock 3644 EFI Fuel Rail Kit** for **Chrysler Big Block 413-440** engines is ideal for automotive enthusiasts and professional mechanics looking to upgrade their fuel delivery system. This product is perfect for those who want a reliable, high-performance fuel rail kit that supports electronic fuel injection (EFI) setups, ensuring efficient fuel flow and improved engine performance. If you own a classic Chrysler big block engine and are aiming for better throttle response and fuel efficiency, this kit is an excellent choice.
@@ -249,10 +249,10 @@ The **Edelbrock 3644 EFI Fuel Rail Kit** enhances your engine's fuel system by p
 
 In addition to its functional benefits, the kit's **multicolor** finish not only adds to the engine bay's visual appeal but also helps protect against wear and corrosion. The lightweight construction minimizes added weight, ensuring no compromise on the vehicle's overall performance. Being a product from **Edelbrock**, users can trust in its durability and design precision, which aligns with the needs of both casual car enthusiasts and professional tuners alike.
 
-## <a href="https://www.amazon.com/dp/B09WMPXZ5W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Plentzom Fuel Injector Block-off Tool Cap</a>
+## <a href="https://www.amazon.com/dp/B09WMPXZ5W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Plentzom Fuel Injector Block-off Tool Cap</a>
 
 
-<a href="https://www.amazon.com/dp/B09WMPXZ5W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PLENTZOM 14MM Fuel Injector Block-Off Tool Cap 9011 EN-47589-1 Compatible with Dodge Cummins 5.9L and 6.6L Chevy/GMC Duramax 2003-2018 (2)" src="https://m.media-amazon.com/images/I/41C7AnapFAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09WMPXZ5W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PLENTZOM 14MM Fuel Injector Block-Off Tool Cap 9011 EN-47589-1 Compatible with Dodge Cummins 5.9L and 6.6L Chevy/GMC Duramax 2003-2018 (2)" src="https://m.media-amazon.com/images/I/41C7AnapFAL._SL500_.jpg"/></a>
 
 
 The **PLENTZOM 14MM Fuel Injector Block-Off Tool Cap 9011 EN-47589-1** is ideal for automotive enthusiasts and professional mechanics who work on **Dodge Cummins 5.9L** and **6.6L Chevy/GMC Duramax** diesel engines from 2003 to 2018. If you need a reliable and precise tool to block off fuel injector ports during maintenance or repairs, this product is designed specifically for you.

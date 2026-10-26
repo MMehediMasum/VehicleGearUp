@@ -23,10 +23,10 @@ Fast-drying formulas save time, while anti-rust technology extends your car’s 
 
 
 
-## <a href="https://www.amazon.com/dp/B0D9MKG5V6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">U-pol Etching Primer</a>
+## <a href="https://www.amazon.com/dp/B0D9MKG5V6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">U-pol Etching Primer</a>
 
 
-<a href="https://www.amazon.com/dp/B0D9MKG5V6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="U-POL Etching Primer, Strong-Hold, Premium Quality Primer Spray For Bare Metals With Anti-Rust Technology, Gray" src="https://m.media-amazon.com/images/I/318dT4hUnZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D9MKG5V6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="U-POL Etching Primer, Strong-Hold, Premium Quality Primer Spray For Bare Metals With Anti-Rust Technology, Gray" src="https://m.media-amazon.com/images/I/318dT4hUnZL._SL500_.jpg"/></a>
 
 
 The **U-POL Etching Primer** is ideal for professionals and DIY enthusiasts looking to prepare bare metal surfaces before painting. If you need a reliable primer that offers strong adhesion and anti-rust protection, this product is designed to meet those needs effectively. It is especially suitable for automotive restorations, metal fabrication, and any project requiring durable surface preparation.
@@ -48,10 +48,10 @@ The **U-POL Etching Primer** boasts a specialized formula that chemically etches
 
 In addition to protection, this primer’s spray design offers ease of application, allowing users to achieve a smooth and uniform coat quickly. The gray color is beneficial for visual confirmation during the priming process, helping to avoid missed spots. Overall, the **U-POL Etching Primer** combines practicality with high performance, making it a valuable asset for anyone aiming to achieve professional-quality results on bare metal surfaces.
 
-## <a href="https://www.amazon.com/dp/B07MDL82KH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Custom Shop Self Etching Primer Spray</a>
+## <a href="https://www.amazon.com/dp/B07MDL82KH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Custom Shop Self Etching Primer Spray</a>
 
 
-<a href="https://www.amazon.com/dp/B07MDL82KH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Custom Shop Self Etching Primer Spray - 12.9oz Gray Acid Etch Primer for Metal, Aluminum &amp; Stainless Steel - Fast Drying Automotive Etching Primers, Pre Truck Bed Liner Primers for Bare Metal" src="https://m.media-amazon.com/images/I/41jhGx4uCrS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07MDL82KH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Custom Shop Self Etching Primer Spray - 12.9oz Gray Acid Etch Primer for Metal, Aluminum &amp; Stainless Steel - Fast Drying Automotive Etching Primers, Pre Truck Bed Liner Primers for Bare Metal" src="https://m.media-amazon.com/images/I/41jhGx4uCrS._SL500_.jpg"/></a>
 
 
 The **Custom Shop Self Etching Primer Spray** is ideal for automotive enthusiasts, metalworkers, and DIYers who need a reliable primer for bare metal surfaces such as **metal, aluminum, and stainless steel**. If you’re preparing surfaces for painting or applying truck bed liners, this fast-drying **acid etch primer** offers excellent adhesion and corrosion resistance, making it a perfect choice for those seeking durable and professional-grade results.
@@ -74,10 +74,10 @@ The **Custom Shop Self Etching Primer Spray** boasts a specialized formula desig
 
 Additionally, the primer’s compatibility with a wide range of metals, including aluminum and stainless steel, makes it a versatile tool for various applications. Whether you’re preparing a truck bed liner or restoring metal components, this primer ensures excellent adhesion and smooth surface preparation. Overall, it delivers professional results, helping users achieve durable and long-lasting finishes on their metal surfaces.
 
-## <a href="https://www.amazon.com/dp/B006HFM5YG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">U-pol Acid#8 Acid Etch Primer</a>
+## <a href="https://www.amazon.com/dp/B006HFM5YG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">U-pol Acid#8 Acid Etch Primer</a>
 
 
-<a href="https://www.amazon.com/dp/B006HFM5YG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="U-POL ACID#8 Acid Etch Primer, Automotive Etching Primer Spray Paint For Bare Metals, Durable Against Rust &amp; Corrosion, Easy-To-Use, Gray, 13 OZ" src="https://m.media-amazon.com/images/I/31QQeeQZwfL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B006HFM5YG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="U-POL ACID#8 Acid Etch Primer, Automotive Etching Primer Spray Paint For Bare Metals, Durable Against Rust &amp; Corrosion, Easy-To-Use, Gray, 13 OZ" src="https://m.media-amazon.com/images/I/31QQeeQZwfL._SL500_.jpg"/></a>
 
 
 The **U-POL ACID#8 Acid Etch Primer** is ideal for automotive enthusiasts, professional body shops, and DIYers who work with **bare metal surfaces**. If you need a reliable primer that provides excellent adhesion and protection against rust and corrosion before painting, this product is designed for you. Its easy-to-use spray format makes it perfect for both small repairs and larger projects.
@@ -100,10 +100,10 @@ The **U-POL ACID#8 Acid Etch Primer** features a specially formulated acid etchi
 
 Additionally, the primer is designed to be **durable against rust and corrosion**, extending the lifespan of your automotive parts. The **compact 13 OZ spray can** is ergonomically designed for easy handling, allowing for precise control and minimal overspray. This makes it an excellent choice for professionals and hobbyists alike who want to achieve a high-quality, long-lasting paint job on their vehicles.
 
-## <a href="https://www.amazon.com/dp/B0921RBH41?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Custom Shop Premium Black Self Etching Primer</a>
+## <a href="https://www.amazon.com/dp/B0921RBH41?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Custom Shop Premium Black Self Etching Primer</a>
 
 
-<a href="https://www.amazon.com/dp/B0921RBH41?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Custom Shop Premium Black Self Etching Primer, 1 Gallon - Ready to Spray Paint, Excellent Adhesion to Bare Metal, Steel, Aluminum, Fiberglass - Use on Automotive Car Parts, OEM Industrial Coating" src="https://m.media-amazon.com/images/I/51RfuiWXmLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0921RBH41?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Custom Shop Premium Black Self Etching Primer, 1 Gallon - Ready to Spray Paint, Excellent Adhesion to Bare Metal, Steel, Aluminum, Fiberglass - Use on Automotive Car Parts, OEM Industrial Coating" src="https://m.media-amazon.com/images/I/51RfuiWXmLL._SL500_.jpg"/></a>
 
 
 The **Custom Shop Premium Black Self Etching Primer** is ideal for automotive enthusiasts, professional mechanics, and DIY hobbyists who demand a **high-quality primer** that offers **excellent adhesion** to a variety of surfaces. Whether you're restoring a classic car or working on industrial projects, this primer is designed to meet your needs with precision and reliability.
@@ -123,10 +123,10 @@ The **Custom Shop Premium Black Self Etching Primer** is specifically formulated
 
 This primer's **versatility** extends to its ability to be used on **automotive car parts** as well as **OEM industrial coatings**, offering a comprehensive solution for different project requirements. However, users should be mindful of the **safety precautions** needed during application and the limitation of the **color choice**, which is exclusively black. Overall, it provides a reliable foundation for further coatings, enhancing the durability and appearance of the painted surfaces.
 
-## <a href="https://www.amazon.com/dp/B07Q5G8STD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Eastwood 2k Epoxy Gray Primer</a>
+## <a href="https://www.amazon.com/dp/B07Q5G8STD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Eastwood 2k Epoxy Gray Primer</a>
 
 
-<a href="https://www.amazon.com/dp/B07Q5G8STD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Eastwood 2K Epoxy Gray Primer | AeroSpray Catalyzed Technology | Durable Direct to Metal Automotive | Performance on Car Body Filler | 10-16 Sq Ft Coverage | 12 oz | 1 Pack" src="https://m.media-amazon.com/images/I/314qG6jo2XL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07Q5G8STD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Eastwood 2K Epoxy Gray Primer | AeroSpray Catalyzed Technology | Durable Direct to Metal Automotive | Performance on Car Body Filler | 10-16 Sq Ft Coverage | 12 oz | 1 Pack" src="https://m.media-amazon.com/images/I/314qG6jo2XL._SL500_.jpg"/></a>
 
 
 The **Eastwood 2K Epoxy Gray Primer** is ideal for automotive enthusiasts, professional body shops, and DIY mechanics seeking a reliable and durable primer for metal surfaces. If you want to ensure excellent adhesion and corrosion resistance on car body filler or bare metal, this product is designed to meet those needs efficiently.
@@ -149,10 +149,10 @@ The **Eastwood 2K Epoxy Gray Primer** features a unique catalyzed formula that e
 
 Beyond durability, this primer offers smooth coverage and a consistent finish, which helps users achieve a professional look even on DIY projects. The gray color serves as a perfect base for subsequent layers of paint, enhancing the overall appearance and longevity of automotive paint jobs. Whether you are restoring a classic car or performing routine maintenance, the Eastwood 2K Epoxy Gray Primer provides a dependable foundation that improves paint adhesion and protects metal surfaces from environmental damage.
 
-## <a href="https://www.amazon.com/dp/B004SR5ZXS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">U-pol Acid#8 Acid Etch Primer</a>
+## <a href="https://www.amazon.com/dp/B004SR5ZXS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">U-pol Acid#8 Acid Etch Primer</a>
 
 
-<a href="https://www.amazon.com/dp/B004SR5ZXS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="U-POL ACID#8 Acid Etch Primer, Automotive Etching Primer Paint For Bare Metals, Durable Against Rust &amp; Corrosion, Easy-To-Use, Gray, 1L" src="https://m.media-amazon.com/images/I/51P-Q7N8HjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B004SR5ZXS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="U-POL ACID#8 Acid Etch Primer, Automotive Etching Primer Paint For Bare Metals, Durable Against Rust &amp; Corrosion, Easy-To-Use, Gray, 1L" src="https://m.media-amazon.com/images/I/51P-Q7N8HjL._SL500_.jpg"/></a>
 
 
 The **U-POL ACID#8 Acid Etch Primer** is ideal for automotive enthusiasts, professional painters, and metalworkers who need a reliable primer for bare metal surfaces. If you are looking to protect your vehicle or metal projects from rust and corrosion while ensuring excellent paint adhesion, this durable and easy-to-use primer is a perfect choice. It is especially suited for those who want a high-quality aluminum-colored primer that enhances the longevity of their paint jobs.
@@ -175,10 +175,10 @@ The **U-POL ACID#8 Acid Etch Primer** is designed to create a strong bond with b
 
 Additionally, the primer's formulation provides robust protection against environmental factors that typically cause rust and corrosion. This makes it a valuable product for extending the life of vehicles and metal equipment exposed to harsh conditions. Its compact dimensions and manageable weight make it convenient to handle and store, catering to both personal and professional use.
 
-## <a href="https://www.amazon.com/dp/B08WQ19YGT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Car-rep® 2k Epoxy Primer</a>
+## <a href="https://www.amazon.com/dp/B08WQ19YGT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Car-rep® 2k Epoxy Primer</a>
 
 
-<a href="https://www.amazon.com/dp/B08WQ19YGT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Car-Rep® 2K Epoxy Primer with Wise 2K Technology, Suitable for All Kinds of Metals, Carbon Fiber Substrates, Most Automotive Plastics, Grey, 11oz Aerosol Can" src="https://m.media-amazon.com/images/I/3193qgW8PGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08WQ19YGT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Car-Rep® 2K Epoxy Primer with Wise 2K Technology, Suitable for All Kinds of Metals, Carbon Fiber Substrates, Most Automotive Plastics, Grey, 11oz Aerosol Can" src="https://m.media-amazon.com/images/I/3193qgW8PGL._SL500_.jpg"/></a>
 
 
 The **Car-Rep® 2K Epoxy Primer with Wise 2K Technology** is ideal for automotive enthusiasts, professional body shops, and DIYers who require a reliable and versatile primer that adheres well to various surfaces. If you work with metals, carbon fiber substrates, or most automotive plastics, this product offers a high-quality solution to ensure durable and long-lasting paint adhesion. Its convenient 11oz aerosol can makes it perfect for small to medium projects where precision and ease of application are essential.
@@ -201,10 +201,10 @@ The **Car-Rep® 2K Epoxy Primer** stands out due to its compatibility with a wid
 
 Additionally, the product’s formulation ensures a smooth and uniform grey base coat that promotes excellent topcoat bonding, which is critical for achieving professional-looking paint jobs. Its compact aerosol packaging offers convenience and control, making it easier to reach tight spaces and apply even coats without overspray. Overall, the **Car-Rep® 2K Epoxy Primer** is a dependable choice for those seeking a high-performance primer that delivers durability, versatility, and ease of use in automotive refinishing projects.
 
-## <a href="https://www.amazon.com/dp/B007N6H9HQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Eastwood Gray Epoxy Primer And Sealer Quart</a>
+## <a href="https://www.amazon.com/dp/B007N6H9HQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Eastwood Gray Epoxy Primer And Sealer Quart</a>
 
 
-<a href="https://www.amazon.com/dp/B007N6H9HQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Eastwood Gray Epoxy Primer and Sealer Quart 1:1 | Epoxy Primer Sealant for Steel Fibreglass Aluminium | Automotive Car Body Filler for Car Restoration | Rust Proofing Underseal for Anti Corrosion" src="https://m.media-amazon.com/images/I/41wXO+Df0nL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B007N6H9HQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Eastwood Gray Epoxy Primer and Sealer Quart 1:1 | Epoxy Primer Sealant for Steel Fibreglass Aluminium | Automotive Car Body Filler for Car Restoration | Rust Proofing Underseal for Anti Corrosion" src="https://m.media-amazon.com/images/I/41wXO+Df0nL._SL500_.jpg"/></a>
 
 
 The **Eastwood Gray Epoxy Primer and Sealer Quart 1:1** is ideal for automotive enthusiasts, professional restorers, and DIY mechanics who need a reliable solution for protecting and preparing metal surfaces. If you work with **steel, fiberglass, or aluminum** and want to ensure excellent adhesion and rust prevention during car restoration or bodywork projects, this product is designed for you. It is especially suitable for those looking for a durable **anti-corrosion underseal** that extends the lifespan of automotive parts.
@@ -227,10 +227,10 @@ The **Eastwood Gray Epoxy Primer and Sealer** is formulated to deliver a durable
 
 Beyond its protective qualities, this epoxy primer provides a solid foundation that improves the overall finish quality of automotive paint jobs. Its easy-to-mix 1:1 ratio ensures consistent application and reduces waste, making it user-friendly for both professionals and hobbyists. The **rust-proofing underseal** feature extends the longevity of car bodies, especially in harsh environments, by safeguarding vulnerable metal parts from oxidation. Overall, the Eastwood epoxy primer is a practical choice for anyone committed to high-quality and long-lasting vehicle restoration.
 
-## <a href="https://www.amazon.com/dp/B00NOIKV9A?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">U-pol Acid#8 Acid Etch Primer</a>
+## <a href="https://www.amazon.com/dp/B00NOIKV9A?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">U-pol Acid#8 Acid Etch Primer</a>
 
 
-<a href="https://www.amazon.com/dp/B00NOIKV9A?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="U-POL ACID#8 Acid Etch Primer, Automotive Etching Primer Spray Paint For Bare Metals, Durable Against Rust &amp; Corrosion, Easy-To-Use, Black, 12.7 OZ" src="https://m.media-amazon.com/images/I/41F7SKyf-WL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00NOIKV9A?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="U-POL ACID#8 Acid Etch Primer, Automotive Etching Primer Spray Paint For Bare Metals, Durable Against Rust &amp; Corrosion, Easy-To-Use, Black, 12.7 OZ" src="https://m.media-amazon.com/images/I/41F7SKyf-WL._SL500_.jpg"/></a>
 
 
 The **U-POL ACID#8 Acid Etch Primer** is ideal for automotive enthusiasts, professional body shops, and DIYers who work with **bare metals** and need a reliable primer that offers strong protection against rust and corrosion. If you are looking to prepare metal surfaces for painting with an easy-to-use product that ensures durability and adhesion, this **automotive etching primer spray paint** is a perfect choice.
@@ -253,10 +253,10 @@ The **U-POL ACID#8 Acid Etch Primer** spray is specially formulated to bond dire
 
 Beyond its adhesion qualities, this primer provides long-lasting protection against rust and corrosion, which are common issues in metal automotive parts exposed to moisture and environmental elements. The spray paint format offers ease of use, allowing for quick and even application even in hard-to-reach areas. Overall, the **U-POL ACID#8** balances performance and convenience, making it an indispensable tool for metal surface preparation.
 
-## <a href="https://www.amazon.com/dp/B07Q5V3L82?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Custom Shop Self Etching Primer Spray (6 Pack)</a>
+## <a href="https://www.amazon.com/dp/B07Q5V3L82?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Custom Shop Self Etching Primer Spray (6 Pack)</a>
 
 
-<a href="https://www.amazon.com/dp/B07Q5V3L82?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Custom Shop Self Etching Primer Spray (6 Pack) - 12.9oz Gray Acid Etch Primer for Metal, Aluminum &amp; Stainless Steel - Fast Drying Automotive Etching Primers, Pre Truck Bed Liner Primers for Bare Metal" src="https://m.media-amazon.com/images/I/51S6JdYHXxS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07Q5V3L82?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Custom Shop Self Etching Primer Spray (6 Pack) - 12.9oz Gray Acid Etch Primer for Metal, Aluminum &amp; Stainless Steel - Fast Drying Automotive Etching Primers, Pre Truck Bed Liner Primers for Bare Metal" src="https://m.media-amazon.com/images/I/51S6JdYHXxS._SL500_.jpg"/></a>
 
 
 The **Custom Shop Self Etching Primer Spray (6 Pack)** is perfect for automotive enthusiasts, professional painters, and DIYers who need a reliable primer for bare metal surfaces. If you work with **metal, aluminum, or stainless steel** and require a fast-drying, durable primer that enhances paint adhesion, this product is an ideal choice. It is especially suitable for those prepping surfaces for truck bed liners or other automotive projects.

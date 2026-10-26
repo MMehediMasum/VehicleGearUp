@@ -23,10 +23,10 @@ It’s important to pick shocks that match your bike’s year and style. From he
 
 
 
-## <a href="https://www.amazon.com/dp/B001JA436C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Progressive Suspension 412-4080b Black Anodized Finish 12" Heavy Duty Low Buck Factory Replacement Rear Suspension Shock</a>
+## <a href="https://www.amazon.com/dp/B001JA436C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Progressive Suspension 412-4080b Black Anodized Finish 12" Heavy Duty Low Buck Factory Replacement Rear Suspension Shock</a>
 
 
-<a href="https://www.amazon.com/dp/B001JA436C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Progressive Suspension 412-4080B Black Anodized Finish 12" src="https://m.media-amazon.com/images/I/413g3IzY67L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B001JA436C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Progressive Suspension 412-4080B Black Anodized Finish 12" src="https://m.media-amazon.com/images/I/413g3IzY67L._SL500_.jpg"/></a>
 
 
 The **Progressive Suspension 412-4080B Black Anodized Finish 12" Heavy Duty Low Buck Factory Replacement Rear Suspension Shock** is ideal for motorcycle enthusiasts seeking a reliable and durable upgrade to their rear suspension. This product is perfect for riders who demand enhanced handling, improved ride comfort, and increased load capacity, especially those using their bikes for heavy-duty or long-distance riding.
@@ -48,10 +48,10 @@ The **Progressive Suspension 412-4080B** features a robust build with a black an
 
 Additionally, the 12-inch length and factory replacement compatibility make installation straightforward for many motorcycle models. Riders will notice a smoother ride as the shock absorber efficiently minimizes bumps and vibrations, contributing to better control and less fatigue during long rides. Overall, this suspension shock delivers a dependable balance of comfort, strength, and style for the discerning motorcyclist.
 
-## <a href="https://www.amazon.com/dp/B0068G18E2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Progressive Suspension Ultra Touring Heavy Duty Shocks For Harley</a>
+## <a href="https://www.amazon.com/dp/B0068G18E2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Progressive Suspension Ultra Touring Heavy Duty Shocks For Harley</a>
 
 
-<a href="https://www.amazon.com/dp/B0068G18E2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Progressive Suspension 944-4020UT Ultra Touring Heavy Duty Shocks for Harley" src="https://m.media-amazon.com/images/I/41jHiYMNrsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0068G18E2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Progressive Suspension 944-4020UT Ultra Touring Heavy Duty Shocks for Harley" src="https://m.media-amazon.com/images/I/41jHiYMNrsL._SL500_.jpg"/></a>
 
 
 The **Progressive Suspension 944-4020UT Ultra Touring Heavy Duty Shocks for Harley** are ideal for motorcycle enthusiasts who demand enhanced comfort and superior handling on long-distance rides. These shocks are perfect for Harley-Davidson riders looking to upgrade their suspension system to achieve better stability, especially when carrying heavy loads or cruising on uneven terrain.
@@ -74,10 +74,10 @@ The **Progressive Suspension 944-4020UT Ultra Touring Heavy Duty Shocks** provid
 
 Additionally, these shocks feature a sleek black finish that not only adds to the aesthetic appeal of your Harley but also provides resistance against corrosion and wear. Their precise dimensions ensure a straightforward installation process, making them accessible for riders who prefer to upgrade their suspension system without extensive mechanical work. Overall, these shocks offer a reliable and stylish solution for those seeking to improve their motorcycle’s touring capabilities.
 
-## <a href="https://www.amazon.com/dp/B0B7NBM99S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mofun Black 13" Rear Shocks Lowering Kit</a>
+## <a href="https://www.amazon.com/dp/B0B7NBM99S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mofun Black 13" Rear Shocks Lowering Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0B7NBM99S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mofun Black 13" src="https://m.media-amazon.com/images/I/41PNo9U0NGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B7NBM99S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mofun Black 13" src="https://m.media-amazon.com/images/I/41PNo9U0NGL._SL500_.jpg"/></a>
 
 
 The **Mofun Black 13" Rear Shocks Lowering Kit** is ideal for motorcycle enthusiasts who own Harley Touring models such as the Street, Road Electra Glide, Road King, and Tour Glide from 1980 to 2025. This kit is perfect for riders looking to enhance their bike’s stance and handling by lowering the rear suspension while maintaining ride quality through its preload adjustability. If you want a sleek, aggressive look combined with improved control, this product is designed for you.
@@ -100,10 +100,10 @@ The **Mofun Black 13" Rear Shocks Lowering Kit** offers a significant upgrade fo
 
 By lowering the rear end of the motorcycle, this kit improves the rider’s center of gravity which contributes to better cornering and overall stability on the road. This makes it especially beneficial for riders who frequently navigate tight turns or long highway cruises. Overall, the **Mofun Rear Shocks Lowering Kit** represents a balanced combination of form and function tailored to the needs of Harley Touring enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B0CSW6QQBD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tcmt Remote Reservoir Rear Suspension Shocks</a>
+## <a href="https://www.amazon.com/dp/B0CSW6QQBD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tcmt Remote Reservoir Rear Suspension Shocks</a>
 
 
-<a href="https://www.amazon.com/dp/B0CSW6QQBD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TCMT Remote Reservoir Rear Suspension Shocks Fit For Harley Touring CVO Road Glide Electra Glide Street Glide Road King Ultra Limited 2014-2023 CVO Limited FLHTKSE 2014-2020" src="https://m.media-amazon.com/images/I/41qVCsz173L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CSW6QQBD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TCMT Remote Reservoir Rear Suspension Shocks Fit For Harley Touring CVO Road Glide Electra Glide Street Glide Road King Ultra Limited 2014-2023 CVO Limited FLHTKSE 2014-2020" src="https://m.media-amazon.com/images/I/41qVCsz173L._SL500_.jpg"/></a>
 
 
 The **TCMT Remote Reservoir Rear Suspension Shocks** are ideal for riders who own Harley Touring models such as the **CVO Road Glide**, **Electra Glide**, **Street Glide**, **Road King Ultra Limited** (2014-2023), and **CVO Limited FLHTKSE** (2014-2020). These shocks are perfect for motorcycle enthusiasts seeking enhanced ride comfort, improved handling, and superior shock absorption tailored specifically for their Harley-Davidson touring bikes. If you want to upgrade your suspension system for smoother long-distance rides, this product is a great choice.
@@ -125,10 +125,10 @@ The **TCMT Remote Reservoir Rear Suspension Shocks** are engineered to provide s
 
 Designed specifically for Harley Touring models including the **CVO Road Glide** and **Electra Glide**, these shocks fit seamlessly and improve handling by absorbing road imperfections effectively. Riders will notice a smoother ride, less fatigue, and better traction on various terrains. Backed by the reputable **TCMT** brand, these shocks offer a reliable upgrade for anyone looking to enhance their motorcycle’s suspension system while maintaining the classic Harley look.
 
-## <a href="https://www.amazon.com/dp/B0CD7FHLRH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Newzq Rear Air Ride Suspension Set Replacement For Harley Davidson Touring Glide Ultra</a>
+## <a href="https://www.amazon.com/dp/B0CD7FHLRH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Newzq Rear Air Ride Suspension Set Replacement For Harley Davidson Touring Glide Ultra</a>
 
 
-<a href="https://www.amazon.com/dp/B0CD7FHLRH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NEWZQ Rear Air Ride Suspension Set Replacement for Harley Davidson Touring Glide Ultra 1994-2023" src="https://m.media-amazon.com/images/I/41sXvafqvJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CD7FHLRH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NEWZQ Rear Air Ride Suspension Set Replacement for Harley Davidson Touring Glide Ultra 1994-2023" src="https://m.media-amazon.com/images/I/41sXvafqvJL._SL500_.jpg"/></a>
 
 
 The **NEWZQ Rear Air Ride Suspension Set Replacement** is ideal for riders who own a **Harley Davidson Touring Glide Ultra** from **1994 to 2023** and are looking to enhance their motorcycle’s ride comfort and handling. This product is perfect for those who frequently travel long distances or navigate varying road conditions, seeking a smoother and more controlled riding experience. If you want to upgrade your bike’s suspension system for improved stability and shock absorption, this air ride suspension set is a great choice.
@@ -150,10 +150,10 @@ The **NEWZQ Rear Air Ride Suspension Set** offers a significant upgrade over tra
 
 Built by **NEWZQ**, a reputable manufacturer known for quality motorcycle parts, this suspension set is designed to withstand the rigors of daily riding and long-distance journeys. The improved shock absorption reduces rider fatigue and protects the bike from damage caused by rough terrain. Overall, this rear air ride suspension set is a valuable investment for anyone seeking to improve their Harley Davidson’s performance and riding experience.
 
-## <a href="https://www.amazon.com/dp/B0FD2CFF3N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Xfmt Adjustable Rear Air Ride Suspension Kit Shocks Absorber</a>
+## <a href="https://www.amazon.com/dp/B0FD2CFF3N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Xfmt Adjustable Rear Air Ride Suspension Kit Shocks Absorber</a>
 
 
-<a href="https://www.amazon.com/dp/B0FD2CFF3N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="XFMT Adjustable Rear Air Ride Suspension Kit Shocks Absorber Fit For Harley Touring Baggers Road King Street Glide Road Glide Electra Glide Ultra Classic 1994-Later" src="https://m.media-amazon.com/images/I/51NiGb6n+uL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FD2CFF3N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="XFMT Adjustable Rear Air Ride Suspension Kit Shocks Absorber Fit For Harley Touring Baggers Road King Street Glide Road Glide Electra Glide Ultra Classic 1994-Later" src="https://m.media-amazon.com/images/I/51NiGb6n+uL._SL500_.jpg"/></a>
 
 
 The **XFMT Adjustable Rear Air Ride Suspension Kit** is an ideal purchase for **Harley enthusiasts** who prioritize a smooth and customizable ride. Designed specifically for **Harley Touring Baggers** such as the **Road King**, **Street Glide**, **Road Glide**, and **Electra Glide Ultra Classic** from 1994 and later, this kit is perfect for riders who frequently embark on long journeys and seek enhanced comfort and control. If you own one of these bikes and value a high-performance suspension system that allows for **adjustable ride height** and improved stability, this product is tailored for you.
@@ -173,10 +173,10 @@ The **XFMT Adjustable Rear Air Ride Suspension Kit** boasts several standout fea
 
 Another significant benefit of this suspension kit is its **compatibility with multiple Harley models**. Owners of **Harley Touring Baggers** from 1994 and later can enjoy the advantages of this system without worrying about fitment issues. Additionally, the kit's robust construction ensures durability and longevity, providing riders with peace of mind and a reliable performance upgrade. While installation might require professional help due to its complexity, the long-term benefits of improved ride quality and comfort make it a worthwhile investment for serious riders.
 
-## <a href="https://www.amazon.com/dp/B0D1KT5GY8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wowtk 10.5 Inch Rear Shocks For Harley Sportster 2004-2012</a>
+## <a href="https://www.amazon.com/dp/B0D1KT5GY8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wowtk 10.5 Inch Rear Shocks For Harley Sportster 2004-2012</a>
 
 
-<a href="https://www.amazon.com/dp/B0D1KT5GY8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WOWTK 10.5 inch 267mm Rear Shocks,left and Right Shocks For Harley Sportster 2004-2012,for XL883,XL883C,XL883N,XL883L,XL883R,XL1200C,XL1200R,XL1200L,XL1200N,XL1200X,XL50,Black" src="https://m.media-amazon.com/images/I/419zodg35tL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D1KT5GY8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WOWTK 10.5 inch 267mm Rear Shocks,left and Right Shocks For Harley Sportster 2004-2012,for XL883,XL883C,XL883N,XL883L,XL883R,XL1200C,XL1200R,XL1200L,XL1200N,XL1200X,XL50,Black" src="https://m.media-amazon.com/images/I/419zodg35tL._SL500_.jpg"/></a>
 
 
 The **WOWTK 10.5 inch 267mm Rear Shocks** are ideal for Harley Sportster owners looking to enhance their bike's suspension performance. Specifically designed for models from 2004 to 2012 including the **XL883** and **XL1200** series, these shocks are perfect for riders who want improved ride comfort, better handling, and increased stability on various road conditions. If you are a Harley enthusiast aiming to upgrade or replace your stock rear shocks with a reliable and compatible option, this product is tailored for you.
@@ -198,10 +198,10 @@ The **WOWTK 10.5 inch 267mm Rear Shocks** are crafted to deliver superior suspen
 
 Additionally, the stylish black finish complements the iconic Harley aesthetic, making these shocks not only functional but also visually appealing. Manufactured by **WOWTK**, a brand known for quality motorcycle components, these rear shocks bring durability and reliability. Whether you’re cruising city streets or hitting country roads, upgrading to these shocks can significantly improve your motorcycle’s handling characteristics and ride quality.
 
-## <a href="https://www.amazon.com/dp/B08YNB4LVP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wsays 10.5 Inch Rear Shocks Lowering Kit</a>
+## <a href="https://www.amazon.com/dp/B08YNB4LVP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wsays 10.5 Inch Rear Shocks Lowering Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B08YNB4LVP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Wsays 10.5 Inch Rear Shocks Lowering Kit Preload Adjustable Compatible with Harley Touring Electra Glide Ultra Classic Road King FLHR FLHRXS, CVO Street Road Glide FLHX FLTR 1984-2025 Black" src="https://m.media-amazon.com/images/I/410dIrTBCwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08YNB4LVP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Wsays 10.5 Inch Rear Shocks Lowering Kit Preload Adjustable Compatible with Harley Touring Electra Glide Ultra Classic Road King FLHR FLHRXS, CVO Street Road Glide FLHX FLTR 1984-2025 Black" src="https://m.media-amazon.com/images/I/410dIrTBCwL._SL500_.jpg"/></a>
 
 
 The **Wsays 10.5 Inch Rear Shocks Lowering Kit** is ideal for motorcycle enthusiasts and riders who own a **Harley Touring Electra Glide Ultra Classic, Road King FLHR FLHRXS, CVO Street Road Glide FLHX FLTR** model from **1984 to 2025**. This kit is perfect for those looking to enhance their bike's suspension system, achieve a lowered stance, and improve overall ride comfort and handling. If you want to customize your Harley with a reliable, adjustable, and stylish shock absorber kit, this product is a great fit.
@@ -223,10 +223,10 @@ The **Wsays 10.5 Inch Rear Shocks Lowering Kit** features a preload adjustable d
 
 Constructed with high-quality materials and finished in a striking gloss black, these rear shocks not only improve performance but also elevate the visual appeal of your Harley. By lowering the bike's rear suspension, riders benefit from enhanced stability and easier ground reach, contributing to safer handling and greater confidence on the road. Overall, this kit is a practical upgrade for Harley owners seeking both function and style in their suspension system.
 
-## <a href="https://www.amazon.com/dp/B0DTYNNM7C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mofun Remote Reservoir Rear Suspension Shocks</a>
+## <a href="https://www.amazon.com/dp/B0DTYNNM7C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mofun Remote Reservoir Rear Suspension Shocks</a>
 
 
-<a href="https://www.amazon.com/dp/B0DTYNNM7C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mofun Remote Reservoir Rear Suspension Shocks Compatible with Harley Touring Road King Street Electra Road Glide 2014-2025 with Gloss Black Reservoir" src="https://m.media-amazon.com/images/I/41u3Bt3fSCL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DTYNNM7C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mofun Remote Reservoir Rear Suspension Shocks Compatible with Harley Touring Road King Street Electra Road Glide 2014-2025 with Gloss Black Reservoir" src="https://m.media-amazon.com/images/I/41u3Bt3fSCL._SL500_.jpg"/></a>
 
 
 The **Mofun Remote Reservoir Rear Suspension Shocks** are ideal for motorcycle enthusiasts and riders who own Harley Touring models such as the Road King, Street Electra, and Road Glide from 2014 to 2025. If you are looking to enhance your bike’s rear suspension system for improved comfort, stability, and performance on long rides or rough terrains, this product is a perfect fit. Riders who prioritize quality upgrades with a sleek, **gloss black reservoir** design will find these shocks particularly appealing.
@@ -249,10 +249,10 @@ The **Mofun Remote Reservoir Rear Suspension Shocks** feature a high-quality con
 
 With compatibility spanning from 2014 to 2025 Harley Touring models including Road King and Road Glide, these shocks provide a tailored fit that maintains the original riding dynamics while improving shock absorption. The sleek **gloss black reservoir** finish not only adds a visual upgrade but also resists corrosion, ensuring longevity. Ultimately, the Mofun shocks deliver both aesthetic appeal and functional benefits, making them a worthwhile upgrade for serious riders seeking enhanced performance and style.
 
-## <a href="https://www.amazon.com/dp/B08PSDHDYJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Weisen 10.5" Rear Shocks Preload Adjustable Lowering Kit</a>
+## <a href="https://www.amazon.com/dp/B08PSDHDYJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Weisen 10.5" Rear Shocks Preload Adjustable Lowering Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B08PSDHDYJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WeiSen 10.5" src="https://m.media-amazon.com/images/I/41T+WI6E77L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08PSDHDYJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WeiSen 10.5" src="https://m.media-amazon.com/images/I/41T+WI6E77L._SL500_.jpg"/></a>
 
 
 The **WeiSen 10.5" Rear Shocks Preload Adjustable Lowering Kit** is perfect for motorcycle enthusiasts who own a **Harley Touring Electra Glide, Road King, or Street Glide** from **1980 to 2024**. Ideal customers are those looking to improve their bike's comfort and handling while adding a stylish touch. If you want a smoother ride and enhanced control, this kit is for you.

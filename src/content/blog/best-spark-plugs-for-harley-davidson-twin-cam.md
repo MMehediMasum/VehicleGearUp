@@ -23,10 +23,10 @@ Some plugs offer iridium tips for longer life and better heat resistance. Others
 
 
 
-## <a href="https://www.amazon.com/dp/B003BUCNNS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ngk Iridium Ix Dcpr7eix Spark Plugs</a>
+## <a href="https://www.amazon.com/dp/B003BUCNNS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ngk Iridium Ix Dcpr7eix Spark Plugs</a>
 
 
-<a href="https://www.amazon.com/dp/B003BUCNNS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="NGK Iridium IX DCPR7EIX Spark Plugs Compatible with 1999-2016 Harley Davidson Twin Cam (Pair)" src="https://m.media-amazon.com/images/I/3190p1yMPsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B003BUCNNS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="NGK Iridium IX DCPR7EIX Spark Plugs Compatible with 1999-2016 Harley Davidson Twin Cam (Pair)" src="https://m.media-amazon.com/images/I/3190p1yMPsL._SL500_.jpg"/></a>
 
 
 The **NGK Iridium IX DCPR7EIX Spark Plugs** are ideal for motorcycle enthusiasts and Harley Davidson Twin Cam owners from 1999 to 2016 seeking reliable and high-performance ignition components. If you want to enhance your bike's ignition efficiency, fuel economy, and overall engine performance, these spark plugs are designed specifically to meet those needs.
@@ -48,10 +48,10 @@ The **NGK Iridium IX DCPR7EIX Spark Plugs** feature advanced iridium tips that a
 
 Additionally, these spark plugs boast excellent durability due to their iridium construction, which is much harder and more wear-resistant than conventional materials. This means you can expect a longer service life, fewer replacements, and consistent engine performance over time. Their compact dimensions and precise manufacturing standards ensure that installation is straightforward, contributing to reliable ignition and smoother rides for motorcycle owners.
 
-## <a href="https://www.amazon.com/dp/B09WDYXFD3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Cnpapc Upgrade Double Iridium Ix Spark Plugs Dcpr7eix</a>
+## <a href="https://www.amazon.com/dp/B09WDYXFD3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Cnpapc Upgrade Double Iridium Ix Spark Plugs Dcpr7eix</a>
 
 
-<a href="https://www.amazon.com/dp/B09WDYXFD3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="2Pcs CNPAPC Upgrade Double Iridium IX Spark Plugs DCPR7EIX #3144#6046#97637 for 1999-2016 Harley Davidson Twin Cam…" src="https://m.media-amazon.com/images/I/41XTXlJvgpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09WDYXFD3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="2Pcs CNPAPC Upgrade Double Iridium IX Spark Plugs DCPR7EIX #3144#6046#97637 for 1999-2016 Harley Davidson Twin Cam…" src="https://m.media-amazon.com/images/I/41XTXlJvgpL._SL500_.jpg"/></a>
 
 
 The **2Pcs CNPAPC Upgrade Double Iridium IX Spark Plugs DCPR7EIX** are ideal for motorcycle enthusiasts and Harley Davidson Twin Cam owners looking to enhance engine performance and reliability. These spark plugs are specially designed for models from **1999 to 2016**, making them perfect for those seeking a durable and efficient ignition solution tailored to their Harley Davidson bikes.
@@ -73,10 +73,10 @@ These **CNPAPC spark plugs** feature **double iridium IX technology**, which sig
 
 Additionally, the plugs’ precise engineering ensures a perfect fit and reliable operation, reducing maintenance needs and supporting cleaner fuel burning. Riders benefit from improved throttle response and potentially lower emissions, making these spark plugs not only a performance upgrade but also a contribution to better overall engine health and environmental friendliness.
 
-## <a href="https://www.amazon.com/dp/B00MG79MX6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ngk Iridium Spark Plugs</a>
+## <a href="https://www.amazon.com/dp/B00MG79MX6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ngk Iridium Spark Plugs</a>
 
 
-<a href="https://www.amazon.com/dp/B00MG79MX6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="NGK # 6046 Iridium Spark Plugs -- DCPR7EIX -- Compatible with Harley-Davidson Twin Cam and XL --- 4 PCS NEW" src="https://m.media-amazon.com/images/I/41ZP4NzywLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00MG79MX6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="NGK # 6046 Iridium Spark Plugs -- DCPR7EIX -- Compatible with Harley-Davidson Twin Cam and XL --- 4 PCS NEW" src="https://m.media-amazon.com/images/I/41ZP4NzywLL._SL500_.jpg"/></a>
 
 
 The **NGK # 6046 Iridium Spark Plugs** are ideal for motorcycle enthusiasts and Harley-Davidson owners looking to enhance their engine performance and reliability. Specifically designed for **Harley-Davidson Twin Cam and XL** models, these spark plugs suit riders who want a durable, high-quality ignition component that provides consistent power and efficient fuel combustion. Whether you’re a daily commuter or a weekend cruiser, these plugs offer a reliable upgrade for maintaining optimal engine function.
@@ -98,10 +98,10 @@ The **NGK # 6046 Iridium Spark Plugs** feature an advanced iridium alloy tip tha
 
 Additionally, these spark plugs are engineered to withstand the high temperatures and pressures of Harley-Davidson engines. Their robust construction minimizes electrode wear, making them a cost-effective choice over time. The precise compatibility with **Harley-Davidson Twin Cam and XL** models means users do not have to worry about fitment issues, giving peace of mind and maintaining the integrity of the motorcycle’s performance.
 
-## <a href="https://www.amazon.com/dp/B0022ZAFOC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">E3 Spark Plugs E3.36 Premium Powersports Spark Plug</a>
+## <a href="https://www.amazon.com/dp/B0022ZAFOC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">E3 Spark Plugs E3.36 Premium Powersports Spark Plug</a>
 
 
-<a href="https://www.amazon.com/dp/B0022ZAFOC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="E3 Spark Plugs E3.36 Premium Powersports Spark Plug for V-Twin Motorcycles, Harley Davidson Engines, and Other High-Performance Powersport Vehicles, Pack of 1" src="https://m.media-amazon.com/images/I/31Ip909nbGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0022ZAFOC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="E3 Spark Plugs E3.36 Premium Powersports Spark Plug for V-Twin Motorcycles, Harley Davidson Engines, and Other High-Performance Powersport Vehicles, Pack of 1" src="https://m.media-amazon.com/images/I/31Ip909nbGL._SL500_.jpg"/></a>
 
 
 The **E3 Spark Plugs E3.36 Premium Powersports Spark Plug** is ideal for riders who own **V-Twin motorcycles**, including **Harley Davidson engines**, and other **high-performance powersport vehicles**. If you're looking to enhance your engine's efficiency, improve throttle response, and ensure reliable ignition under demanding conditions, this spark plug is a perfect choice. Enthusiasts who prioritize durability and performance in their rides will benefit most from this product.
@@ -123,10 +123,10 @@ The **E3.36 Premium Powersports Spark Plug** stands out due to its specialized d
 
 Furthermore, the spark plug's construction from **high-quality materials** ensures it can handle the rigorous demands of high-performance engines, offering **long-lasting durability**. Riders will appreciate the improved fuel efficiency and reduced emissions, contributing to a cleaner and more economical ride. Whether you're upgrading your current plugs or replacing worn-out ones, the E3.36 delivers consistent performance and reliability that powersport enthusiasts seek.
 
-## <a href="https://www.amazon.com/dp/B0C4DVZ3LT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hcmotorku Chrome Spark Plug Head Bolt Covers</a>
+## <a href="https://www.amazon.com/dp/B0C4DVZ3LT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hcmotorku Chrome Spark Plug Head Bolt Covers</a>
 
 
-<a href="https://www.amazon.com/dp/B0C4DVZ3LT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="HCmotorku Chrome Spark Plug Head Bolt Covers Fit for Harley Twin Cam Touring Electra Glide Road King Street Glide Road Glide Softail Dyna Trike 1999–2017 Billet Aluminum" src="https://m.media-amazon.com/images/I/51xwJ6QPt7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C4DVZ3LT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="HCmotorku Chrome Spark Plug Head Bolt Covers Fit for Harley Twin Cam Touring Electra Glide Road King Street Glide Road Glide Softail Dyna Trike 1999–2017 Billet Aluminum" src="https://m.media-amazon.com/images/I/51xwJ6QPt7L._SL500_.jpg"/></a>
 
 
 The **HCmotorku Chrome Spark Plug Head Bolt Covers** are an ideal choice for **motorcycle enthusiasts** who own a **Harley Twin Cam Touring** bike from **1999 to 2017** and are looking to enhance both the aesthetic and functional aspects of their ride. These covers are perfect for those who appreciate a sleek, custom look and want to protect their engine components from dirt and debris.
@@ -147,10 +147,10 @@ The **HCmotorku Chrome Spark Plug Head Bolt Covers** feature a robust **billet a
 
 Installation of these covers is straightforward, making it a hassle-free upgrade for any **Harley owner**. Since they are designed to fit a broad range of models, from the **Electra Glide** to the **Road King**, you can easily find the perfect fit for your motorcycle. However, it is essential to note that regular cleaning is necessary to maintain the **chrome finish**, ensuring your bike continues to look its best. Overall, these covers offer both form and function, enhancing your ride's appearance while safeguarding engine components.
 
-## <a href="https://www.amazon.com/dp/B073V26GYW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Iridium Performance Spark Plugs Pair For Harley Softail Slim Twin Cam</a>
+## <a href="https://www.amazon.com/dp/B073V26GYW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Iridium Performance Spark Plugs Pair For Harley Softail Slim Twin Cam</a>
 
 
-<a href="https://www.amazon.com/dp/B073V26GYW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Iridium Performance Spark Plugs Pair for Harley Softail Slim Twin Cam repl. Harley# 6R12" src="https://m.media-amazon.com/images/I/41iIbqrviIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B073V26GYW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Iridium Performance Spark Plugs Pair for Harley Softail Slim Twin Cam repl. Harley# 6R12" src="https://m.media-amazon.com/images/I/41iIbqrviIL._SL500_.jpg"/></a>
 
 
 The **Iridium Performance Spark Plugs Pair** for **Harley Softail Slim Twin Cam** models, replacement part number **Harley# 6R12**, is ideal for motorcycle enthusiasts and riders looking to enhance their bike's ignition system. These spark plugs are perfect for those who want improved engine performance, better fuel efficiency, and longer-lasting components for their Harley Davidson Softail Slim. If you own a Harley and seek reliable aftermarket parts that deliver high-quality results, this product is designed for you.
@@ -172,10 +172,10 @@ These **Iridium Performance Spark Plugs** feature advanced iridium electrodes, w
 
 Additionally, the spark plugs' robust construction and high-quality materials translate into increased longevity, meaning fewer replacements over time. This longevity not only saves money but also reduces maintenance downtime. The sleek black finish not only protects the plugs but also adds a professional look to your engine bay, making these spark plugs both functional and visually appealing.
 
-## <a href="https://www.amazon.com/dp/B0DG4KQQDK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">4 Pack 6046 Iridium Ix Dcpr7eix Spark Plugs</a>
+## <a href="https://www.amazon.com/dp/B0DG4KQQDK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">4 Pack 6046 Iridium Ix Dcpr7eix Spark Plugs</a>
 
 
-<a href="https://www.amazon.com/dp/B0DG4KQQDK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="4 Pack 6046 Iridium IX DCPR7EIX Spark Plugs Fit for 13-15 Chevy Spark, 12-17 Fiat 500, 99-16 Harley Davidson Twin Cam, 88-16 Harley-Davidson Sportster 1200, 86-16 Sportster 883, 3144 97637 9701 HF170B" src="https://m.media-amazon.com/images/I/31kk8p++hvL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DG4KQQDK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="4 Pack 6046 Iridium IX DCPR7EIX Spark Plugs Fit for 13-15 Chevy Spark, 12-17 Fiat 500, 99-16 Harley Davidson Twin Cam, 88-16 Harley-Davidson Sportster 1200, 86-16 Sportster 883, 3144 97637 9701 HF170B" src="https://m.media-amazon.com/images/I/31kk8p++hvL._SL500_.jpg"/></a>
 
 
 The **4 Pack 6046 Iridium IX DCPR7EIX Spark Plugs** are ideal for vehicle owners who demand reliable ignition performance and enhanced engine efficiency. These spark plugs are perfect for those driving models such as the **13-15 Chevy Spark**, **12-17 Fiat 500**, and various **Harley Davidson motorcycles** including the Twin Cam, Sportster 1200, and Sportster 883. If you are looking for a durable and high-quality replacement part that ensures consistent starts and smooth engine operation, this product is designed for you.
@@ -197,10 +197,10 @@ These **Iridium IX spark plugs** feature a fine wire iridium center electrode th
 
 Thanks to their compatibility with a diverse range of vehicles, including the **Chevy Spark**, **Fiat 500**, and various **Harley Davidson** models, these spark plugs offer versatility and convenience. Their precise dimensions allow for a snug fit and straightforward installation, minimizing downtime and maintenance effort. Overall, the **Engilence 4 Pack 6046 Iridium IX DCPR7EIX Spark Plugs** deliver enhanced engine performance, reliability, and longevity, making them a smart investment for maintaining your vehicle’s optimal operation.
 
-## <a href="https://www.amazon.com/dp/B0B52BQXKD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Motoforti Spark Plug Wire Kit For Harley Davidson Big Twin Fxd Dyna 2000-2017</a>
+## <a href="https://www.amazon.com/dp/B0B52BQXKD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Motoforti Spark Plug Wire Kit For Harley Davidson Big Twin Fxd Dyna 2000-2017</a>
 
 
-<a href="https://www.amazon.com/dp/B0B52BQXKD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Motoforti 2 Pcs 10.4mm 10mm Spark Plug Wire Kit for Harley Davidson Big Twin FXD Dyna 2000-2017 for Harley-Davidson Softail 1999-2017 Spark Plug Wires Motorcycle DYNA-409RD Red Silicone" src="https://m.media-amazon.com/images/I/41IlUJPJzCL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B52BQXKD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Motoforti 2 Pcs 10.4mm 10mm Spark Plug Wire Kit for Harley Davidson Big Twin FXD Dyna 2000-2017 for Harley-Davidson Softail 1999-2017 Spark Plug Wires Motorcycle DYNA-409RD Red Silicone" src="https://m.media-amazon.com/images/I/41IlUJPJzCL._SL500_.jpg"/></a>
 
 
 The **Motoforti 2 Pcs 10.4mm 10mm Spark Plug Wire Kit** is an ideal purchase for **Harley Davidson enthusiasts** who are looking to enhance the performance of their motorcycle. If you own a **Harley Davidson Big Twin FXD Dyna** or **Softail** model from the years **1999-2017**, this product is tailored for your needs. It is perfect for those who prioritize reliable ignition and seek a durable solution that can withstand the rigors of long rides.
@@ -221,10 +221,10 @@ The **Motoforti Spark Plug Wire Kit** offers outstanding features such as its **
 
 Additionally, the use of **red silicone** not only enhances durability but also adds a visual appeal to the motorcycle's engine area. The wires are designed to withstand high temperatures, ensuring long-lasting performance even in demanding conditions. This makes the **Motoforti Spark Plug Wire Kit** a reliable choice for riders who frequently embark on long journeys or ride in varied weather conditions.
 
-## <a href="https://www.amazon.com/dp/B09S8JFN61?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Torch Iridium Spark Plug</a>
+## <a href="https://www.amazon.com/dp/B09S8JFN61?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Torch Iridium Spark Plug</a>
 
 
-<a href="https://www.amazon.com/dp/B09S8JFN61?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="TORCH Iridium Spark Plug Replace for NGK DCPR7EIX #3144 IX, Denso IXU22, Daihatsu 999-06910-X9-018, 1999-2016 Harley Davidson Twin Cam, OEM, 1ea" src="https://m.media-amazon.com/images/I/31DyHKuaq3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09S8JFN61?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="TORCH Iridium Spark Plug Replace for NGK DCPR7EIX #3144 IX, Denso IXU22, Daihatsu 999-06910-X9-018, 1999-2016 Harley Davidson Twin Cam, OEM, 1ea" src="https://m.media-amazon.com/images/I/31DyHKuaq3L._SL500_.jpg"/></a>
 
 
 The **TORCH Iridium Spark Plug** is ideal for motorcycle enthusiasts and mechanics who own or service **1999-2016 Harley Davidson Twin Cam** models and require a reliable, high-performance replacement spark plug. This product is also suitable for those looking to upgrade from standard spark plugs to a more durable and efficient option compatible with OEM specifications and brands like **NGK DCPR7EIX #3144 IX** and **Denso IXU22**.
@@ -245,10 +245,10 @@ The **TORCH Iridium Spark Plug** offers advanced technology that significantly i
 
 Additionally, this spark plug is engineered for durability, with the iridium tip resisting wear and corrosion far better than traditional plugs. This means fewer replacements and more reliable engine performance over time. The consistent ignition also helps in smoother engine starts and improved throttle response, making it a smart upgrade for riders seeking both reliability and performance enhancement.
 
-## <a href="https://www.amazon.com/dp/B000GTTAZG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Kuryakyn Scorpion Spark Plug/head Bolt Covers</a>
+## <a href="https://www.amazon.com/dp/B000GTTAZG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Kuryakyn Scorpion Spark Plug/head Bolt Covers</a>
 
 
-<a href="https://www.amazon.com/dp/B000GTTAZG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Kuryakyn 8323 Motorcycle Accent Accessory: Scorpion Spark Plug/Head Bolt Covers for 1999-2017 Harley-Davidson Twin Cam Engine Motorcycles, Chrome, 1 Pair , black" src="https://m.media-amazon.com/images/I/41yC76GAMzL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000GTTAZG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Kuryakyn 8323 Motorcycle Accent Accessory: Scorpion Spark Plug/Head Bolt Covers for 1999-2017 Harley-Davidson Twin Cam Engine Motorcycles, Chrome, 1 Pair , black" src="https://m.media-amazon.com/images/I/41yC76GAMzL._SL500_.jpg"/></a>
 
 
 The **Kuryakyn 8323 Motorcycle Accent Accessory** is ideal for Harley-Davidson enthusiasts who own a **1999-2017 Twin Cam Engine motorcycle** and want to enhance their bike's appearance with stylish and durable components. Riders looking for a sleek, custom look combined with functional protection for their engine parts will find this product particularly beneficial.

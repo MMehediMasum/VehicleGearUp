@@ -22,10 +22,10 @@ Lithium batteries offer lightweight and fast recovery in cold climates. This gui
 
 
 
-## <a href="https://www.amazon.com/dp/B00K537T9C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mighty Max Battery Ytx14-bs</a>
+## <a href="https://www.amazon.com/dp/B00K537T9C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mighty Max Battery Ytx14-bs</a>
 
 
-<a href="https://www.amazon.com/dp/B00K537T9C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mighty Max Battery YTX14-BS - 12 Volt 12 AH, 200 CCA, Rechargeable Maintenance Free SLA AGM Motorcycle Battery" src="https://m.media-amazon.com/images/I/41h9ZV1hZpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00K537T9C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mighty Max Battery YTX14-BS - 12 Volt 12 AH, 200 CCA, Rechargeable Maintenance Free SLA AGM Motorcycle Battery" src="https://m.media-amazon.com/images/I/41h9ZV1hZpL._SL500_.jpg"/></a>
 
 
 The **Mighty Max Battery YTX14-BS** is ideal for motorcycle owners and enthusiasts seeking a reliable, high-performance power source. This **12 Volt 12 AH** battery is perfect for those who want a maintenance-free, rechargeable option that delivers consistent starting power. If you need a durable battery that can withstand varying weather conditions and provide long-lasting energy, this battery is a great choice.
@@ -47,10 +47,10 @@ The **Mighty Max Battery YTX14-BS** features advanced **SLA AGM (Sealed Lead Aci
 
 With a powerful **200 CCA rating**, this battery ensures quick and reliable starts even under harsh weather conditions, which benefits riders who demand consistent performance. Additionally, its rechargeable nature and vibration resistance contribute to a longer service life, reducing the need for frequent replacements and saving money in the long run. Overall, this battery combines safety, reliability, and efficiency, making it a smart investment for motorcycle owners.
 
-## <a href="https://www.amazon.com/dp/B09V325VLD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Motorcycle Battery Ytx20hl-bs</a>
+## <a href="https://www.amazon.com/dp/B09V325VLD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Motorcycle Battery Ytx20hl-bs</a>
 
 
-<a href="https://www.amazon.com/dp/B09V325VLD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Motorcycle Battery YTX20HL-BS, UPLUS EB20H-3 Snowmobile UTV ATV YTX20L-BS YUAM320BS Maintenance Free Sealed AGM Powersports Compatible with Yamaha Honda Suzuki Harley-Davidson Kawasaki Jet Ski" src="https://m.media-amazon.com/images/I/41+l+tIsSDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09V325VLD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Motorcycle Battery YTX20HL-BS, UPLUS EB20H-3 Snowmobile UTV ATV YTX20L-BS YUAM320BS Maintenance Free Sealed AGM Powersports Compatible with Yamaha Honda Suzuki Harley-Davidson Kawasaki Jet Ski" src="https://m.media-amazon.com/images/I/41+l+tIsSDL._SL500_.jpg"/></a>
 
 
 The **Motorcycle Battery YTX20HL-BS** by **UPLUS NEW TECHNOLOGY BATTERY** is ideal for riders and powersports enthusiasts who need a reliable, maintenance-free power source for their vehicles. If you own a **snowmobile, UTV, ATV, jet ski**, or motorcycles from popular brands like **Yamaha, Honda, Suzuki, Harley-Davidson,** or **Kawasaki**, this battery is designed to deliver consistent performance and durability. It is perfect for those seeking a sealed, high-quality battery that requires no upkeep while providing reliable starting power.
@@ -73,10 +73,10 @@ The **YTX20HL-BS motorcycle battery** features advanced **AGM (Absorbent Glass M
 
 Additionally, the battery's compatibility with a broad spectrum of popular brands like **Yamaha, Honda, Suzuki, Harley-Davidson,** and **Kawasaki** makes it a versatile choice for many enthusiasts. Its impressive cold cranking amps ensure reliable ignition even in low temperatures, making it suitable for winter riders or those living in colder climates. Overall, the **UPLUS EB20H-3** battery offers a perfect balance of power, reliability, and convenience for anyone looking to upgrade their powersports vehicle’s electrical system with a trusted, maintenance-free solution.
 
-## <a href="https://www.amazon.com/dp/B09H1XRDBZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Uplus Ytx30l-bs Motorcycle Battery</a>
+## <a href="https://www.amazon.com/dp/B09H1XRDBZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Uplus Ytx30l-bs Motorcycle Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B09H1XRDBZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="UPLUS YTX30L-BS Motorcycle Battery, YIX30L-BS Replacement Maintenance Free &amp; High Performance, EB30-3-1 AGM Batteries ETX30L UTV Snowmobile ATV Battery, 12V 30AH 400CCA" src="https://m.media-amazon.com/images/I/41WaY-0oLXL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09H1XRDBZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="UPLUS YTX30L-BS Motorcycle Battery, YIX30L-BS Replacement Maintenance Free &amp; High Performance, EB30-3-1 AGM Batteries ETX30L UTV Snowmobile ATV Battery, 12V 30AH 400CCA" src="https://m.media-amazon.com/images/I/41WaY-0oLXL._SL500_.jpg"/></a>
 
 
 The **UPLUS YTX30L-BS Motorcycle Battery** is ideal for motorcycle, UTV, snowmobile, and ATV owners seeking a reliable, maintenance-free power solution with high performance. If you want a durable battery that delivers consistent power and requires minimal upkeep, this battery is designed for you.
@@ -98,10 +98,10 @@ The **UPLUS YTX30L-BS** motorcycle battery features advanced **AGM (Absorbent Gl
 
 With a robust **400 CCA rating**, the battery guarantees reliable engine starts even in cold weather conditions, providing peace of mind for those who ride year-round. Its compact size and manageable weight make it easy to install or replace without requiring professional assistance. Furthermore, the battery’s compatibility with multiple models such as **YIX30L-BS** and **ETX30L** ensures that users can find a suitable upgrade or replacement without compatibility issues, making the **UPLUS YTX30L-BS** a versatile and dependable choice.
 
-## <a href="https://www.amazon.com/dp/B00K537MGC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mighty Max Battery Ytx4l-bs</a>
+## <a href="https://www.amazon.com/dp/B00K537MGC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mighty Max Battery Ytx4l-bs</a>
 
 
-<a href="https://www.amazon.com/dp/B00K537MGC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mighty Max Battery YTX4L-BS - 12 Volt 3 AH, 50 CCA, Rechargeable Maintenance Free SLA AGM Motorcycle Battery" src="https://m.media-amazon.com/images/I/41JaggdtnDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00K537MGC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mighty Max Battery YTX4L-BS - 12 Volt 3 AH, 50 CCA, Rechargeable Maintenance Free SLA AGM Motorcycle Battery" src="https://m.media-amazon.com/images/I/41JaggdtnDL._SL500_.jpg"/></a>
 
 
 The **Mighty Max Battery YTX4L-BS** is perfect for motorcycle enthusiasts who need a **reliable and maintenance-free** power source. It's ideal for riders who prioritize **performance and convenience** in a compact package, especially those who own smaller motorcycles or scooters requiring a **12 Volt battery**.
@@ -123,10 +123,10 @@ The **Mighty Max Battery YTX4L-BS** boasts a **maintenance-free AGM (Absorbent G
 
 With a **weight** of just 3.0 pounds, this battery is designed to enhance vehicle efficiency without adding unnecessary bulk. The **rechargeable** feature ensures that riders can enjoy long-term savings, as there's no need for frequent replacements. While the **50 CCA** might be lower compared to larger batteries, it provides sufficient power for smaller vehicles, making it an excellent choice for those riding in milder climates or less demanding conditions.
 
-## <a href="https://www.amazon.com/dp/B0CNT6XCG4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Weize Lithium Ytx30l-bs Motorcycle Battery</a>
+## <a href="https://www.amazon.com/dp/B0CNT6XCG4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Weize Lithium Ytx30l-bs Motorcycle Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B0CNT6XCG4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Weize Lithium YTX30L-BS, 700A Lithium LiFePO4 YTX30L Motorcycle Battery, 12V 10AH ATV, UTV, Jet Ski, Scooter, Lawn Mower, Tractor, Generator Battery, Built-in Smart BMS" src="https://m.media-amazon.com/images/I/511AWHoU2kL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CNT6XCG4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Weize Lithium YTX30L-BS, 700A Lithium LiFePO4 YTX30L Motorcycle Battery, 12V 10AH ATV, UTV, Jet Ski, Scooter, Lawn Mower, Tractor, Generator Battery, Built-in Smart BMS" src="https://m.media-amazon.com/images/I/511AWHoU2kL._SL500_.jpg"/></a>
 
 
 The **Weize Lithium YTX30L-BS** battery is ideal for individuals seeking a reliable and lightweight power source for their **motorcycles, ATVs, UTVs, jet skis, scooters, lawn mowers, tractors, or generators**. Those who prioritize long-lasting performance, quick recharge times, and enhanced durability will find this battery especially beneficial. It’s perfect for outdoor enthusiasts, mechanics, and anyone needing a compact yet powerful 12V battery solution with advanced technology.
@@ -149,10 +149,10 @@ The **Weize Lithium YTX30L-BS** features advanced **LiFePO4 technology** that pr
 
 Users benefit from the battery’s impressive **700A cranking current**, which guarantees a quick and reliable start even in cold or challenging environments. The lightweight design not only simplifies handling but also improves overall vehicle performance by reducing weight. Additionally, the battery’s robust construction and resistance to vibration make it an excellent choice for off-road and heavy-duty applications. With its versatile compatibility and superior technology, the Weize Lithium YTX30L-BS battery is a smart investment for anyone looking to upgrade their power source.
 
-## <a href="https://www.amazon.com/dp/B07CR6HTFD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Energizer T14b Agm Motorcycle 12v Battery</a>
+## <a href="https://www.amazon.com/dp/B07CR6HTFD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Energizer T14b Agm Motorcycle 12v Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B07CR6HTFD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Energizer T14B AGM Motorcycle 12V Battery, 210 Cold Cranking Amps and 12 Ahr. Replaces: YT14B-4 and others" src="https://m.media-amazon.com/images/I/51REuQCKrAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07CR6HTFD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Energizer T14B AGM Motorcycle 12V Battery, 210 Cold Cranking Amps and 12 Ahr. Replaces: YT14B-4 and others" src="https://m.media-amazon.com/images/I/51REuQCKrAL._SL500_.jpg"/></a>
 
 
 The **Energizer T14B AGM Motorcycle 12V Battery** is ideal for motorcycle owners seeking a reliable and powerful battery replacement. Perfect for those who need a durable and maintenance-free solution, this battery suits riders looking to enhance starting performance and overall battery life, especially if their current battery is underperforming or nearing the end of its lifespan.
@@ -174,10 +174,10 @@ The **Energizer T14B AGM Motorcycle Battery** features advanced Absorbent Glass 
 
 With a rating of **210 Cold Cranking Amps** and a capacity of **12 Ampere-hours (Ahr)**, this battery offers robust starting power even in cold weather, reducing the chances of starting issues. Its compact and lightweight design allows for easy installation in a wide range of motorcycles, making it a versatile choice. Overall, the Energizer T14B ensures reliable performance and peace of mind for riders who demand dependable energy on every ride.
 
-## <a href="https://www.amazon.com/dp/B07CR2CVS2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Energizer Tx9 Agm Motorcycle And Atv 12v Battery</a>
+## <a href="https://www.amazon.com/dp/B07CR2CVS2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Energizer Tx9 Agm Motorcycle And Atv 12v Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B07CR2CVS2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Energizer TX9 AGM Motorcycle and ATV 12V Battery, 120 Cold Cranking Amps and 8 Ahr, Replaces: YTX9-BS and others, Black" src="https://m.media-amazon.com/images/I/51h-JUJvqmL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07CR2CVS2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Energizer TX9 AGM Motorcycle and ATV 12V Battery, 120 Cold Cranking Amps and 8 Ahr, Replaces: YTX9-BS and others, Black" src="https://m.media-amazon.com/images/I/51h-JUJvqmL._SL500_.jpg"/></a>
 
 
 The **Energizer TX9 AGM Motorcycle and ATV 12V Battery** is ideal for motorcycle and ATV owners looking for a reliable and maintenance-free power source. This battery suits riders who demand consistent performance in various weather conditions and need a durable replacement for models like the **YTX9-BS**. Its compact size and robust design make it perfect for those who want a hassle-free battery solution that ensures quick starts and long-lasting power.
@@ -199,10 +199,10 @@ The **Energizer TX9 AGM Battery** features advanced Absorbent Glass Mat (AGM) te
 
 With a solid **120 Cold Cranking Amps** rating, this battery provides quick and dependable starts even in cold climates, minimizing the risk of engine stalls. Its compact size and lightweight design make it easy to fit into tight spaces without adding unnecessary bulk to your vehicle. Overall, the Energizer TX9 AGM battery offers a blend of durability, performance, and convenience that benefits motorcycle and ATV enthusiasts seeking reliable power on every ride.
 
-## <a href="https://www.amazon.com/dp/B07CRWVVHG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Energizer T12b Agm Motorcycle 12v Battery</a>
+## <a href="https://www.amazon.com/dp/B07CRWVVHG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Energizer T12b Agm Motorcycle 12v Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B07CRWVVHG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Energizer T12B AGM Motorcycle 12V Battery, 175 Cold Cranking Amps and 10 Ahr, Replaces: YTZ12B, YT12B-BS, and others, Black" src="https://m.media-amazon.com/images/I/41L09lCUcOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07CRWVVHG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Energizer T12B AGM Motorcycle 12V Battery, 175 Cold Cranking Amps and 10 Ahr, Replaces: YTZ12B, YT12B-BS, and others, Black" src="https://m.media-amazon.com/images/I/41L09lCUcOL._SL500_.jpg"/></a>
 
 
 The **Energizer T12B AGM Motorcycle 12V Battery** is ideal for motorcycle enthusiasts and riders who demand reliable starting power and long-lasting performance. If you own motorcycles that require a compact and efficient battery replacement, especially models compatible with **YTZ12B** or **YT12B-BS** batteries, this product is designed for you. Its robust build and dependable output make it suitable for daily riders, weekend adventurers, and anyone looking to maintain optimal battery health in their bike.
@@ -224,10 +224,10 @@ The **Energizer T12B AGM Motorcycle Battery** features advanced Absorbed Glass M
 
 With a powerful **175 Cold Cranking Amps** rating, this battery guarantees dependable starts in cold or challenging weather conditions, giving riders confidence on every trip. Additionally, the 10 Ahr capacity supports consistent power delivery, which is essential for motorcycles with higher electrical demands. Overall, the Energizer T12B is a reliable, efficient, and versatile choice for those seeking a premium motorcycle battery.
 
-## <a href="https://www.amazon.com/dp/B0DMSGHQTJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ebl Lithium Ytz5s-bs Battery</a>
+## <a href="https://www.amazon.com/dp/B0DMSGHQTJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ebl Lithium Ytz5s-bs Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B0DMSGHQTJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="EBL Lithium YTZ5S-BS, 105CCA Lithium LiFePO4 Motorcycle Battery, 12V 3.5Ah ATV, UTV, Jet Ski, 4 Wheeler, Quad, Riding Lawn Mower, Tractor, Scooter, PWC, Seadoo, Polaris and Generator Battery" src="https://m.media-amazon.com/images/I/417ikfqYdAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DMSGHQTJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="EBL Lithium YTZ5S-BS, 105CCA Lithium LiFePO4 Motorcycle Battery, 12V 3.5Ah ATV, UTV, Jet Ski, 4 Wheeler, Quad, Riding Lawn Mower, Tractor, Scooter, PWC, Seadoo, Polaris and Generator Battery" src="https://m.media-amazon.com/images/I/417ikfqYdAL._SL500_.jpg"/></a>
 
 
 The **EBL Lithium YTZ5S-BS** battery is ideal for riders and vehicle owners who demand a lightweight, reliable, and long-lasting power source. Perfect for users of **motorcycles, ATVs, UTVs, jet skis, 4 wheelers, quads, riding lawn mowers, tractors, scooters, PWCs, Seadoos, Polaris vehicles, and generators**, this battery suits those looking to upgrade from traditional lead-acid batteries to a more efficient and maintenance-free option.
@@ -249,10 +249,10 @@ The **EBL Lithium YTZ5S-BS** battery stands out with its robust **12V 3.5Ah capa
 
 Additionally, this battery's lightweight and compact form factor significantly reduces the overall weight of your vehicle, contributing to improved handling and fuel efficiency. The maintenance-free aspect saves users time and hassle, as there’s no need for periodic checks or electrolyte refills. Whether you're an enthusiast seeking performance or a professional relying on dependable power, the EBL Lithium YTZ5S-BS battery delivers a blend of convenience, safety, and lasting energy.
 
-## <a href="https://www.amazon.com/dp/B07CR2CZHR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Energizer Tx20hl Agm Motorcycle And Atv 12v Battery</a>
+## <a href="https://www.amazon.com/dp/B07CR2CZHR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Energizer Tx20hl Agm Motorcycle And Atv 12v Battery</a>
 
 
-<a href="https://www.amazon.com/dp/B07CR2CZHR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Energizer TX20HL AGM Motorcycle and Atv 12V Battery, 310 Cold Cranking Amps and 18 Ahr. Replaces: YTX20L-BS and others" src="https://m.media-amazon.com/images/I/51h89NnAjsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07CR2CZHR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Energizer TX20HL AGM Motorcycle and Atv 12V Battery, 310 Cold Cranking Amps and 18 Ahr. Replaces: YTX20L-BS and others" src="https://m.media-amazon.com/images/I/51h89NnAjsL._SL500_.jpg"/></a>
 
 
 The **Energizer TX20HL AGM Motorcycle and ATV 12V Battery** is ideal for riders and outdoor enthusiasts who demand reliable power for their motorcycles or ATVs. If you are looking for a durable, maintenance-free battery that offers excellent cold start performance and fits popular models replacing the **YTX20L-BS** and similar batteries, this product is a great choice. It caters especially well to those needing a robust and compact battery solution for off-road adventures or daily commuting.

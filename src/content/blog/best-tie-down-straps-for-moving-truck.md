@@ -23,10 +23,10 @@ Soft loop ends reduce wear on your cargo while heavy-duty materials resist stret
 
 
 
-## <a href="https://www.amazon.com/dp/B01F7KSAGI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Augo Ratchet Straps Heavy Duty 4 Pack</a>
+## <a href="https://www.amazon.com/dp/B01F7KSAGI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Augo Ratchet Straps Heavy Duty 4 Pack</a>
 
 
-<a href="https://www.amazon.com/dp/B01F7KSAGI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="AUGO Ratchet Straps Heavy Duty 4 Pack -15 FT - 2200 LB Break Strength – with Safety Lock S Hooks - Cargo Straps for Moving, Appliances, Motorcycle – Soft Loop Tie Down Straps" src="https://m.media-amazon.com/images/I/61NgLbXhDcL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01F7KSAGI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="AUGO Ratchet Straps Heavy Duty 4 Pack -15 FT - 2200 LB Break Strength – with Safety Lock S Hooks - Cargo Straps for Moving, Appliances, Motorcycle – Soft Loop Tie Down Straps" src="https://m.media-amazon.com/images/I/61NgLbXhDcL._SL500_.jpg"/></a>
 
 
 The **AUGO Ratchet Straps Heavy Duty 4 Pack** are ideal for individuals who frequently need to secure heavy loads during transportation. Whether you're a professional mover, a motorcycle owner, or someone who often hauls appliances, these **cargo straps** provide the strength and reliability required to keep your items safe and stable.
@@ -48,10 +48,10 @@ The **AUGO Ratchet Straps** feature heavy-duty construction designed to withstan
 
 Each strap is 15 feet long, providing ample length to wrap around bulky items like motorcycles, appliances, or furniture. The **soft loop tie down design** helps protect your cargo from scratches and damage, which is especially beneficial when transporting sensitive or expensive items. Overall, these straps combine durability, security, and versatility to meet the needs of anyone looking for reliable cargo tie-down solutions.
 
-## <a href="https://www.amazon.com/dp/B0D6VK7ZKG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ratchet Straps Heavy Duty Tie Down Straps Ratchet Set</a>
+## <a href="https://www.amazon.com/dp/B0D6VK7ZKG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ratchet Straps Heavy Duty Tie Down Straps Ratchet Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0D6VK7ZKG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Ratchet Straps Heavy Duty, Tie Down Straps Ratchet Set, 2200 LB Break Strength, Safety Lock S Hooks, Best for Moving, Securing Cargo, Kayaks, Mountain (4 Pack)" src="https://m.media-amazon.com/images/I/51Y37Go6tIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D6VK7ZKG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Ratchet Straps Heavy Duty, Tie Down Straps Ratchet Set, 2200 LB Break Strength, Safety Lock S Hooks, Best for Moving, Securing Cargo, Kayaks, Mountain (4 Pack)" src="https://m.media-amazon.com/images/I/51Y37Go6tIL._SL500_.jpg"/></a>
 
 
 Ideal for individuals who frequently transport heavy or bulky items, the **Ratchet Straps Heavy Duty Tie Down Straps** set is perfect for movers, outdoor enthusiasts, and anyone needing reliable cargo security. Whether you’re securing kayaks, mountain gear, or general cargo, these straps provide a robust solution to keep your items safe during transit.
@@ -72,10 +72,10 @@ The **HORUSDY Ratchet Straps Heavy Duty Tie Down Set** is engineered to deliver 
 
 Designed with durability in mind, these straps feature high-quality materials that resist wear and tear, making them a reliable choice for repeated use. The bright **blue color** also enhances visibility, which is helpful when securing cargo in low-light conditions. Overall, this ratchet strap set combines strong performance with ease of use, making it a valuable tool for anyone needing dependable tie-down solutions.
 
-## <a href="https://www.amazon.com/dp/B07QC2W53T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Xstrap Standard Ratchet Tie Down Straps</a>
+## <a href="https://www.amazon.com/dp/B07QC2W53T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Xstrap Standard Ratchet Tie Down Straps</a>
 
 
-<a href="https://www.amazon.com/dp/B07QC2W53T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="XSTRAP STANDARD Ratchet Tie Down Straps 4 Pk 15Ft- 500 Lbs Load Cap- 1500 Lb Break Strength-Cargo Straps for Moving Appliances, Lawn Equipment, Motorcycle" src="https://m.media-amazon.com/images/I/51FbOsOpCjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07QC2W53T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="XSTRAP STANDARD Ratchet Tie Down Straps 4 Pk 15Ft- 500 Lbs Load Cap- 1500 Lb Break Strength-Cargo Straps for Moving Appliances, Lawn Equipment, Motorcycle" src="https://m.media-amazon.com/images/I/51FbOsOpCjL._SL500_.jpg"/></a>
 
 
 The **XSTRAP STANDARD Ratchet Tie Down Straps 4 Pk 15Ft** are ideal for individuals who frequently need to secure cargo such as **appliances**, **lawn equipment**, or even **motorcycles** during transport. Whether you're a homeowner moving bulky items, a landscaper hauling equipment, or a motorcycle owner ensuring safe transit, these straps offer reliable and sturdy support for your needs.
@@ -97,10 +97,10 @@ The **XSTRAP STANDARD Ratchet Tie Down Straps** boast a robust ratchet mechanism
 
 Designed with both durability and user convenience in mind, these straps are manufactured by **XSTRAP STANDARD**, a trusted brand known for quality cargo securing solutions. The compact dimensions and lightweight nature of the straps make them easy to store and handle, while the strong materials offer long-lasting performance. Overall, these tie down straps provide a dependable and practical solution for anyone needing to secure items safely on trucks, trailers, or roof racks.
 
-## <a href="https://www.amazon.com/dp/B08MKSYS8Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Awelcraft Ratchet Straps</a>
+## <a href="https://www.amazon.com/dp/B08MKSYS8Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Awelcraft Ratchet Straps</a>
 
 
-<a href="https://www.amazon.com/dp/B08MKSYS8Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="AWELCRAFT Ratchet Straps, 1500 lbs Breaking Strength - Premium 4X 15ft Tie Down Strap Set, 4X Soft Loops for Moving Appliances, Lawn Equipment, Motorcycle (Red)" src="https://m.media-amazon.com/images/I/51WDB943+KL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08MKSYS8Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="AWELCRAFT Ratchet Straps, 1500 lbs Breaking Strength - Premium 4X 15ft Tie Down Strap Set, 4X Soft Loops for Moving Appliances, Lawn Equipment, Motorcycle (Red)" src="https://m.media-amazon.com/images/I/51WDB943+KL._SL500_.jpg"/></a>
 
 
 The **AWELCRAFT Ratchet Straps** are perfect for individuals who frequently transport heavy items such as appliances, lawn equipment, or motorcycles. Whether you are a professional mover or a DIY enthusiast looking to secure your cargo safely, these straps are designed to meet your needs with ease and reliability.
@@ -122,10 +122,10 @@ The **AWELCRAFT Ratchet Straps** stand out due to their impressive **1500 lbs br
 
 Additionally, the **15ft length** of each strap provides ample reach for a variety of applications, from strapping down a motorcycle to securing a bulky appliance. This versatility is further enhanced by the straps' **bright red color**, which not only makes them easy to spot but also adds an element of safety by ensuring visibility. Overall, these straps are an essential tool for anyone needing dependable and durable tie-down solutions.
 
-## <a href="https://www.amazon.com/dp/B0DGFW8ZWL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Xstrap Standard 4 Pack E-track Ratchet Straps</a>
+## <a href="https://www.amazon.com/dp/B0DGFW8ZWL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Xstrap Standard 4 Pack E-track Ratchet Straps</a>
 
 
-<a href="https://www.amazon.com/dp/B0DGFW8ZWL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="XSTRAP STANDARD 4 Pack E-Track Ratchet Straps 2" src="https://m.media-amazon.com/images/I/51ols0ezupL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DGFW8ZWL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="XSTRAP STANDARD 4 Pack E-Track Ratchet Straps 2" src="https://m.media-amazon.com/images/I/51ols0ezupL._SL500_.jpg"/></a>
 
 
 The **XSTRAP STANDARD 4 Pack E-Track Ratchet Straps** are ideal for individuals who frequently need to secure heavy loads during transport. Whether you're a professional mover, a truck or trailer owner, or someone who enjoys outdoor activities such as kayaking or motorcycling, these **heavy-duty tie down straps** provide a reliable solution to keep your cargo safe and stable. Their robust design makes them perfect for anyone seeking durable and high-strength straps for various applications.
@@ -150,10 +150,10 @@ The **XSTRAP STANDARD E-Track Ratchet Straps** feature a robust construction des
 
 Designed with versatility in mind, these straps are compatible with standard **E-Track systems**, which are commonly found in trucks and trailers, enhancing their convenience and usability. The black color adds a professional appearance, while the durable material promises long-lasting performance even under demanding conditions. Whether you’re securing items for a long move or outdoor adventure, the **XSTRAP STANDARD 4 Pack E-Track Ratchet Straps** provide peace of mind and reliable functionality for all your tie-down needs.
 
-## <a href="https://www.amazon.com/dp/B09TSLJ234?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">2 Pack 2 Inch Ratchet Straps</a>
+## <a href="https://www.amazon.com/dp/B09TSLJ234?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">2 Pack 2 Inch Ratchet Straps</a>
 
 
-<a href="https://www.amazon.com/dp/B09TSLJ234?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="2 Pack 2 Inch Ratchet Straps Heavy Duty 20ft Tie Down Straps Ratchet with Double J Hook, 8000 LBS Break Strength, Cargo Ratchet Straps for Moving, Truck, Trailers, Motorcycles, Kayaks, Car Roof" src="https://m.media-amazon.com/images/I/51NKd0a7xML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09TSLJ234?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="2 Pack 2 Inch Ratchet Straps Heavy Duty 20ft Tie Down Straps Ratchet with Double J Hook, 8000 LBS Break Strength, Cargo Ratchet Straps for Moving, Truck, Trailers, Motorcycles, Kayaks, Car Roof" src="https://m.media-amazon.com/images/I/51NKd0a7xML._SL500_.jpg"/></a>
 
 
 The **2 Pack 2 Inch Ratchet Straps Heavy Duty 20ft Tie Down Straps** are ideal for anyone needing reliable and strong cargo securing solutions. Whether you are a professional mover, truck driver, or an outdoor enthusiast transporting motorcycles, kayaks, or other heavy equipment, these straps provide the perfect balance of strength and durability. Those who prioritize safety and efficiency when securing loads on trailers or car roofs will find these straps especially beneficial.
@@ -175,10 +175,10 @@ The **LISHINE 2 Inch Ratchet Straps** come with an impressive **20ft length** an
 
 These ratchet straps are designed with both strength and convenience in mind. The ratchet mechanism allows for easy tightening and releasing, saving time and effort during the loading and unloading process. Their **2-inch width** distributes pressure evenly, reducing the risk of damage to delicate cargo. Whether you are securing motorcycles, kayaks, or large equipment on trailers or car roofs, these straps provide peace of mind with their dependable performance and user-friendly features.
 
-## <a href="https://www.amazon.com/dp/B0C6TLSL24?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">4 Pack 2 Inch Ratchet Straps</a>
+## <a href="https://www.amazon.com/dp/B0C6TLSL24?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">4 Pack 2 Inch Ratchet Straps</a>
 
 
-<a href="https://www.amazon.com/dp/B0C6TLSL24?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="4 Pack 2 Inch Ratchet Straps Heavy Duty 20ft Tie Down Straps Ratchet with Double J Hook, 10000 LBS Break Strength, Cargo Ratchet Straps for Moving, Truck, Trailers, Motorcycles, Kayaks, Car Roof" src="https://m.media-amazon.com/images/I/51O5iAI3y4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C6TLSL24?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="4 Pack 2 Inch Ratchet Straps Heavy Duty 20ft Tie Down Straps Ratchet with Double J Hook, 10000 LBS Break Strength, Cargo Ratchet Straps for Moving, Truck, Trailers, Motorcycles, Kayaks, Car Roof" src="https://m.media-amazon.com/images/I/51O5iAI3y4L._SL500_.jpg"/></a>
 
 
 The **4 Pack 2 Inch Ratchet Straps Heavy Duty 20ft Tie Down Straps** are ideal for individuals who frequently need to secure heavy loads during transport. Whether you are a professional mover, truck driver, motorcycle owner, or an outdoor enthusiast transporting kayaks or other cargo, these **ratchet straps** provide the strength and reliability necessary to keep your items safe and stable. If you require durable, high-capacity tie-downs for your **truck, trailer, or car roof**, this set is an excellent choice.
@@ -200,10 +200,10 @@ The **4 Pack 2 Inch Ratchet Straps** by **LISHINE**, manufactured by **DAOST**, 
 
 Users benefit from the combination of strength and ease of use. The **10,000 LBS break strength** rating means these straps can handle substantial loads without compromising safety. Their bright yellow color not only adds a layer of visibility but also assists in quick identification among other gear. Overall, these ratchet straps offer a dependable solution for anyone needing secure and durable tie-downs for heavy-duty transport needs.
 
-## <a href="https://www.amazon.com/dp/B08L96F7MG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Xstrap Standard Ratchet Tie Down Straps</a>
+## <a href="https://www.amazon.com/dp/B08L96F7MG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Xstrap Standard Ratchet Tie Down Straps</a>
 
 
-<a href="https://www.amazon.com/dp/B08L96F7MG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="XSTRAP STANDARD Ratchet Tie Down Straps - 8PK - 1'' x 10 ft - 900 LB Break Strength Cargo Straps for Moving Appliances, Lawn Equipment, Motorcycle Yellow" src="https://m.media-amazon.com/images/I/51SDYkuTkaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08L96F7MG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="XSTRAP STANDARD Ratchet Tie Down Straps - 8PK - 1'' x 10 ft - 900 LB Break Strength Cargo Straps for Moving Appliances, Lawn Equipment, Motorcycle Yellow" src="https://m.media-amazon.com/images/I/51SDYkuTkaL._SL500_.jpg"/></a>
 
 
 The **XSTRAP STANDARD Ratchet Tie Down Straps - 8PK** are ideal for individuals who frequently need to secure heavy items during transport. Whether you are a homeowner moving appliances, a landscaper hauling lawn equipment, or a motorcycle owner seeking reliable cargo straps, these **1'' x 10 ft** straps with a **900 LB break strength** offer the durability and reliability necessary for safe and efficient transportation.
@@ -226,10 +226,10 @@ The **XSTRAP STANDARD Ratchet Tie Down Straps** feature a robust ratchet mechani
 
 Constructed with durability in mind, these straps are built to handle the rigors of transportation, including exposure to weather elements. The **900 LB break strength** rating assures users that their items are securely fastened, reducing the risk of damage or accidents. With an 8-pack offering, users have ample straps for multiple or large loads, making the **XSTRAP STANDARD Ratchet Tie Down Straps** a practical and reliable choice for anyone needing dependable cargo securing solutions.
 
-## <a href="https://www.amazon.com/dp/B07V6X65QD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Stanley S1007 Ratchet Tie Down Straps</a>
+## <a href="https://www.amazon.com/dp/B07V6X65QD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Stanley S1007 Ratchet Tie Down Straps</a>
 
 
-<a href="https://www.amazon.com/dp/B07V6X65QD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="STANLEY S1007 Black/Yellow 1.5" src="https://m.media-amazon.com/images/I/51Rrj8rz5cL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07V6X65QD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="STANLEY S1007 Black/Yellow 1.5" src="https://m.media-amazon.com/images/I/51Rrj8rz5cL._SL500_.jpg"/></a>
 
 
 The **STANLEY S1007 Black/Yellow 1.5" x 16' Ratchet Tie Down Straps** are ideal for individuals who need reliable and heavy-duty securing solutions. Whether you are a professional mover, a contractor, or an outdoor enthusiast transporting equipment, these straps offer the strength and durability required for safely securing loads during transit.
@@ -252,10 +252,10 @@ The **STANLEY S1007 Ratchet Tie Down Straps** feature a robust construction comb
 
 Designed with user convenience in mind, these straps are long enough to secure a variety of items, from furniture to construction materials. The bright **black and yellow coloring** not only adds a professional look but also improves visibility, making it easier to handle and adjust the straps quickly. Additionally, the package includes two straps, offering flexibility and value for users needing multiple tie-downs.
 
-## <a href="https://www.amazon.com/dp/B07CV2DBZT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Houseables Long Bungee Cords With Hooks</a>
+## <a href="https://www.amazon.com/dp/B07CV2DBZT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Houseables Long Bungee Cords With Hooks</a>
 
 
-<a href="https://www.amazon.com/dp/B07CV2DBZT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Houseables Long Bungee Cords with Hooks, Bungee Cords with Hooks, Elastic Straps, Elastic Tie Down Straps, Rope for Moving, Dolly, Truck, Bungie Chords, Heavy Duty Outdoor, Rubber, Flat, 48 Inch, 4 PK" src="https://m.media-amazon.com/images/I/51IHH6eporL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07CV2DBZT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Houseables Long Bungee Cords with Hooks, Bungee Cords with Hooks, Elastic Straps, Elastic Tie Down Straps, Rope for Moving, Dolly, Truck, Bungie Chords, Heavy Duty Outdoor, Rubber, Flat, 48 Inch, 4 PK" src="https://m.media-amazon.com/images/I/51IHH6eporL._SL500_.jpg"/></a>
 
 
 The **Houseables Long Bungee Cords with Hooks** are ideal for individuals who need reliable and heavy-duty **elastic tie down straps** for securing loads during moving, outdoor activities, or transportation. Whether you are a homeowner, a mover, or someone who frequently uses a dolly or truck, these **48-inch rubber bungee cords** offer durability and strength to keep your items safely in place.

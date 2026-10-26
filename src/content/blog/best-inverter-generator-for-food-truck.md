@@ -20,10 +20,10 @@ Look for features like electric start, fuel efficiency, and safety sensors to pr
 
 
 
-## <a href="https://www.amazon.com/dp/B0CRY234R8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Aivolt Dual Fuel Portable Inverter Generator</a>
+## <a href="https://www.amazon.com/dp/B0CRY234R8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Aivolt Dual Fuel Portable Inverter Generator</a>
 
 
-<a href="https://www.amazon.com/dp/B0CRY234R8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="AIVOLT 11250 Wattages Dual Fuel Portable Inverter Generator Super Quiet Gas Propane Powered Remote/Electric Start Outdoor Generator ATS Ready for Home Back Up Food Truck, 50 State Approved" src="https://m.media-amazon.com/images/I/51J-FOOr4cL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CRY234R8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="AIVOLT 11250 Wattages Dual Fuel Portable Inverter Generator Super Quiet Gas Propane Powered Remote/Electric Start Outdoor Generator ATS Ready for Home Back Up Food Truck, 50 State Approved" src="https://m.media-amazon.com/images/I/51J-FOOr4cL._SL500_.jpg"/></a>
 
 
 The **AIVOLT 11250 Wattages Dual Fuel Portable Inverter Generator** is ideal for homeowners, food truck operators, and outdoor enthusiasts who need a reliable and versatile power source. If you require a generator that can run on both gas and propane, offers remote and electric start options, and is suitable for backup power in any state, this generator is an excellent choice. It is especially beneficial for those seeking a super quiet, portable solution that is ATS ready for seamless home backup during outages.
@@ -45,10 +45,10 @@ The **AIVOLT 11250 Wattages Dual Fuel Portable Inverter Generator** stands out w
 
 Additionally, the generator’s **super quiet** operation allows it to be used in noise-sensitive environments without causing disturbances. The remote and electric start options add a layer of convenience, enabling users to start the generator from a distance or with minimal physical effort. Its **ATS readiness** means it can seamlessly integrate with automatic transfer switches, providing uninterrupted power during outages. These combined features make the AIVOLT generator a dependable and user-friendly power solution.
 
-## <a href="https://www.amazon.com/dp/B0BLVNW54D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Powersmart 2500-watt Portable Inverter Generator</a>
+## <a href="https://www.amazon.com/dp/B0BLVNW54D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Powersmart 2500-watt Portable Inverter Generator</a>
 
 
-<a href="https://www.amazon.com/dp/B0BLVNW54D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PowerSmart 2500-Watt Portable Inverter Generator with Super Quiet for Camping" src="https://m.media-amazon.com/images/I/41sB3rEPPfL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BLVNW54D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PowerSmart 2500-Watt Portable Inverter Generator with Super Quiet for Camping" src="https://m.media-amazon.com/images/I/41sB3rEPPfL._SL500_.jpg"/></a>
 
 
 The **PowerSmart 2500-Watt Portable Inverter Generator** is the ideal choice for outdoor enthusiasts, campers, and RV travelers who prioritize **quiet operation** and **portability**. This generator is perfect for those who enjoy off-grid adventures but don't want to sacrifice the convenience of electricity. Its **compact size** and **lightweight design** make it easy to transport, while its **super quiet operation** ensures you can enjoy the serene sounds of nature without disruption.
@@ -69,10 +69,10 @@ The **PowerSmart 2500-Watt Portable Inverter Generator** boasts several features
 
 Another significant feature is its **efficient power output** of 2500 watts, which is sufficient for powering essential appliances like lights, small kitchen devices, and personal electronics. This makes it an excellent choice for campers and RV owners who need a reliable power source without the bulk and noise of traditional generators. However, it's important to note that its **limited power capacity** may not support high-wattage appliances, which could be a consideration for users with more demanding power needs.
 
-## <a href="https://www.amazon.com/dp/B09PDR11L4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Erayak 2400w Portable Inverter Generator</a>
+## <a href="https://www.amazon.com/dp/B09PDR11L4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Erayak 2400w Portable Inverter Generator</a>
 
 
-<a href="https://www.amazon.com/dp/B09PDR11L4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ERAYAK 2400W Portable Inverter Generator for Home Use, Super Quiet Small Generator for Camping Outdoor Emergency Power Backup, Gas Powered Engine, EPA, ECO Mode" src="https://m.media-amazon.com/images/I/41mOJIYuCeL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09PDR11L4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ERAYAK 2400W Portable Inverter Generator for Home Use, Super Quiet Small Generator for Camping Outdoor Emergency Power Backup, Gas Powered Engine, EPA, ECO Mode" src="https://m.media-amazon.com/images/I/41mOJIYuCeL._SL500_.jpg"/></a>
 
 
 The **ERAYAK 2400W Portable Inverter Generator** is ideal for individuals who need a reliable and efficient power source for **home use**, **camping**, or **emergency power backup**. This compact and **super quiet** generator is perfect for outdoor enthusiasts, homeowners preparing for power outages, and anyone looking for a **gas-powered** solution with modern features like **EPA certification** and **ECO mode**.
@@ -96,10 +96,10 @@ The **ERAYAK 2400W Portable Inverter Generator** stands out with its combination
 
 One of the most beneficial features is the **ECO mode**, which intelligently adjusts fuel consumption based on the power needs, extending runtime and saving fuel costs. This makes the generator not only efficient but also economical for long-term use. Overall, the ERAYAK 2400W generator is a versatile, reliable option for anyone needing a practical and quiet power backup solution.
 
-## <a href="https://www.amazon.com/dp/B0DK3DGKJP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Gidrox 7000w Dual Fuel Inverter Generator</a>
+## <a href="https://www.amazon.com/dp/B0DK3DGKJP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Gidrox 7000w Dual Fuel Inverter Generator</a>
 
 
-<a href="https://www.amazon.com/dp/B0DK3DGKJP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Gidrox 7000W Dual Fuel Inverter Generator, Gas &amp; Propane Powered, RV Ready Remote/Electric Start, Super Quiet, 120V/240V with CO Sensor Portable Generator for RV, Camping or Party,EPA Compliant" src="https://m.media-amazon.com/images/I/41vwyC+Iq5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DK3DGKJP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Gidrox 7000W Dual Fuel Inverter Generator, Gas &amp; Propane Powered, RV Ready Remote/Electric Start, Super Quiet, 120V/240V with CO Sensor Portable Generator for RV, Camping or Party,EPA Compliant" src="https://m.media-amazon.com/images/I/41vwyC+Iq5L._SL500_.jpg"/></a>
 
 
 The **Gidrox 7000W Dual Fuel Inverter Generator** is ideal for RV owners, campers, and outdoor enthusiasts who need a reliable and versatile power source. Its ability to run on both **gas and propane** makes it perfect for those who want flexibility in fuel options while enjoying quiet operation and easy start features. If you require a portable generator that is **EPA compliant** and equipped with modern safety features like a **CO sensor**, this model is an excellent choice.
@@ -124,10 +124,10 @@ The **Gidrox 7000W Dual Fuel Inverter Generator** combines power and versatility
 
 This generator is designed with user comfort and safety in mind. Its **super quiet** operation allows for use in noise-sensitive environments like campgrounds or parties without disturbing others. The built-in **CO sensor** enhances safety by monitoring carbon monoxide levels and shutting down the generator if dangerous levels are detected. With outputs of both **120V and 240V**, it can handle a wide range of appliances and tools, making it a versatile choice for various outdoor power needs. Overall, this generator is a reliable and efficient solution for anyone seeking a powerful, portable, and safe power source.
 
-## <a href="https://www.amazon.com/dp/B0F23Z3KJ5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Powerhorse Inverter Generator</a>
+## <a href="https://www.amazon.com/dp/B0F23Z3KJ5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Powerhorse Inverter Generator</a>
 
 
-<a href="https://www.amazon.com/dp/B0F23Z3KJ5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Powerhorse Inverter Generator - 10500 Watts, Dual Fuel, Remote &amp; Electric Start, CO Monitor &amp; Shutoff" src="https://m.media-amazon.com/images/I/51cAZGslM2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F23Z3KJ5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Powerhorse Inverter Generator - 10500 Watts, Dual Fuel, Remote &amp; Electric Start, CO Monitor &amp; Shutoff" src="https://m.media-amazon.com/images/I/51cAZGslM2L._SL500_.jpg"/></a>
 
 
 The **Powerhorse Inverter Generator - 10500 Watts** is ideal for homeowners, contractors, and outdoor enthusiasts who require a reliable and powerful energy source. If you need a versatile generator that can run on both gasoline and propane, features advanced safety mechanisms, and offers convenient starting options, this model is an excellent choice. It’s perfect for those who want a durable solution for backup power, job sites, or recreational activities.
@@ -150,10 +150,10 @@ The **Powerhorse Inverter Generator** combines powerful performance with innovat
 
 Safety is a paramount consideration with this generator, as evidenced by the integrated **carbon monoxide (CO) monitor and automatic shutoff** system. This technology safeguards users by detecting hazardous CO levels and powering down the unit before harmful exposure occurs. Additionally, the substantial **10500-watt output** supports a wide range of high-demand appliances and tools, making it suitable for emergency power backup, construction sites, or outdoor events. Overall, the Powerhorse model offers a robust, user-friendly, and safe solution for anyone in need of dependable portable power.
 
-## <a href="https://www.amazon.com/dp/B0D3WR4CFR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wen Quiet And Lightweight 3600-watt Dual Fuel Rv-ready Portable Inverter Generator</a>
+## <a href="https://www.amazon.com/dp/B0D3WR4CFR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wen Quiet And Lightweight 3600-watt Dual Fuel Rv-ready Portable Inverter Generator</a>
 
 
-<a href="https://www.amazon.com/dp/B0D3WR4CFR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="WEN Quiet and Lightweight 3600-Watt Dual Fuel RV-Ready Portable Inverter Generator with Fuel Shut Off and CO Watchdog (DF360iX)" src="https://m.media-amazon.com/images/I/41KdBRQJSQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D3WR4CFR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="WEN Quiet and Lightweight 3600-Watt Dual Fuel RV-Ready Portable Inverter Generator with Fuel Shut Off and CO Watchdog (DF360iX)" src="https://m.media-amazon.com/images/I/41KdBRQJSQL._SL500_.jpg"/></a>
 
 
 The **WEN Quiet and Lightweight 3600-Watt Dual Fuel RV-Ready Portable Inverter Generator** with Fuel Shut Off and CO Watchdog (DF360iX) is ideal for outdoor enthusiasts, RV owners, and anyone needing a reliable power source on the go. This generator is perfect for those who want a quiet, efficient, and portable solution to power their devices during camping trips, tailgates, or emergency situations. Its dual fuel capability makes it especially appealing to users seeking flexibility and extended runtime.
@@ -177,10 +177,10 @@ The **WEN DF360iX** generator features a robust **3600-watt output** that effici
 
 Safety is a key aspect of this generator, with the integrated **CO Watchdog** that continuously monitors carbon monoxide levels to prevent dangerous buildup. Additionally, the **fuel shut off** feature protects the engine from damage by stopping fuel flow when the generator is turned off. This ensures longevity and reliable performance. The RV-ready outlets add convenience, enabling easy connection to recreational vehicles without extra adapters, making it a perfect companion for camping and outdoor adventures.
 
-## <a href="https://www.amazon.com/dp/B0DVF1RPCJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wen Quiet 6800-watt Dual Fuel Rv-ready Electric Start Portable Inverter Generator</a>
+## <a href="https://www.amazon.com/dp/B0DVF1RPCJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wen Quiet 6800-watt Dual Fuel Rv-ready Electric Start Portable Inverter Generator</a>
 
 
-<a href="https://www.amazon.com/dp/B0DVF1RPCJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="WEN Quiet 6800-Watt Dual Fuel RV-Ready Electric Start Portable Inverter Generator with Fuel Shut Off and CO Watchdog for Electric Vehicle Backup (DF680iX)" src="https://m.media-amazon.com/images/I/413AI-l4XIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DVF1RPCJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="WEN Quiet 6800-Watt Dual Fuel RV-Ready Electric Start Portable Inverter Generator with Fuel Shut Off and CO Watchdog for Electric Vehicle Backup (DF680iX)" src="https://m.media-amazon.com/images/I/413AI-l4XIL._SL500_.jpg"/></a>
 
 
 The **WEN Quiet 6800-Watt Dual Fuel RV-Ready Electric Start Portable Inverter Generator** is ideal for outdoor enthusiasts, RV owners, and homeowners who need a reliable and versatile power backup solution. This generator is perfect for those who require a quiet, efficient, and portable power source that can run on both gasoline and propane, making it especially suitable for emergency situations, camping trips, or as a backup for electric vehicles.
@@ -204,10 +204,10 @@ The **WEN Quiet 6800-Watt Dual Fuel Generator** stands out with its impressive p
 
 Safety is a top priority with the inclusion of the **CO Watchdog** system, which offers peace of mind by monitoring carbon monoxide levels and automatically shutting down the generator if dangerous levels are detected. The compact and portable build, combined with RV-ready outlets, makes this generator a versatile companion for powering electric vehicles, appliances, and tools wherever reliable power is needed. Overall, this generator caters to users looking for a robust, safe, and quiet power solution with the flexibility of dual fuel options.
 
-## <a href="https://www.amazon.com/dp/B0C1QF2SCF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wen Portable Inverter Generator</a>
+## <a href="https://www.amazon.com/dp/B0C1QF2SCF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Wen Portable Inverter Generator</a>
 
 
-<a href="https://www.amazon.com/dp/B0C1QF2SCF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="WEN 4800-Watt Portable Inverter Generator, RV-Ready, Quiet and Lightweight with Fuel Shut Off (56477i)" src="https://m.media-amazon.com/images/I/5152RZuvf6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C1QF2SCF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="WEN 4800-Watt Portable Inverter Generator, RV-Ready, Quiet and Lightweight with Fuel Shut Off (56477i)" src="https://m.media-amazon.com/images/I/5152RZuvf6L._SL500_.jpg"/></a>
 
 
 The **WEN 4800-Watt Portable Inverter Generator** is ideal for outdoor enthusiasts, RV owners, and anyone in need of a reliable, quiet, and lightweight power source. If you require a generator that combines portability with high power output, especially for camping trips, tailgating, or emergency backup, this model is designed to meet those needs efficiently.
@@ -229,10 +229,10 @@ The **WEN 4800-Watt Portable Inverter Generator** features a robust inverter eng
 
 This generator’s compact and lightweight design enhances its portability without compromising performance. The built-in fuel shut off feature not only ensures efficient fuel management but also extends the lifespan of the engine by preventing unnecessary wear. Additionally, its RV-ready capability means it can handle the electrical demands of various appliances and systems inside your recreational vehicle, providing convenience and peace of mind on the road.
 
-## <a href="https://www.amazon.com/dp/B0CBCT2R53?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Genmax Diy Open Frame Dual Fuel Inverter Generator</a>
+## <a href="https://www.amazon.com/dp/B0CBCT2R53?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Genmax Diy Open Frame Dual Fuel Inverter Generator</a>
 
 
-<a href="https://www.amazon.com/dp/B0CBCT2R53?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="GENMAX DIY Open Frame Dual Fuel Inverter Generator, 4000W ultra-quiet 145cc engine,with Parallel and Series Capability with CO Alert, Ideal for Construction Job &amp; Home backup power EPA Compliant" src="https://m.media-amazon.com/images/I/41EcTkI4CmL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CBCT2R53?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="GENMAX DIY Open Frame Dual Fuel Inverter Generator, 4000W ultra-quiet 145cc engine,with Parallel and Series Capability with CO Alert, Ideal for Construction Job &amp; Home backup power EPA Compliant" src="https://m.media-amazon.com/images/I/41EcTkI4CmL._SL500_.jpg"/></a>
 
 
 The **GENMAX DIY Open Frame Dual Fuel Inverter Generator** is ideal for individuals who need reliable and versatile power solutions, such as construction workers, DIY enthusiasts, and homeowners seeking backup power during outages. Its dual fuel capability and ultra-quiet operation make it perfect for those looking to maintain productivity on job sites or ensure uninterrupted home power without disturbing the surroundings.
@@ -257,10 +257,10 @@ The **GENMAX DIY Open Frame Dual Fuel Inverter Generator** stands out due to its
 
 Beyond power and quiet operation, the generator’s **parallel and series capability** allows users to link multiple units, effectively scaling power output to meet higher demands. This feature is particularly beneficial on larger construction sites or for homes with significant backup power needs. Safety is also a priority, with a built-in **CO alert system** that provides early warnings of dangerous carbon monoxide buildup, ensuring user safety during operation. The generator’s **EPA compliance** further guarantees that it meets environmental standards, making it a responsible choice for eco-conscious users.
 
-## <a href="https://www.amazon.com/dp/B0CYR4XHLY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Champion Power Equipment 11,000-watt Wireless Remote Start Home Backup Portable Inverter Generator</a>
+## <a href="https://www.amazon.com/dp/B0CYR4XHLY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Champion Power Equipment 11,000-watt Wireless Remote Start Home Backup Portable Inverter Generator</a>
 
 
-<a href="https://www.amazon.com/dp/B0CYR4XHLY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Champion Power Equipment 11,000-Watt Wireless Remote Start Home Backup Portable Inverter Generator with Quiet Technology and CO Shield" src="https://m.media-amazon.com/images/I/51iqe0kYdCL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CYR4XHLY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Champion Power Equipment 11,000-Watt Wireless Remote Start Home Backup Portable Inverter Generator with Quiet Technology and CO Shield" src="https://m.media-amazon.com/images/I/51iqe0kYdCL._SL500_.jpg"/></a>
 
 
 The **Champion Power Equipment 11,000-Watt Wireless Remote Start Home Backup Portable Inverter Generator** is ideal for homeowners and professionals who need a reliable and powerful backup power source. This generator is perfect for those living in areas prone to power outages or anyone requiring a portable yet robust energy solution for outdoor events, construction sites, or emergency situations. Its advanced features make it suitable for users seeking convenience, safety, and quiet operation.

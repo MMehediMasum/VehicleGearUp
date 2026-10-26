@@ -23,10 +23,10 @@ Options vary in size, material, and ease of installation. Brands like Husky Line
 
 
 
-## <a href="https://www.amazon.com/dp/B08W9X6Y1S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Husky Liners — Front &amp; Rear Mud Guards</a>
+## <a href="https://www.amazon.com/dp/B08W9X6Y1S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Husky Liners — Front &amp; Rear Mud Guards</a>
 
 
-<a href="https://www.amazon.com/dp/B08W9X6Y1S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Husky Liners — Front &amp; Rear Mud Guards | Fits 2019-2024 Ram 2500, Ram 3500 (Without Fender Flares &amp; Excludes Dually, Front &amp; Rear - Black, 4 Pc | 58046" src="https://m.media-amazon.com/images/I/31Fo4riKWvS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08W9X6Y1S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Husky Liners — Front &amp; Rear Mud Guards | Fits 2019-2024 Ram 2500, Ram 3500 (Without Fender Flares &amp; Excludes Dually, Front &amp; Rear - Black, 4 Pc | 58046" src="https://m.media-amazon.com/images/I/31Fo4riKWvS._SL500_.jpg"/></a>
 
 
 The **Husky Liners Front & Rear Mud Guards** are ideal for truck owners who want to protect their vehicle's body from mud, dirt, and debris. Specifically designed to fit **2019-2024 Ram 2500 and Ram 3500 models** (without fender flares and excluding dually models), these mud guards are perfect for those who frequently drive in off-road or muddy conditions and want to maintain the pristine look of their truck.
@@ -48,10 +48,10 @@ The **Husky Liners mud guards** offer excellent protection by shielding your tru
 
 Constructed by **Truck Hero**, these mud guards boast a robust build that can withstand harsh weather conditions and rough terrain. Their installation is straightforward, allowing truck owners to easily mount them without professional assistance. Overall, these mud guards enhance the durability and appearance of your Ram truck, making them a practical investment for anyone looking to protect their vehicle while maintaining style.
 
-## <a href="https://www.amazon.com/dp/B07P5JNDMZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Plasticolor Ram Heavy Duty Rear Mud Guards</a>
+## <a href="https://www.amazon.com/dp/B07P5JNDMZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Plasticolor Ram Heavy Duty Rear Mud Guards</a>
 
 
-<a href="https://www.amazon.com/dp/B07P5JNDMZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Plasticolor Ram Heavy Duty Rear 12 X 23 Mud Guards, 12" src="https://m.media-amazon.com/images/I/51sSkZNwNTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07P5JNDMZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Plasticolor Ram Heavy Duty Rear 12 X 23 Mud Guards, 12" src="https://m.media-amazon.com/images/I/51sSkZNwNTL._SL500_.jpg"/></a>
 
 
 The **Plasticolor Ram Heavy Duty Rear 12 X 23 Mud Guards** are ideal for truck owners and commercial vehicle operators who frequently drive in rugged or muddy conditions. If you're looking to protect your vehicle’s undercarriage and rear wheels from debris, mud, and road grime, these **heavy-duty mud guards** offer a reliable solution designed to withstand tough environments.
@@ -73,10 +73,10 @@ Crafted by **Plasticolor**, these mud guards measure **12 inches in width** and 
 
 In addition to their protective features, the **Plasticolor Ram Heavy Duty Rear Mud Guards** help maintain vehicle cleanliness, reducing the frequency of washings and protecting the paintwork from chips and scratches. Their universal black finish not only blends well with most truck designs but also resists fading, maintaining a professional appearance over time. Overall, these mud guards combine functionality with durability, making them a valuable accessory for anyone focused on vehicle upkeep and performance.
 
-## <a href="https://www.amazon.com/dp/B07PZR3DYR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Plasticolor Ram Heavy Duty Front Mud Guards</a>
+## <a href="https://www.amazon.com/dp/B07PZR3DYR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Plasticolor Ram Heavy Duty Front Mud Guards</a>
 
 
-<a href="https://www.amazon.com/dp/B07PZR3DYR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PLASTICOLOR Ram Heavy Duty Front 12 X 23 Mud Guards, 12" src="https://m.media-amazon.com/images/I/51gv668bl9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07PZR3DYR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PLASTICOLOR Ram Heavy Duty Front 12 X 23 Mud Guards, 12" src="https://m.media-amazon.com/images/I/51gv668bl9L._SL500_.jpg"/></a>
 
 
 The **PLASTICOLOR Ram Heavy Duty Front 12 X 23 Mud Guards** are ideal for truck owners who want to protect their vehicle's front wheels and lower body from mud, debris, and road grime. If you drive in off-road conditions, muddy terrain, or frequently encounter harsh weather, these mud guards offer a reliable solution to keep your truck cleaner and reduce wear and tear. They are especially suited for those who own Ram trucks and are looking for durable, well-fitting mud protection accessories.
@@ -98,10 +98,10 @@ The **PLASTICOLOR Ram Heavy Duty Front Mud Guards** feature a robust design made
 
 Additionally, the mud guards’ lightweight yet sturdy build ensures they do not affect your vehicle’s performance or fuel efficiency. Their sleek **black finish** complements a wide range of truck colors and styles, enhancing the overall look without drawing unwanted attention. With these mud guards, truck owners gain peace of mind knowing their vehicle is better protected during every drive, especially in challenging road conditions.
 
-## <a href="https://www.amazon.com/dp/B08VC8HGPK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Weathertech Custom No Drill Splash Guard Mudflaps For Ram 2500/3500</a>
+## <a href="https://www.amazon.com/dp/B08VC8HGPK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Weathertech Custom No Drill Splash Guard Mudflaps For Ram 2500/3500</a>
 
 
-<a href="https://www.amazon.com/dp/B08VC8HGPK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="WeatherTech Custom No Drill Splash Guard MudFlaps for Ram 2500/3500, Ram Truck 2500/3500 - Front &amp; Rear Set (110108-120108), Black" src="https://m.media-amazon.com/images/I/31coZh1HgsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08VC8HGPK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="WeatherTech Custom No Drill Splash Guard MudFlaps for Ram 2500/3500, Ram Truck 2500/3500 - Front &amp; Rear Set (110108-120108), Black" src="https://m.media-amazon.com/images/I/31coZh1HgsL._SL500_.jpg"/></a>
 
 
 The **WeatherTech Custom No Drill Splash Guard MudFlaps** are perfect for truck enthusiasts who frequently navigate rugged terrains or face challenging weather conditions. Ideal for owners of **Ram 2500/3500** trucks, these mudflaps are designed for those who prioritize protecting their vehicle from dirt, debris, and potential damage. If you're someone who values durability and ease of installation, these mudflaps are an excellent addition to your vehicle.
@@ -122,10 +122,10 @@ The **WeatherTech Custom No Drill Splash Guard MudFlaps** are engineered with pr
 
 Beyond their practical benefits, these mudflaps boast a **sleek black design** that seamlessly integrates with the truck’s appearance, enhancing its overall look while serving a functional purpose. Constructed with **high-quality materials**, they offer long-lasting durability, ensuring that your vehicle remains protected from the elements, thereby reducing maintenance costs over time.
 
-## <a href="https://www.amazon.com/dp/B0F794TXZ6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rmourtekk Mud Flaps Compatible With Dodge Ram 2019-2024 1500 2500 3500</a>
+## <a href="https://www.amazon.com/dp/B0F794TXZ6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rmourtekk Mud Flaps Compatible With Dodge Ram 2019-2024 1500 2500 3500</a>
 
 
-<a href="https://www.amazon.com/dp/B0F794TXZ6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="RMOURTEKK Mud Flaps Compatible with Dodge Ram 2019-2022 2023 2024 1500 2500 3500 Without OEM Fender Flares Custom Front and Rear Mud Guard Set (4pcs-Set)" src="https://m.media-amazon.com/images/I/31JxxDhQVdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F794TXZ6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="RMOURTEKK Mud Flaps Compatible with Dodge Ram 2019-2022 2023 2024 1500 2500 3500 Without OEM Fender Flares Custom Front and Rear Mud Guard Set (4pcs-Set)" src="https://m.media-amazon.com/images/I/31JxxDhQVdL._SL500_.jpg"/></a>
 
 
 The **RMOURTEKK Mud Flaps Compatible with Dodge Ram 2019-2022 2023 2024 1500 2500 3500 Without OEM Fender Flares Custom Front and Rear Mud Guard Set (4pcs-Set)** is an excellent choice for Dodge Ram owners who want to protect their vehicle's exterior from mud, dirt, and road debris without the need for OEM fender flares. Ideal for truck enthusiasts, off-road drivers, and anyone looking to maintain the clean appearance and structural integrity of their Dodge Ram, these mud flaps offer a practical and durable solution.
@@ -147,10 +147,10 @@ The **RMOURTEKK Mud Flaps** are engineered with precision to fit Dodge Ram truck
 
 Beyond protection, these mud flaps enhance the overall driving experience by reducing the amount of debris kicked up onto the truck and surrounding vehicles, promoting safer road conditions. Their design without the need for OEM fender flares gives owners the freedom to customize their truck’s look while maintaining functionality. The included front and rear guards provide comprehensive coverage, making this set a practical investment for Dodge Ram owners seeking both style and durability.
 
-## <a href="https://www.amazon.com/dp/B0002NIJW6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Plasticolor Ram White Logo Easy Fit Mud Guard Set</a>
+## <a href="https://www.amazon.com/dp/B0002NIJW6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Plasticolor Ram White Logo Easy Fit Mud Guard Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0002NIJW6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img src="https://m.media-amazon.com/images/I/41jo-jwVh-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0002NIJW6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img src="https://m.media-amazon.com/images/I/41jo-jwVh-L._SL500_.jpg"/></a>
 
 
 The **Plasticolor 000490R01 RAM White Logo Easy Fit 9"x15" Mud Guard - Left and Right Set** is ideal for vehicle owners who want to enhance their truck's protection and style. If you are looking for a durable and easy-to-install mud guard that helps keep your vehicle cleaner and adds a touch of personality, this product is a perfect fit. It is especially suited for drivers who frequently travel on muddy or rough terrains and need reliable protection against dirt and debris.
@@ -172,10 +172,10 @@ The **Plasticolor RAM Mud Guard** measures **9" x 15"** with a slim height of 0.
 
 This mud guard set comes with both left and right pieces, covering both rear tires to prevent mud, rocks, and water from splashing onto your vehicle's body and other drivers. The lightweight design means it won't add unnecessary weight or drag, maintaining your vehicle's fuel efficiency and performance. Overall, this product combines practical utility with branded aesthetics, making it an excellent choice for RAM truck owners seeking reliable and stylish mud guards.
 
-## <a href="https://www.amazon.com/dp/B09V29NZFH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tecoom Custom Mud Flaps Splash Guards</a>
+## <a href="https://www.amazon.com/dp/B09V29NZFH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tecoom Custom Mud Flaps Splash Guards</a>
 
 
-<a href="https://www.amazon.com/dp/B09V29NZFH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Tecoom Custom Mud Flaps Splash Guards Fit for 2019-2023 Ram 2500/3500 Trucks with OEM Fender Flares(not Power Wagon), Black Front and Rear Mud Guard Set of 4" src="https://m.media-amazon.com/images/I/31vHy53Y9HL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09V29NZFH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Tecoom Custom Mud Flaps Splash Guards Fit for 2019-2023 Ram 2500/3500 Trucks with OEM Fender Flares(not Power Wagon), Black Front and Rear Mud Guard Set of 4" src="https://m.media-amazon.com/images/I/31vHy53Y9HL._SL500_.jpg"/></a>
 
 
 The **Tecoom Custom Mud Flaps Splash Guards** are ideal for owners of **2019-2023 Ram 2500/3500 Trucks** who have **OEM Fender Flares** (excluding Power Wagon models) and seek durable, custom-fit protection against mud, rocks, and debris. If you want to maintain the pristine condition of your truck while enhancing its rugged appearance, this set of **black front and rear mud guards** is a perfect choice.
@@ -197,10 +197,10 @@ The **Tecoom Custom Mud Flaps Splash Guards** are crafted to perfectly match the
 
 Constructed from high-quality materials, these mud flaps are built to withstand harsh road conditions and resist wear over time. By reducing the amount of debris kicked up by your tires, they help maintain cleaner side panels and reduce the potential for chips and scratches. This translates into less frequent cleaning and maintenance, saving you time and money in the long run. Whether you’re driving on highways or rough terrain, the Tecoom splash guards enhance your truck’s durability and style simultaneously.
 
-## <a href="https://www.amazon.com/dp/B084DVXQR5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Husky Liners Front &amp; Rear Mud Guards</a>
+## <a href="https://www.amazon.com/dp/B084DVXQR5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Husky Liners Front &amp; Rear Mud Guards</a>
 
 
-<a href="https://www.amazon.com/dp/B084DVXQR5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Husky Liners — Front &amp; Rear Mud Guards | Fits 2019-2024 Dodge Ram 2500/3500 w/OEM Fender Flares (Excludes Power Wagon/Excludes Dually) Front &amp; Rear Set - Black, 4 Pc. | 58056" src="https://m.media-amazon.com/images/I/41ZTzCX+OVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B084DVXQR5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Husky Liners — Front &amp; Rear Mud Guards | Fits 2019-2024 Dodge Ram 2500/3500 w/OEM Fender Flares (Excludes Power Wagon/Excludes Dually) Front &amp; Rear Set - Black, 4 Pc. | 58056" src="https://m.media-amazon.com/images/I/41ZTzCX+OVL._SL500_.jpg"/></a>
 
 
 The **Husky Liners Front & Rear Mud Guards** are an excellent choice for owners of the **2019-2024 Dodge Ram 2500/3500** who want to protect their truck’s exterior from mud, rocks, and road debris. Ideal for drivers who frequently navigate off-road terrains or harsh weather conditions, these mud guards fit models with **OEM Fender Flares** and exclude Power Wagon and Dually versions. If you value durability and maintaining your truck’s appearance, this set is designed for you.
@@ -222,10 +222,10 @@ These **mud guards** from Husky Liners are constructed with high-quality materia
 
 Additionally, the set includes both front and rear guards, ensuring comprehensive coverage to shield your vehicle from road hazards on all sides. The lightweight yet durable design means you won’t add unnecessary weight to your truck, maintaining optimal performance and fuel efficiency. These mud guards are an essential accessory for anyone looking to enhance their truck’s longevity and maintain its pristine condition in challenging driving environments.
 
-## <a href="https://www.amazon.com/dp/B0C2H7L21J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Kiwi Master Mud Flaps</a>
+## <a href="https://www.amazon.com/dp/B0C2H7L21J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Kiwi Master Mud Flaps</a>
 
 
-<a href="https://www.amazon.com/dp/B0C2H7L21J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Kiwi Master Mud Flaps for 2009-18 Dodge Ram 1500/2500/3500, 2019-2024 Ram 1500 Classic Heavy Duty Front &amp; Rear Mud Guards (Only for Trucks with OEM Fender Flares,Single Rear Wheels), Non-Drilling" src="https://m.media-amazon.com/images/I/41+hKhmPMuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C2H7L21J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Kiwi Master Mud Flaps for 2009-18 Dodge Ram 1500/2500/3500, 2019-2024 Ram 1500 Classic Heavy Duty Front &amp; Rear Mud Guards (Only for Trucks with OEM Fender Flares,Single Rear Wheels), Non-Drilling" src="https://m.media-amazon.com/images/I/41+hKhmPMuL._SL500_.jpg"/></a>
 
 
 The **Kiwi Master Mud Flaps** are ideal for owners of **2009-18 Dodge Ram 1500/2500/3500** and **2019-2024 Ram 1500 Classic** trucks who have **OEM fender flares** and **single rear wheels**. If you want to protect your vehicle from mud, rocks, and debris without the hassle of drilling, this product is designed specifically for you. It suits truck enthusiasts seeking durable, heavy-duty mud guards that complement the factory look.
@@ -248,10 +248,10 @@ The **Kiwi Master Mud Flaps** provide a perfect blend of functionality and conve
 
 Crafted specifically for trucks with OEM fender flares and single rear wheels, these mud flaps ensure a seamless fit that complements the truck's factory design. This tailored approach not only enhances protection but also maintains the aesthetic appeal of your Dodge Ram. Whether you're commuting daily or tackling off-road adventures, these mud guards offer reliable durability and protection, making them a smart investment for Dodge Ram owners.
 
-## <a href="https://www.amazon.com/dp/B08H5PQ1X4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rmourtekk Mud Flaps Compatible With Dodge Ram 2009-2024</a>
+## <a href="https://www.amazon.com/dp/B08H5PQ1X4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rmourtekk Mud Flaps Compatible With Dodge Ram 2009-2024</a>
 
 
-<a href="https://www.amazon.com/dp/B08H5PQ1X4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="RMOURTEKK Mud Flaps Compatible with Dodge Ram 2009-2018 1500 2500 3500 &amp; 2019-2024 Ram 1500 Classic Without OEM Fender Flares Custom Front and Rear Mud Guard Set（4pcs-Set）" src="https://m.media-amazon.com/images/I/41LLKWqAd+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08H5PQ1X4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="RMOURTEKK Mud Flaps Compatible with Dodge Ram 2009-2018 1500 2500 3500 &amp; 2019-2024 Ram 1500 Classic Without OEM Fender Flares Custom Front and Rear Mud Guard Set（4pcs-Set）" src="https://m.media-amazon.com/images/I/41LLKWqAd+L._SL500_.jpg"/></a>
 
 
 The **RMOURTEKK Mud Flaps** are ideal for owners of **Dodge Ram 1500, 2500, and 3500 models from 2009 to 2018** as well as the **2019-2024 Ram 1500 Classic** who are looking to protect their trucks without the need for OEM fender flares. These mud guards are perfect for drivers who frequently encounter muddy, wet, or rocky terrains and want a durable, custom-fit solution to keep their vehicle’s body clean and free from road debris.

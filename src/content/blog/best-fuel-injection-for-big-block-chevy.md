@@ -23,10 +23,10 @@ Mechanical fuel pumps such as JEGS 110 GPH or OCPTY high-performance models prov
 
 
 
-## <a href="https://www.amazon.com/dp/B0DBVW4WN2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jghyperx 7137 Intake Manifold</a>
+## <a href="https://www.amazon.com/dp/B0DBVW4WN2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jghyperx 7137 Intake Manifold</a>
 
 
-<a href="https://www.amazon.com/dp/B0DBVW4WN2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JGhyperX 7137 Intake Manifold Aluminum Multi Port Compatible with Chevy Small Block SBC 283 302 305 350 400 V8 Engine Cast Finish Non-EGR xt EFI 1500-6500 rpm" src="https://m.media-amazon.com/images/I/41nH9Gt-fbL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DBVW4WN2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JGhyperX 7137 Intake Manifold Aluminum Multi Port Compatible with Chevy Small Block SBC 283 302 305 350 400 V8 Engine Cast Finish Non-EGR xt EFI 1500-6500 rpm" src="https://m.media-amazon.com/images/I/41nH9Gt-fbL._SL500_.jpg"/></a>
 
 
 The **JGhyperX 7137 Intake Manifold** is ideal for automotive enthusiasts and professional mechanics who own or work on **Chevy Small Block SBC engines**, including the **283, 302, 305, 350, and 400 V8** variants. This product is perfect for those seeking a reliable, high-performance upgrade that supports engines running between **1500-6500 rpm** and requires a non-EGR, multi-port solution for improved fuel efficiency and power delivery.
@@ -48,10 +48,10 @@ The **JGhyperX 7137 Intake Manifold** features a robust **aluminum multi-port de
 
 Additionally, this intake manifold supports **Electronic Fuel Injection (EFI)** systems, allowing for precise fuel delivery and better combustion control. This results in enhanced fuel efficiency and power output, especially in the rpm range of **1500 to 6500**. Its lightweight nature reduces overall engine weight, contributing to quicker throttle response and improved vehicle dynamics. Whether for street performance or racing applications, this manifold delivers reliable performance improvements tailored to the needs of Chevy SBC engine owners.
 
-## <a href="https://www.amazon.com/dp/B078WGY9Y7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jegs Mechanical Fuel Pump</a>
+## <a href="https://www.amazon.com/dp/B078WGY9Y7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jegs Mechanical Fuel Pump</a>
 
 
-<a href="https://www.amazon.com/dp/B078WGY9Y7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JEGS Mechanical Fuel Pump | Big Block Chevy 396-454 | 110 GPH / 416 LPH | 1/4 “ NPT Ports | 6.5 to 8 PSI | Chrome Finish | For Gasoline Only" src="https://m.media-amazon.com/images/I/41cpzPPwE5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B078WGY9Y7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JEGS Mechanical Fuel Pump | Big Block Chevy 396-454 | 110 GPH / 416 LPH | 1/4 “ NPT Ports | 6.5 to 8 PSI | Chrome Finish | For Gasoline Only" src="https://m.media-amazon.com/images/I/41cpzPPwE5L._SL500_.jpg"/></a>
 
 
 The **JEGS Mechanical Fuel Pump** is ideal for automotive enthusiasts and mechanics who own or work on classic big block Chevrolet engines, specifically the **396-454** series. If you need a reliable, high-performance fuel pump designed for gasoline use and compatible with engines requiring a steady flow of fuel, this product is a perfect fit. It suits those looking to maintain or upgrade their vehicle’s fuel delivery system with a durable and efficient component.
@@ -75,10 +75,10 @@ The **JEGS Mechanical Fuel Pump** offers robust performance tailored to big bloc
 
 Installation is simplified by the inclusion of 1/4” NPT ports, which provide secure and leak-free connections to fuel lines. Operating at a pressure range of 6.5 to 8 PSI, the pump delivers fuel efficiently without over-pressurizing the system. Overall, this fuel pump is a reliable choice for anyone aiming to keep their classic Chevy engine running smoothly with a quality, purpose-built fuel delivery component.
 
-## <a href="https://www.amazon.com/dp/B002RV0IUM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Billet Specialties Polished Fuel Pump Block-off For Big Block Chevy</a>
+## <a href="https://www.amazon.com/dp/B002RV0IUM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Billet Specialties Polished Fuel Pump Block-off For Big Block Chevy</a>
 
 
-<a href="https://www.amazon.com/dp/B002RV0IUM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Billet Specialties 41220 Polished Fuel Pump Block-Off for Big Block Chevy" src="https://m.media-amazon.com/images/I/41lC0IkpKXL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B002RV0IUM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Billet Specialties 41220 Polished Fuel Pump Block-Off for Big Block Chevy" src="https://m.media-amazon.com/images/I/41lC0IkpKXL._SL500_.jpg"/></a>
 
 
 The **Billet Specialties 41220 Polished Fuel Pump Block-Off for Big Block Chevy** is ideal for automotive enthusiasts and mechanics who want a clean, professional look while sealing off the fuel pump hole on **Big Block Chevy engines**. This product is perfect for those who are converting their engines to electric fuel pumps or simply need to block off the mechanical fuel pump opening without compromising engine aesthetics or performance.
@@ -99,10 +99,10 @@ The **Billet Specialties 41220 Polished Fuel Pump Block-Off** offers a reliable 
 
 By installing this block-off plate, users benefit from a cleaner engine bay, which not only looks great but also helps in maintaining engine compartment cleanliness. The polished finish adds a touch of sophistication, complementing other engine components. Additionally, its sturdy construction means it can withstand the rigors of engine operation, providing peace of mind for long-term use.
 
-## <a href="https://www.amazon.com/dp/B08KZPWJ8G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ocpty High Performance Replacement Mechanical Fuel Pump</a>
+## <a href="https://www.amazon.com/dp/B08KZPWJ8G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ocpty High Performance Replacement Mechanical Fuel Pump</a>
 
 
-<a href="https://www.amazon.com/dp/B08KZPWJ8G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OCPTY High Performance Replacement Mechanical Fuel Pump for Chevy 350" src="https://m.media-amazon.com/images/I/4152K8rq2rL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08KZPWJ8G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OCPTY High Performance Replacement Mechanical Fuel Pump for Chevy 350" src="https://m.media-amazon.com/images/I/4152K8rq2rL._SL500_.jpg"/></a>
 
 
 The **OCPTY High Performance Replacement Mechanical Fuel Pump** is perfect for classic car enthusiasts and **Chevy 350 engine** owners who need a reliable and efficient fuel pump. This product is ideal for those seeking to maintain or enhance the performance of their vehicle's engine with a high-quality replacement part.
@@ -122,10 +122,10 @@ The **OCPTY High Performance Replacement Mechanical Fuel Pump** boasts **precisi
 
 One of the standout features of this fuel pump is its **compatibility** with the Chevy 350 engine, making it an essential component for those looking to maintain their vehicle's original performance standards. Although installation might pose a challenge for some, particularly those without mechanical expertise, the benefits of using a **high-quality, compatible replacement part** far outweigh the initial setup efforts.
 
-## <a href="https://www.amazon.com/dp/B006K8VW76?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Allstar Performance Small Block Chevy Fuel Pump Gasket</a>
+## <a href="https://www.amazon.com/dp/B006K8VW76?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Allstar Performance Small Block Chevy Fuel Pump Gasket</a>
 
 
-<a href="https://www.amazon.com/dp/B006K8VW76?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Allstar PerformanceAllstar ALL87236-10 Small Block Chevy Fuel Pump Gasket, (Pack of 10)" src="https://m.media-amazon.com/images/I/41iukC4y2gL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B006K8VW76?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Allstar PerformanceAllstar ALL87236-10 Small Block Chevy Fuel Pump Gasket, (Pack of 10)" src="https://m.media-amazon.com/images/I/41iukC4y2gL._SL500_.jpg"/></a>
 
 
 The **Allstar Performance ALL87236-10 Small Block Chevy Fuel Pump Gasket** is ideal for automotive enthusiasts and mechanics who need a reliable and durable gasket for their Small Block Chevy engines. If you are looking to ensure a secure and leak-proof seal for your fuel pump installation or replacement, this pack of 10 gaskets from **Allstar Performance** provides an excellent solution. It is perfect for those who perform frequent maintenance or repairs on Chevy engines and want quality components that guarantee performance and longevity.
@@ -146,10 +146,10 @@ The **Allstar Performance ALL87236-10 Fuel Pump Gasket** is engineered to provid
 
 Thanks to the high-quality materials used in manufacturing, these gaskets offer excellent durability and resistance to fuel and heat exposure. This translates into longer service life and fewer replacements, saving time and money. Additionally, the gasket’s design is tailored specifically for Small Block Chevy engines, making installation straightforward and ensuring compatibility with OEM specifications.
 
-## <a href="https://www.amazon.com/dp/B0CCVFB2T5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Yuchenshlp Mechanical Fuel Pump M6624</a>
+## <a href="https://www.amazon.com/dp/B0CCVFB2T5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Yuchenshlp Mechanical Fuel Pump M6624</a>
 
 
-<a href="https://www.amazon.com/dp/B0CCVFB2T5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="YUCHENSHLP Mechanical Fuel Pump M6624 Compatible with Chevy 350 327 383 400 Small Block" src="https://m.media-amazon.com/images/I/41GjlJj1QcL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CCVFB2T5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="YUCHENSHLP Mechanical Fuel Pump M6624 Compatible with Chevy 350 327 383 400 Small Block" src="https://m.media-amazon.com/images/I/41GjlJj1QcL._SL500_.jpg"/></a>
 
 
 The **YUCHENSHLP Mechanical Fuel Pump M6624** is ideal for automotive enthusiasts and mechanics who own or work on classic Chevy small block engines, specifically the **Chevy 350, 327, 383, and 400** models. If you are looking for a reliable replacement fuel pump that ensures consistent fuel delivery and compatibility with these popular engine types, this product is designed for you.
@@ -170,10 +170,10 @@ The **YUCHENSHLP Mechanical Fuel Pump M6624** stands out due to its precise engi
 
 Additionally, the pump’s lightweight and compact design facilitate straightforward installation and reduce strain on the engine bay. Its robust build quality from **YUCHENSHLP** guarantees durability, helping users maintain optimal engine performance over time. This mechanical fuel pump is an excellent choice for those seeking a dependable and efficient fuel delivery solution for their classic Chevy small block engines.
 
-## <a href="https://www.amazon.com/dp/B0D7V5554Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Oxcano M4891 Mechanical Fuel Pump</a>
+## <a href="https://www.amazon.com/dp/B0D7V5554Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Oxcano M4891 Mechanical Fuel Pump</a>
 
 
-<a href="https://www.amazon.com/dp/B0D7V5554Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OXCANO M4891 Mechanical Fuel Pump Automotive Replacement Compatible with Small Block Chevy Strip Pump" src="https://m.media-amazon.com/images/I/41mjf1ziRGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D7V5554Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OXCANO M4891 Mechanical Fuel Pump Automotive Replacement Compatible with Small Block Chevy Strip Pump" src="https://m.media-amazon.com/images/I/41mjf1ziRGL._SL500_.jpg"/></a>
 
 
 The **OXCANO M4891 Mechanical Fuel Pump** is ideal for automotive enthusiasts and mechanics who own or work on vehicles with a **Small Block Chevy** engine. If you're seeking a reliable and efficient replacement fuel pump that ensures optimal fuel delivery and engine performance, this product is designed to meet those needs. It’s perfect for those who value durability and compatibility in their automotive parts.
@@ -196,10 +196,10 @@ The **OXCANO M4891 Mechanical Fuel Pump** offers robust performance by deliverin
 
 Crafted by **OXCANO**, the pump’s durable materials and construction guarantee longevity, reducing the frequency of replacements and repairs. Additionally, its straightforward installation process means less downtime for your vehicle and more time on the road. Whether you're restoring a classic Chevy or upgrading your current fuel system, this mechanical pump balances performance with reliability, making it an excellent investment for maintaining your engine’s health.
 
-## <a href="https://www.amazon.com/dp/B09WMR9X53?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Plentzom Fuel Injector Block-off Tool Cap</a>
+## <a href="https://www.amazon.com/dp/B09WMR9X53?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Plentzom Fuel Injector Block-off Tool Cap</a>
 
 
-<a href="https://www.amazon.com/dp/B09WMR9X53?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PLENTZOM 14MM Fuel Injector Block-Off Tool Cap 9011 EN-47589-1 Compatible with Dodge Cummins 5.9L and 6.6L Chevy/GMC Duramax 2003-2018" src="https://m.media-amazon.com/images/I/41lGT2mgkWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09WMR9X53?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="PLENTZOM 14MM Fuel Injector Block-Off Tool Cap 9011 EN-47589-1 Compatible with Dodge Cummins 5.9L and 6.6L Chevy/GMC Duramax 2003-2018" src="https://m.media-amazon.com/images/I/41lGT2mgkWL._SL500_.jpg"/></a>
 
 
 The **PLENTZOM 14MM Fuel Injector Block-Off Tool Cap 9011 EN-47589-1** is ideal for vehicle owners and mechanics who work with **Dodge Cummins 5.9L** and **6.6L Chevy/GMC Duramax** diesel engines from model years 2003 to 2018. If you need a reliable tool to block off fuel injector ports during maintenance or repairs, this tool cap is a must-have for ensuring a clean and efficient service process.
@@ -221,10 +221,10 @@ The **PLENTZOM 14MM Fuel Injector Block-Off Tool Cap** stands out for its precis
 
 Additionally, the tool’s compatibility with a broad range of models from 2003 to 2018 reflects its versatility and usefulness in various repair scenarios. Mechanics will appreciate the ease of use and the peace of mind that comes with using a product from a reputable manufacturer like **PLENTZOM**. Overall, this block-off tool cap is a practical investment for those seeking efficiency and reliability in diesel engine maintenance tasks.
 
-## <a href="https://www.amazon.com/dp/B0BJ2K8PHG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">A-premium Aluminum Single Plane Efi Multi-port Sbc 4150 Intake Manifold</a>
+## <a href="https://www.amazon.com/dp/B0BJ2K8PHG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">A-premium Aluminum Single Plane Efi Multi-port Sbc 4150 Intake Manifold</a>
 
 
-<a href="https://www.amazon.com/dp/B0BJ2K8PHG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="A-Premium Aluminum Single Plane EFI Multi-port SBC 4150 Intake Manifold [W/Fuel Rail, Idle-2500-7500] Compatible with Chevy, GMC, Olds &amp; More GMC Vehicles - C,G,K,R,V-Class, Regal, Truck &amp; More" src="https://m.media-amazon.com/images/I/51qugojhjIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BJ2K8PHG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="A-Premium Aluminum Single Plane EFI Multi-port SBC 4150 Intake Manifold [W/Fuel Rail, Idle-2500-7500] Compatible with Chevy, GMC, Olds &amp; More GMC Vehicles - C,G,K,R,V-Class, Regal, Truck &amp; More" src="https://m.media-amazon.com/images/I/51qugojhjIL._SL500_.jpg"/></a>
 
 
 The **A-Premium Aluminum Single Plane EFI Multi-port SBC 4150 Intake Manifold** is ideal for automotive enthusiasts and mechanics looking to enhance the performance of their **Chevy, GMC, Olds**, and other compatible GMC vehicles such as **C, G, K, R, V-Class, Regal, and Trucks**. This intake manifold is perfect for those who want a reliable upgrade to improve engine efficiency and power output while maintaining compatibility with a wide range of vehicle models.
@@ -247,10 +247,10 @@ This **A-Premium Aluminum Single Plane EFI Multi-port SBC 4150 Intake Manifold**
 
 Additionally, the manifold’s compatibility with a broad range of GMC vehicles like the **C, G, K, R, V-Class, Regal, and Trucks** makes it a versatile upgrade option for many owners. Its durable aluminum construction not only helps reduce overall engine weight but also improves heat dissipation, contributing to better engine temperature management and longevity. Overall, this intake manifold offers a substantial performance boost for those looking to upgrade their vehicle’s engine system with a reliable, high-quality component.
 
-## <a href="https://www.amazon.com/dp/B0CRZ9YXPM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mysttoo 2pcs 14mm Diesel Common Rail Injector Caps</a>
+## <a href="https://www.amazon.com/dp/B0CRZ9YXPM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mysttoo 2pcs 14mm Diesel Common Rail Injector Caps</a>
 
 
-<a href="https://www.amazon.com/dp/B0CRZ9YXPM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mysttoo 2PCS 14mm Diesel Common Rail Injector Caps M14 Rail Fuel Block-Off Cap Tool Compatible with 2003-2007 Dodge Cummins 5.9L; 2001-2005 Chevy GMC 6.6L Duramax Engine" src="https://m.media-amazon.com/images/I/41NnwHE4J-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CRZ9YXPM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Mysttoo 2PCS 14mm Diesel Common Rail Injector Caps M14 Rail Fuel Block-Off Cap Tool Compatible with 2003-2007 Dodge Cummins 5.9L; 2001-2005 Chevy GMC 6.6L Duramax Engine" src="https://m.media-amazon.com/images/I/41NnwHE4J-L._SL500_.jpg"/></a>
 
 
 The **Mysttoo 2PCS 14mm Diesel Common Rail Injector Caps** are ideal for diesel vehicle owners and mechanics who work with **2003-2007 Dodge Cummins 5.9L** and **2001-2005 Chevy GMC 6.6L Duramax engines**. If you need a reliable tool to safely block off fuel rail injectors during maintenance or repairs, these caps provide a precise fit and easy installation, making them perfect for both professional use and DIY enthusiasts.

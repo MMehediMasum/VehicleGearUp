@@ -23,10 +23,10 @@ Adventure tires provide traction on dirt and pavement. Dual sport tires balance 
 
 
 
-## <a href="https://www.amazon.com/dp/B09NS1JRCG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tusk Dsport® Adventure Tire</a>
+## <a href="https://www.amazon.com/dp/B09NS1JRCG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tusk Dsport® Adventure Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B09NS1JRCG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tusk Dsport® Adventure Tire 130/90-17 (68R) Tube Type For KAWASAKI KLR650 1987-2018,2022-2024" src="https://m.media-amazon.com/images/I/31UzVYDu3-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09NS1JRCG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tusk Dsport® Adventure Tire 130/90-17 (68R) Tube Type For KAWASAKI KLR650 1987-2018,2022-2024" src="https://m.media-amazon.com/images/I/31UzVYDu3-L._SL500_.jpg"/></a>
 
 
 The **Tusk Dsport® Adventure Tire 130/90-17 (68R) Tube Type** is ideal for riders of the **KAWASAKI KLR650** model years 1987-2018 and 2022-2024 who seek a reliable and durable tire for both on-road and off-road adventures. This tire is perfect for adventure enthusiasts who want enhanced traction, stability, and performance in varied terrains. If you frequently ride on mixed surfaces or embark on long-distance trips, this tire offers an excellent balance of toughness and versatility.
@@ -48,10 +48,10 @@ The **Tusk Dsport® Adventure Tire** features a robust build that is engineered 
 
 Additionally, the tube type design of this tire makes it easier to repair in remote locations, an important benefit for adventure riders. The tire's compatibility with a wide range of KAWASAKI KLR650 models from 1987 to 2018 and recent years ensures that many riders can upgrade their tires without compatibility concerns. Overall, the Tusk Dsport® Adventure Tire balances durability, performance, and versatility, making it a top choice for serious adventure motorcyclists.
 
-## <a href="https://www.amazon.com/dp/B0DKB79F62?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tusk Waypoint Adventure™ Tire</a>
+## <a href="https://www.amazon.com/dp/B0DKB79F62?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tusk Waypoint Adventure™ Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B0DKB79F62?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tusk Waypoint Adventure™ Tire 130/90-17 (68R) (Rear) For Kawasaki KLR650 1987-2018,2022-2024" src="https://m.media-amazon.com/images/I/31YJgGYdFwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DKB79F62?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tusk Waypoint Adventure™ Tire 130/90-17 (68R) (Rear) For Kawasaki KLR650 1987-2018,2022-2024" src="https://m.media-amazon.com/images/I/31YJgGYdFwL._SL500_.jpg"/></a>
 
 
 The **Tusk Waypoint Adventure™ Tire 130/90-17 (68R) (Rear)** is ideal for riders of the **Kawasaki KLR650** models from **1987-2018** and **2022-2024** who seek a reliable, durable, and high-performance tire for both on-road and off-road adventures. This tire suits adventure enthusiasts and daily commuters looking for enhanced traction and stability on varied terrains.
@@ -74,10 +74,10 @@ The **Tusk Waypoint Adventure™ Tire** boasts a design tailored specifically fo
 
 Riders will appreciate the tire’s superior traction capabilities, which translate into safer handling and increased confidence when navigating slippery or uneven surfaces. The lightweight nature of the tire also contributes to better fuel efficiency and easier bike handling, especially during long adventure rides. Overall, the Tusk Waypoint Adventure™ Tire delivers a combination of performance, durability, and reliability, making it a smart upgrade for serious Kawasaki KLR650 owners.
 
-## <a href="https://www.amazon.com/dp/B0D6WKPXPR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tusk 2track Adventure Tire</a>
+## <a href="https://www.amazon.com/dp/B0D6WKPXPR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tusk 2track Adventure Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B0D6WKPXPR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tusk 2Track Adventure Tire (130/80-17 (65Q))" src="https://m.media-amazon.com/images/I/41xn1RbHDJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D6WKPXPR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tusk 2Track Adventure Tire (130/80-17 (65Q))" src="https://m.media-amazon.com/images/I/41xn1RbHDJL._SL500_.jpg"/></a>
 
 
 The **Tusk 2Track Adventure Tire (130/80-17 (65Q))** is ideal for adventure riders and dual-sport enthusiasts who demand durability and reliable performance on both paved roads and off-road trails. If you frequently switch between highway cruising and rugged terrains, this tire offers the perfect balance of traction and stability to enhance your riding experience.
@@ -99,10 +99,10 @@ The **Tusk 2Track Adventure Tire** features a rugged tread pattern designed to p
 
 Additionally, this tire offers enhanced stability and handling thanks to its carefully engineered profile. Riders benefit from precise steering response and balanced cornering, which are crucial for adventure riding where terrain and road conditions can change rapidly. Overall, the **Tusk 2Track Adventure Tire** is a reliable choice for motorcyclists seeking versatility, durability, and consistent performance in a single tire.
 
-## <a href="https://www.amazon.com/dp/B07DHXQXTF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kenda K270 Dual Sport Front Tire</a>
+## <a href="https://www.amazon.com/dp/B07DHXQXTF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kenda K270 Dual Sport Front Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B07DHXQXTF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kenda K270 Dual Sport Front Tire 3.25x21 (57P) Tube Type for Kawasaki KLR650 1987-2018" src="https://m.media-amazon.com/images/I/418TionQdKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07DHXQXTF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kenda K270 Dual Sport Front Tire 3.25x21 (57P) Tube Type for Kawasaki KLR650 1987-2018" src="https://m.media-amazon.com/images/I/418TionQdKL._SL500_.jpg"/></a>
 
 
 The **Kenda K270 Dual Sport Front Tire 3.25x21 (57P) Tube Type** is an ideal choice for **motorcycle enthusiasts** who own a **Kawasaki KLR650** from the years **1987 to 2018**. This tire is perfect for those who enjoy both on-road and off-road adventures, offering a blend of performance and durability suitable for diverse terrains. If you seek a reliable tire that can handle different riding conditions without compromising comfort, this could be the right choice for you.
@@ -122,10 +122,10 @@ The **Kenda K270 Dual Sport Tire** is constructed with a combination of **rugged
 
 One of the standout features of the **Kenda K270** is its **affordability** without compromising on quality. While it offers a robust performance akin to higher-end tires, its price point remains competitive, making it accessible for budget-conscious riders. Additionally, the **Kenda brand** is known for its reliable manufacturing, ensuring that riders get a product that meets high standards of safety and efficiency. This combination of features and benefits makes the K270 a valuable investment for those needing a dependable dual sport tire.
 
-## <a href="https://www.amazon.com/dp/B09WDZTSGY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tusk First Line Air Filter</a>
+## <a href="https://www.amazon.com/dp/B09WDZTSGY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tusk First Line Air Filter</a>
 
 
-<a href="https://www.amazon.com/dp/B09WDZTSGY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tusk First Line Air Filter Compatible with Kawasaki KLR650 1987-2018, 2022-2025" src="https://m.media-amazon.com/images/I/51GtUvk8-4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09WDZTSGY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tusk First Line Air Filter Compatible with Kawasaki KLR650 1987-2018, 2022-2025" src="https://m.media-amazon.com/images/I/51GtUvk8-4L._SL500_.jpg"/></a>
 
 
 The **Tusk First Line Air Filter Compatible with Kawasaki KLR650 1987-2018, 2022-2025** is ideal for motorcycle enthusiasts and riders who own a Kawasaki KLR650 within the specified year range and are looking for a reliable replacement air filter. This product is perfect for those who prioritize maintaining optimal engine performance and longevity by ensuring their bike breathes clean air efficiently. Whether you are a daily commuter, adventure rider, or weekend warrior, this air filter is designed to meet your needs.
@@ -147,10 +147,10 @@ The **Tusk First Line Air Filter** boasts robust design and quality materials th
 
 Additionally, this air filter is designed with ease of maintenance in mind. Riders can quickly install or replace the filter without specialized tools, allowing for hassle-free upkeep. The improved airflow delivered by the filter supports better throttle response and smoother engine operation, ensuring that your Kawasaki KLR650 performs at its best whether you are cruising on highways or tackling rugged trails.
 
-## <a href="https://www.amazon.com/dp/B0BGT2ST44?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tusk Dsport® Adventure Tire</a>
+## <a href="https://www.amazon.com/dp/B0BGT2ST44?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tusk Dsport® Adventure Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B0BGT2ST44?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tusk Dsport® Adventure Tire 90/90-21 (54R) Tube Type For KAWASAKI KLR650 Traveler ABS 2022-2023" src="https://m.media-amazon.com/images/I/31pzn8XX8nL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BGT2ST44?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tusk Dsport® Adventure Tire 90/90-21 (54R) Tube Type For KAWASAKI KLR650 Traveler ABS 2022-2023" src="https://m.media-amazon.com/images/I/31pzn8XX8nL._SL500_.jpg"/></a>
 
 
 The **Tusk Dsport® Adventure Tire 90/90-21 (54R) Tube Type** is ideal for riders who own a **KAWASAKI KLR650 Traveler ABS 2022-2023** and seek a reliable tire designed specifically for adventure and dual-sport riding. This tire is perfect for those who enjoy both on-road and off-road experiences, requiring a durable and versatile tire that can handle diverse terrains without compromising safety or performance.
@@ -173,10 +173,10 @@ The **Tusk Dsport® Adventure Tire** features a robust construction tailored to 
 
 Riders will appreciate the tire’s ability to maintain traction and stability on wet or uneven surfaces, enhancing overall safety and control. Additionally, the compatibility with the **KAWASAKI KLR650 Traveler ABS 2022-2023** model ensures optimal performance without compromising the bike’s handling characteristics. This tire is a reliable upgrade for adventure enthusiasts who prioritize durability, versatility, and consistent performance in their rides.
 
-## <a href="https://www.amazon.com/dp/B07DCFTVRL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop D606 Dual Sport Tire</a>
+## <a href="https://www.amazon.com/dp/B07DCFTVRL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dunlop D606 Dual Sport Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B07DCFTVRL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop D606 Dual Sport Tire 130/90x17 (68R) Tube Type for Kawasaki KLR650 1987-2018" src="https://m.media-amazon.com/images/I/41GTvlujSPL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07DCFTVRL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dunlop D606 Dual Sport Tire 130/90x17 (68R) Tube Type for Kawasaki KLR650 1987-2018" src="https://m.media-amazon.com/images/I/41GTvlujSPL._SL500_.jpg"/></a>
 
 
 The **Dunlop D606 Dual Sport Tire 130/90x17 (68R) Tube Type** is ideal for riders who own a **Kawasaki KLR650** from 1987 to 2018 and are looking for a versatile tire that performs well both on-road and off-road. If you enjoy adventure riding or need a reliable tire that can handle various terrains without compromising on durability and traction, this tire is a perfect choice.
@@ -198,10 +198,10 @@ The **Dunlop D606 Dual Sport Tire** features a robust tread pattern designed to 
 
 Additionally, the tire’s **tube type construction** offers simplicity in maintenance and repair, making it easier for riders to manage tire issues in remote locations. The combination of Dunlop’s engineering and quality materials means that users benefit from enhanced durability and a tire that withstands the rigors of both highway cruising and off-road exploration.
 
-## <a href="https://www.amazon.com/dp/B0BGT2VBD5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tusk Dsport® Adventure Tire</a>
+## <a href="https://www.amazon.com/dp/B0BGT2VBD5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tusk Dsport® Adventure Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B0BGT2VBD5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tusk Dsport® Adventure Tire 130/90-17 (68R) Tube Type For KAWASAKI KLR650 Adventure 2022-2023" src="https://m.media-amazon.com/images/I/41mjXXI8R9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BGT2VBD5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tusk Dsport® Adventure Tire 130/90-17 (68R) Tube Type For KAWASAKI KLR650 Adventure 2022-2023" src="https://m.media-amazon.com/images/I/41mjXXI8R9L._SL500_.jpg"/></a>
 
 
 The **Tusk Dsport® Adventure Tire 130/90-17 (68R) Tube Type** is ideal for riders of the **KAWASAKI KLR650 Adventure 2022-2023** who seek a reliable and versatile tire for both on-road and off-road adventures. This tire is perfect for adventure motorcyclists who demand durability, traction, and performance in varying terrains and weather conditions.
@@ -224,10 +224,10 @@ The **Tusk Dsport® Adventure Tire** is engineered with a robust tread pattern t
 
 Additionally, the tire's compatibility with the **KAWASAKI KLR650 Adventure 2022-2023** means that installation is straightforward, and performance is optimized for this model. The tube type construction allows for simple repairs in remote locations, enhancing peace of mind during extended trips. Overall, this tire balances toughness, reliability, and versatility, making it an excellent investment for riders who push their machines to the limits.
 
-## <a href="https://www.amazon.com/dp/B087YP3Q6S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Niche Drive Sprocket Chain Combo For Kawasaki Klr650</a>
+## <a href="https://www.amazon.com/dp/B087YP3Q6S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Niche Drive Sprocket Chain Combo For Kawasaki Klr650</a>
 
 
-<a href="https://www.amazon.com/dp/B087YP3Q6S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NICHE Drive Sprocket Chain Combo for Kawasaki KLR650 Front 15 Rear 43 Tooth 520V-X X-Ring 106 Links" src="https://m.media-amazon.com/images/I/51z-084P6AL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B087YP3Q6S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NICHE Drive Sprocket Chain Combo for Kawasaki KLR650 Front 15 Rear 43 Tooth 520V-X X-Ring 106 Links" src="https://m.media-amazon.com/images/I/51z-084P6AL._SL500_.jpg"/></a>
 
 
 The **NICHE Drive Sprocket Chain Combo for Kawasaki KLR650** is ideal for motorcycle enthusiasts and riders who demand high performance and durability from their drivetrain components. If you own a **Kawasaki KLR650** and are looking for a reliable, long-lasting, and efficient sprocket and chain set, this combo is designed specifically to meet your needs. It’s perfect for those who frequently ride on varied terrains and want to ensure smooth power transmission and improved riding experience.
@@ -249,10 +249,10 @@ The **NICHE Drive Sprocket Chain Combo** is engineered to deliver smooth and eff
 
 Additionally, the **gold-colored finish** not only adds a visually appealing touch but also provides protection against rust and corrosion, making it suitable for riders who often encounter wet or dusty environments. The included **106 links** make the installation straightforward, ensuring a perfect fit without the need for additional links or complicated adjustments. Overall, this combo offers a reliable and performance-oriented upgrade for Kawasaki KLR650 owners seeking durability and enhanced riding performance.
 
-## <a href="https://www.amazon.com/dp/B07N31SCCG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Michelin Anakee Adventure Front Tire</a>
+## <a href="https://www.amazon.com/dp/B07N31SCCG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Michelin Anakee Adventure Front Tire</a>
 
 
-<a href="https://www.amazon.com/dp/B07N31SCCG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MICHELIN Anakee Adventure Front Tire (90/90-21)" src="https://m.media-amazon.com/images/I/31OoNY7x1iL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07N31SCCG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MICHELIN Anakee Adventure Front Tire (90/90-21)" src="https://m.media-amazon.com/images/I/31OoNY7x1iL._SL500_.jpg"/></a>
 
 
 The **MICHELIN Anakee Adventure Front Tire (90/90-21)** is ideal for adventure motorcyclists and dual-sport riders who demand high performance both on paved roads and off-road trails. If you're looking for a durable and reliable front tire that offers excellent grip and stability in varying conditions, this tire is designed to meet those needs. Its versatile design makes it perfect for riders who frequently switch between on-road touring and off-road exploration.

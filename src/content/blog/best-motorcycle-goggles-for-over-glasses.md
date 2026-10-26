@@ -23,10 +23,10 @@ Some come with anti-fog and UV protection features, making them ideal for long r
 
 
 
-## <a href="https://www.amazon.com/dp/B001CVXW1K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pacific Coast Airfoil Padded 'fit Over Glasses' Riding Goggles</a>
+## <a href="https://www.amazon.com/dp/B001CVXW1K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pacific Coast Airfoil Padded 'fit Over Glasses' Riding Goggles</a>
 
 
-<a href="https://www.amazon.com/dp/B001CVXW1K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pacific Coast Airfoil Padded 'Fit Over Glasses' Riding Goggles (Black Frame/Clear Lens)" src="https://m.media-amazon.com/images/I/41NOc-Jtq8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B001CVXW1K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pacific Coast Airfoil Padded 'Fit Over Glasses' Riding Goggles (Black Frame/Clear Lens)" src="https://m.media-amazon.com/images/I/41NOc-Jtq8L._SL500_.jpg"/></a>
 
 
 The **Pacific Coast Airfoil Padded 'Fit Over Glasses' Riding Goggles** are ideal for riders who wear prescription glasses and need protective eyewear that comfortably fits over them. These goggles are perfect for motorcyclists, cyclists, and outdoor enthusiasts looking for a combination of clear vision, comfort, and reliable eye protection during their rides.
@@ -48,10 +48,10 @@ The **Pacific Coast Airfoil Padded Riding Goggles** feature a thoughtfully padde
 
 Additionally, the goggles’ lightweight and durable construction make them ideal for long rides, reducing fatigue and providing dependable protection against wind, dust, and debris. The sleek black frame adds a touch of style without compromising functionality, making these goggles a practical choice for riders who prioritize both comfort and eye safety.
 
-## <a href="https://www.amazon.com/dp/B08DKLK4JY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Birdz Eyewear Pelican Fitover Goggles</a>
+## <a href="https://www.amazon.com/dp/B08DKLK4JY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Birdz Eyewear Pelican Fitover Goggles</a>
 
 
-<a href="https://www.amazon.com/dp/B08DKLK4JY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Birdz Eyewear Pelican Fitover Padded ATV Motorcycle Riding Over The Glasses (OTG) Goggles Black" src="https://m.media-amazon.com/images/I/41ySfWiCRwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08DKLK4JY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Birdz Eyewear Pelican Fitover Padded ATV Motorcycle Riding Over The Glasses (OTG) Goggles Black" src="https://m.media-amazon.com/images/I/41ySfWiCRwL._SL500_.jpg"/></a>
 
 
 The **Birdz Eyewear Pelican Fitover Padded ATV Motorcycle Riding Over The Glasses (OTG) Goggles Black** are ideal for riders who wear prescription glasses and need reliable eye protection without sacrificing comfort or vision clarity. These goggles are perfect for ATV enthusiasts, motorcycle riders, and outdoor adventurers who require durable, comfortable eyewear that fits seamlessly over their existing glasses.
@@ -73,10 +73,10 @@ The **Birdz Eyewear Pelican Fitover Goggles** feature a thoughtfully padded fram
 
 Weighing just 0.37 pounds, these goggles do not add unnecessary bulk or weight, allowing riders to maintain focus without distraction. The sturdy construction from Birdz guarantees durability and long-lasting protection, effectively shielding your eyes from environmental elements such as wind, dust, and debris. Overall, these goggles provide an excellent balance of comfort, protection, and style for riders who need OTG compatibility.
 
-## <a href="https://www.amazon.com/dp/B07D3J77KP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">3 Pair Motorcycle Riding Glasses Padding Goggles</a>
+## <a href="https://www.amazon.com/dp/B07D3J77KP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">3 Pair Motorcycle Riding Glasses Padding Goggles</a>
 
 
-<a href="https://www.amazon.com/dp/B07D3J77KP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="3 Pair Motorcycle Riding Glasses Padding Goggles UV Protection Dustproof Windproof Motorcycle Sunglasses with Clear Smoke Yellow Lens for Outdoor Sports Actives" src="https://m.media-amazon.com/images/I/41fl2elN21L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07D3J77KP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="3 Pair Motorcycle Riding Glasses Padding Goggles UV Protection Dustproof Windproof Motorcycle Sunglasses with Clear Smoke Yellow Lens for Outdoor Sports Actives" src="https://m.media-amazon.com/images/I/41fl2elN21L._SL500_.jpg"/></a>
 
 
 These **3 Pair Motorcycle Riding Glasses** are perfect for outdoor sports enthusiasts and motorcycle riders who seek reliable eye protection against harsh weather elements. Ideal for those who frequently ride in varying light conditions, these goggles offer a versatile solution with clear, smoke, and yellow lenses to enhance visibility and comfort on the road.
@@ -98,10 +98,10 @@ The **motorcycle goggles** feature a combination of clear, smoke, and yellow len
 
 Additionally, the **padding** around the goggles ensures a snug and comfortable fit, preventing dust and wind from disturbing your vision while riding. The lightweight design minimizes fatigue during extended use, and the sturdy construction by **Modi Fly** guarantees durability even in rugged environments. Overall, these goggles provide comprehensive eye protection and enhanced visibility, essential for any serious motorcycle rider or outdoor sports participant.
 
-## <a href="https://www.amazon.com/dp/B07V826TVG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Global Vision Big Ben Motorcycle Goggles</a>
+## <a href="https://www.amazon.com/dp/B07V826TVG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Global Vision Big Ben Motorcycle Goggles</a>
 
 
-<a href="https://www.amazon.com/dp/B07V826TVG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Global Vision Big Ben Motorcycle Goggles Fit Over Most Glasses Black Frames Clear Smoke Lenses Off-Road Street Snowmobiles Marine" src="https://m.media-amazon.com/images/I/41HZfPAJLlL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07V826TVG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Global Vision Big Ben Motorcycle Goggles Fit Over Most Glasses Black Frames Clear Smoke Lenses Off-Road Street Snowmobiles Marine" src="https://m.media-amazon.com/images/I/41HZfPAJLlL._SL500_.jpg"/></a>
 
 
 The **Global Vision Big Ben Motorcycle Goggles** are perfect for riders who wear glasses and need reliable eye protection during their adventures. Ideal for motorcyclists, off-road enthusiasts, snowmobile riders, and marine users, these goggles are designed to fit comfortably over most prescription glasses, providing clear vision without compromise. If you're looking for durable, versatile eyewear that can handle various outdoor conditions, these goggles are an excellent choice.
@@ -124,10 +124,10 @@ The **Global Vision Big Ben Motorcycle Goggles** stand out due to their thoughtf
 
 Additionally, the clear smoke lenses help reduce glare while offering robust protection against wind, dust, and debris, crucial for off-road and marine environments. The durable black frames add to their appeal by combining functionality with a classic look that suits various outdoor activities. Overall, these goggles provide a practical and stylish solution for riders seeking dependable eye protection tailored to their unique needs.
 
-## <a href="https://www.amazon.com/dp/B008BKVDN4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bikershades Fit Over Goggles</a>
+## <a href="https://www.amazon.com/dp/B008BKVDN4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bikershades Fit Over Goggles</a>
 
 
-<a href="https://www.amazon.com/dp/B008BKVDN4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bikershades Fit Over Goggles for Eye-Glasses Clear Motorcycle Riding Cycling Skiing Sky Diving Indoor Outdoor Work" src="https://m.media-amazon.com/images/I/41nVvedhnmL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B008BKVDN4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bikershades Fit Over Goggles for Eye-Glasses Clear Motorcycle Riding Cycling Skiing Sky Diving Indoor Outdoor Work" src="https://m.media-amazon.com/images/I/41nVvedhnmL._SL500_.jpg"/></a>
 
 
 The **Bikershades Fit Over Goggles** are ideal for individuals who wear **eye-glasses** and are passionate about activities such as **motorcycle riding**, **cycling**, **skiing**, or even **sky diving**. These goggles are perfect for anyone who requires additional **eye protection** during these activities while still needing to wear their prescription glasses. If you spend time both **indoors** and **outdoors** and need a versatile solution that fits comfortably over your glasses, these goggles are an excellent choice.
@@ -148,10 +148,10 @@ The **Bikershades Fit Over Goggles** feature a robust design that accommodates t
 
 Another standout feature is the goggles' ability to be used across various sports and activities, from **skiing** and **cycling** to **sky diving** and **motorcycling**. This versatility is complemented by their lightweight construction, which prevents discomfort during prolonged wear. However, it's important to note that while the clear lenses offer great visibility, users in extremely bright environments may need additional UV protection to ensure optimal eye safety.
 
-## <a href="https://www.amazon.com/dp/B000NOKNKA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Global Vision Outfitter Padded Fit-over Motorcycle Safety Sunglasses</a>
+## <a href="https://www.amazon.com/dp/B000NOKNKA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Global Vision Outfitter Padded Fit-over Motorcycle Safety Sunglasses</a>
 
 
-<a href="https://www.amazon.com/dp/B000NOKNKA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Global Vision Outfitter Padded Fit-Over Motorcycle Safety Sunglasses" src="https://m.media-amazon.com/images/I/31S+PGxCdAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000NOKNKA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Global Vision Outfitter Padded Fit-Over Motorcycle Safety Sunglasses" src="https://m.media-amazon.com/images/I/31S+PGxCdAL._SL500_.jpg"/></a>
 
 
 The **Global Vision Outfitter Padded Fit-Over Motorcycle Safety Sunglasses** are ideal for motorcyclists who wear prescription glasses and need reliable eye protection on the road. These sunglasses are designed for riders seeking comfort, safety, and enhanced visibility without sacrificing their existing eyewear. Anyone who values durable, protective eyewear that fits securely over their prescription glasses will benefit from this product.
@@ -173,10 +173,10 @@ The **Global Vision Outfitter Padded Fit-Over Motorcycle Safety Sunglasses** are
 
 Featuring a smoke lens, these sunglasses effectively reduce glare from sunlight and reflective surfaces, improving overall visibility and reducing eye strain. Their lightweight dimensions—measuring approximately 2.17 inches in height, 5.91 inches in width, and 2.56 inches in length—ensure that they remain unobtrusive while providing full coverage protection. Riders benefit from enhanced eye safety against wind, dust, and debris, making these sunglasses a practical addition to any motorcycle gear collection.
 
-## <a href="https://www.amazon.com/dp/B0DFPMRM7H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Birdz Eyewear Hawk Over The Glasses Motorcycle Goggles</a>
+## <a href="https://www.amazon.com/dp/B0DFPMRM7H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Birdz Eyewear Hawk Over The Glasses Motorcycle Goggles</a>
 
 
-<a href="https://www.amazon.com/dp/B0DFPMRM7H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Birdz Eyewear Hawk Over The Glasses Motorcycle Goggles Biker 2 Pairs Anti-Fog Clear &amp; Smoke Lenses RXable ANSI Z87.1 Safety Rated" src="https://m.media-amazon.com/images/I/41ec2tku+NL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DFPMRM7H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Birdz Eyewear Hawk Over The Glasses Motorcycle Goggles Biker 2 Pairs Anti-Fog Clear &amp; Smoke Lenses RXable ANSI Z87.1 Safety Rated" src="https://m.media-amazon.com/images/I/41ec2tku+NL._SL500_.jpg"/></a>
 
 
 The **Birdz Eyewear Hawk Over The Glasses Motorcycle Goggles** are ideal for motorcyclists who wear prescription glasses and need reliable eye protection without compromising comfort. These goggles are perfect for bikers seeking durable, ANSI Z87.1 safety-rated eyewear with the convenience of anti-fog technology and interchangeable clear and smoke lenses. If you want to enhance your riding experience while protecting your eyes from wind, debris, and UV rays, these goggles are an excellent choice.
@@ -200,10 +200,10 @@ The **Birdz Eyewear Hawk goggles** feature a smart design that accommodates most
 
 Constructed with a lightweight yet sturdy frame, these goggles meet the rigorous **ANSI Z87.1 safety standards**, providing dependable protection against wind, dust, and flying debris. The RXable feature enables riders to customize lenses with their specific prescriptions, which enhances comfort and reduces eye strain. Overall, these goggles offer a practical and durable solution for motorcyclists who demand both style and safety.
 
-## <a href="https://www.amazon.com/dp/B0047MQ8ZS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Outfitter Clear Motorcycle Glasses</a>
+## <a href="https://www.amazon.com/dp/B0047MQ8ZS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Outfitter Clear Motorcycle Glasses</a>
 
 
-<a href="https://www.amazon.com/dp/B0047MQ8ZS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Outfitter clear motorcycle glasses. Over-Prescription glasses" src="https://m.media-amazon.com/images/I/412i-AV6q+S._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0047MQ8ZS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Outfitter clear motorcycle glasses. Over-Prescription glasses" src="https://m.media-amazon.com/images/I/412i-AV6q+S._SL500_.jpg"/></a>
 
 
 The **Outfitter clear motorcycle glasses** are ideal for motorcyclists who require **over-prescription glasses** that can be comfortably worn under helmets. These glasses cater especially to riders who need clear vision correction without compromising safety or style while on the road.
@@ -224,10 +224,10 @@ The **Outfitter clear motorcycle glasses** feature a sleek and lightweight frame
 
 Manufactured by **Cglasses**, these glasses stand out due to their precise design tailored for riders who require prescription correction without bulky frames. The lightweight construction also helps reduce fatigue, making these glasses a practical and reliable choice for daily commuters and long-distance riders alike.
 
-## <a href="https://www.amazon.com/dp/B0D6WH6KVY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yisugooc Motorcycle Glasses</a>
+## <a href="https://www.amazon.com/dp/B0D6WH6KVY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yisugooc Motorcycle Glasses</a>
 
 
-<a href="https://www.amazon.com/dp/B0D6WH6KVY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="YISUGOOC 4 Pair Motorcycle Glasses Riding Glasses UV Protection Windproof And Dustproof Motorcycle Goggles Foam Cushion Eyeglasses Suitable For Outdoor Sports Motorcycle Riding" src="https://m.media-amazon.com/images/I/41CimTQ6fBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D6WH6KVY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="YISUGOOC 4 Pair Motorcycle Glasses Riding Glasses UV Protection Windproof And Dustproof Motorcycle Goggles Foam Cushion Eyeglasses Suitable For Outdoor Sports Motorcycle Riding" src="https://m.media-amazon.com/images/I/41CimTQ6fBL._SL500_.jpg"/></a>
 
 
 The **YISUGOOC 4 Pair Motorcycle Glasses** are perfect for outdoor enthusiasts, especially those who frequently engage in **motorcycle riding** and other high-speed outdoor sports. If you are looking for reliable **UV protection**, **windproof**, and **dustproof** eyewear that ensures comfort and durability, these riding glasses are an excellent choice. Ideal for riders who want to protect their eyes from harsh elements while maintaining clear vision and comfort on the road.
@@ -249,10 +249,10 @@ The **YISUGOOC Motorcycle Glasses** boast a versatile design that caters to the 
 
 Another key feature is the **UV protection**, which shields the eyes from harmful ultraviolet rays that can cause long-term damage and discomfort. The lightweight construction means the glasses can be worn for hours without strain, and the variety of colors allows riders to choose according to their style or lighting needs. Overall, these goggles are a practical and affordable accessory for anyone serious about protecting their eyes during outdoor sports and motorcycle riding.
 
-## <a href="https://www.amazon.com/dp/B0DDLDWC3S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Birdz Eyewear Hawk Over The Glasses Motorcycle Goggles</a>
+## <a href="https://www.amazon.com/dp/B0DDLDWC3S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Birdz Eyewear Hawk Over The Glasses Motorcycle Goggles</a>
 
 
-<a href="https://www.amazon.com/dp/B0DDLDWC3S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Birdz Eyewear Hawk Over The Glasses Motorcycle Goggles Biker Anti-Fog Smoke Lenses RXable ANSI Z87.1 Safety Rated" src="https://m.media-amazon.com/images/I/41S1XFObVDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DDLDWC3S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Birdz Eyewear Hawk Over The Glasses Motorcycle Goggles Biker Anti-Fog Smoke Lenses RXable ANSI Z87.1 Safety Rated" src="https://m.media-amazon.com/images/I/41S1XFObVDL._SL500_.jpg"/></a>
 
 
 The **Birdz Eyewear Hawk Over The Glasses Motorcycle Goggles** are ideal for **motorcyclists** and **bikers** who wear prescription glasses and need additional protection while riding. These goggles are designed for those who prioritize safety without compromising on style and comfort. If you're someone who rides regularly and wants an **anti-fog**, **safety-rated** solution that fits comfortably over your glasses, this product is perfect for you.

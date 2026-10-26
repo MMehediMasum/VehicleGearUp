@@ -23,10 +23,10 @@ Some products include primers and clear coats for extra protection. Easy-to-use 
 
 
 
-## <a href="https://www.amazon.com/dp/B004TBOGPG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dupli-color Perfect Match</a>
+## <a href="https://www.amazon.com/dp/B004TBOGPG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dupli-color Perfect Match</a>
 
 
-<a href="https://www.amazon.com/dp/B004TBOGPG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Dupli-Color EBUN01007 Perfect Match, Universal Black, 8 oz." src="https://m.media-amazon.com/images/I/41vabu+WQEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B004TBOGPG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Dupli-Color EBUN01007 Perfect Match, Universal Black, 8 oz." src="https://m.media-amazon.com/images/I/41vabu+WQEL._SL500_.jpg"/></a>
 
 
 The **Dupli-Color EBUN01007 Perfect Match, Universal Black, 8 oz.** is ideal for DIY enthusiasts, automotive restorers, and anyone looking to achieve a flawless, professional-quality finish on black surfaces. If you need a reliable spray paint that offers a perfect match to existing black trims or parts, this product is designed to meet those needs efficiently.
@@ -49,10 +49,10 @@ The **Dupli-Color EBUN01007 Perfect Match** spray paint is formulated to deliver
 
 Thanks to its **universal compatibility**, this spray paint covers a variety of surfaces including metal, wood, and plastic. The 8 oz. size strikes a perfect balance between quantity and ease of use, allowing for precise application without excessive waste. Overall, it provides a cost-effective solution for achieving a high-quality black finish with the reliability and assurance of the **Dupli-Color** brand.
 
-## <a href="https://www.amazon.com/dp/B006ZLQ4HQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rust-oleum Stops Rust Automotive 2-in-1 Filler &amp; Sandable Primer Spray</a>
+## <a href="https://www.amazon.com/dp/B006ZLQ4HQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rust-oleum Stops Rust Automotive 2-in-1 Filler &amp; Sandable Primer Spray</a>
 
 
-<a href="https://www.amazon.com/dp/B006ZLQ4HQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rust-Oleum 260510 Stops Rust Automotive 2-in-1 Filler &amp; Sandable Primer Spray, 12 oz, Gray" src="https://m.media-amazon.com/images/I/411RZBSE-TL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B006ZLQ4HQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Rust-Oleum 260510 Stops Rust Automotive 2-in-1 Filler &amp; Sandable Primer Spray, 12 oz, Gray" src="https://m.media-amazon.com/images/I/411RZBSE-TL._SL500_.jpg"/></a>
 
 
 The **Rust-Oleum 260510 Stops Rust Automotive 2-in-1 Filler & Sandable Primer Spray** is ideal for automotive enthusiasts and DIYers looking to prepare metal surfaces for painting. If you want to effectively fill imperfections and create a smooth, sandable base coat, this product is perfect for you. It is especially suited for those who need a reliable primer that prevents rust while providing excellent adhesion for topcoats.
@@ -75,10 +75,10 @@ The **Rust-Oleum 260510 Stops Rust Automotive 2-in-1 Filler & Sandable Primer Sp
 
 Beyond its filling and priming capabilities, this product offers strong rust protection, which is essential for automotive surfaces exposed to harsh conditions. Its sandable finish ensures that users can achieve a smooth and professional look without extensive preparation work. The quick drying time enhances efficiency, allowing for faster project completion. Overall, the Rust-Oleum 260510 is a practical and effective solution for anyone looking to restore or maintain vehicle surfaces with durability and quality in mind.
 
-## <a href="https://www.amazon.com/dp/B001DKPL14?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dupli-color Multi-purpose Acrylic Enamel Spray Paint</a>
+## <a href="https://www.amazon.com/dp/B001DKPL14?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dupli-color Multi-purpose Acrylic Enamel Spray Paint</a>
 
 
-<a href="https://www.amazon.com/dp/B001DKPL14?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Dupli-Color DA1692 Multi-Purpose Acrylic Enamel Spray Paint - Crystal Clear - 12 oz. Aerosol Can" src="https://m.media-amazon.com/images/I/41pvyg8ZgUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B001DKPL14?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Dupli-Color DA1692 Multi-Purpose Acrylic Enamel Spray Paint - Crystal Clear - 12 oz. Aerosol Can" src="https://m.media-amazon.com/images/I/41pvyg8ZgUL._SL500_.jpg"/></a>
 
 
 The **Dupli-Color DA1692 Multi-Purpose Acrylic Enamel Spray Paint** in **Crystal Clear** is ideal for DIY enthusiasts, automotive hobbyists, and professionals who need a reliable protective finish. If you are looking to add a durable, glossy layer over your painted surfaces or want to protect metal, wood, or plastic projects with a clear coat, this product is a great choice. Its versatility makes it perfect for a wide range of applications including automotive touch-ups, home repairs, and crafts.
@@ -101,10 +101,10 @@ The **Dupli-Color DA1692** spray paint stands out due to its high-quality acryli
 
 Additionally, the compact size and lightweight nature of the **12 oz. aerosol can** make it convenient to handle and store. Users appreciate the versatility of this spray paint as it adheres well to various surfaces such as metal, wood, and plastic, providing a flexible solution for different needs. Whether you are sealing a freshly painted surface or refreshing an older item, this product helps extend the life and enhance the appearance of your work with minimal effort.
 
-## <a href="https://www.amazon.com/dp/B0DJMF2NS3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">U-pol Expert Color Protective Clearcoat</a>
+## <a href="https://www.amazon.com/dp/B0DJMF2NS3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">U-pol Expert Color Protective Clearcoat</a>
 
 
-<a href="https://www.amazon.com/dp/B0DJMF2NS3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="U-POL Expert Color Protective Clearcoat, Automotive Clearcoat Spray Paint, Professional Grade, Easy-To-Use, Clear" src="https://m.media-amazon.com/images/I/31kVFt4iVKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DJMF2NS3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="U-POL Expert Color Protective Clearcoat, Automotive Clearcoat Spray Paint, Professional Grade, Easy-To-Use, Clear" src="https://m.media-amazon.com/images/I/31kVFt4iVKL._SL500_.jpg"/></a>
 
 
 The **U-POL Expert Color Protective Clearcoat** is ideal for automotive enthusiasts, professional painters, and DIYers looking to enhance and protect their vehicle's paintwork. If you want a **professional-grade**, **easy-to-use clearcoat spray paint** that provides a durable, glossy finish, this product is designed for you.
@@ -127,10 +127,10 @@ The **U-POL Expert Color Protective Clearcoat** is formulated to deliver a smoot
 
 Designed with ease of use in mind, this clearcoat spray paint offers effortless application even for those who may not be professional painters. Its compact size and well-balanced spray nozzle allow for precise control, reducing overspray and waste. Whether you are touching up small areas or applying a full protective coat, the U-POL clearcoat delivers consistent, high-quality results that protect your investment.
 
-## <a href="https://www.amazon.com/dp/B0D7C21GJ2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Black Touch Up Paint For Cars</a>
+## <a href="https://www.amazon.com/dp/B0D7C21GJ2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Black Touch Up Paint For Cars</a>
 
 
-<a href="https://www.amazon.com/dp/B0D7C21GJ2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Black Touch Up Paint for Cars - Color Accurate, Professional Automotive Scratch Repair, Lasting Auto Scratch Remover, Quick Drying, Easy to Use, Safe and Non-toxic" src="https://m.media-amazon.com/images/I/319tqazBnWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D7C21GJ2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Black Touch Up Paint for Cars - Color Accurate, Professional Automotive Scratch Repair, Lasting Auto Scratch Remover, Quick Drying, Easy to Use, Safe and Non-toxic" src="https://m.media-amazon.com/images/I/319tqazBnWL._SL500_.jpg"/></a>
 
 
 Ideal for car owners and automotive enthusiasts looking to effortlessly restore their vehicle's appearance, the **Black Touch Up Paint for Cars** by **xdotoar** is perfect for anyone needing a quick, reliable, and professional solution to cover scratches and minor paint damages. Whether you want to maintain your car’s pristine look or prepare it for resale, this product offers a convenient and effective way to achieve a smooth finish without visiting a body shop.
@@ -153,10 +153,10 @@ The **Black Touch Up Paint for Cars** features a **color-accurate** formula spec
 
 Beyond its convenience, the paint's **safe and non-toxic** ingredients make it an environmentally friendly option, reducing the risk of harmful fumes during application. The lasting quality of the paint ensures that repaired areas remain protected against further damage, preserving your vehicle’s value and aesthetic appeal over time. Whether for personal satisfaction or practical maintenance, this touch-up paint is a valuable tool for keeping your car looking its best.
 
-## <a href="https://www.amazon.com/dp/B0DJMCX9CN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">U-pol Expert Color For Ford J7 Automotive Spray Paint</a>
+## <a href="https://www.amazon.com/dp/B0DJMCX9CN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">U-pol Expert Color For Ford J7 Automotive Spray Paint</a>
 
 
-<a href="https://www.amazon.com/dp/B0DJMCX9CN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="U-POL Expert Color, For Ford J7, Automotive Spray Paint, Professional Grade, Long-Lasting, Easy-To-Use, Magnetic Gray" src="https://m.media-amazon.com/images/I/31shhOFG6TL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DJMCX9CN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="U-POL Expert Color, For Ford J7, Automotive Spray Paint, Professional Grade, Long-Lasting, Easy-To-Use, Magnetic Gray" src="https://m.media-amazon.com/images/I/31shhOFG6TL._SL500_.jpg"/></a>
 
 
 The **U-POL Expert Color, For Ford J7** is ideal for automotive enthusiasts, professional painters, and DIYers who demand a **high-quality, long-lasting** spray paint specifically designed for Ford vehicles. If you're looking to achieve a flawless, factory-style finish with ease, this **professional-grade** spray paint in **Magnetic Gray** is tailored for you.
@@ -179,10 +179,10 @@ The **U-POL Expert Color spray paint** is formulated to deliver a precise match 
 
 Thanks to its **long-lasting durability**, the paint resists common automotive wear such as fading, chipping, and weather damage, keeping your vehicle looking fresh for longer. The compact size of the can enhances maneuverability, making it ideal for detailed work or smaller touch-up jobs. Overall, the U-POL Expert Color offers a reliable, high-performance solution for anyone looking to maintain or restore the pristine appearance of their Ford vehicle.
 
-## <a href="https://www.amazon.com/dp/B0DVBKHQV2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">High Ground Custom Automotive Aerosol Spray Paint</a>
+## <a href="https://www.amazon.com/dp/B0DVBKHQV2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">High Ground Custom Automotive Aerosol Spray Paint</a>
 
 
-<a href="https://www.amazon.com/dp/B0DVBKHQV2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="HIGH GROUND Custom Automotive Aerosol Spray Paint - Factory OEM Color Aerosol Cans - Perfect Match for Your Vehicle" src="https://m.media-amazon.com/images/I/31DdYfsJkOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DVBKHQV2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="HIGH GROUND Custom Automotive Aerosol Spray Paint - Factory OEM Color Aerosol Cans - Perfect Match for Your Vehicle" src="https://m.media-amazon.com/images/I/31DdYfsJkOL._SL500_.jpg"/></a>
 
 
 The **HIGH GROUND Custom Automotive Aerosol Spray Paint** is ideal for car enthusiasts, professional auto body shops, and DIY hobbyists who seek a **perfect match** for their vehicle's original factory paint. If you value precision, quality, and ease of application, this product is tailored for you.
@@ -202,10 +202,10 @@ The **HIGH GROUND Custom Automotive Aerosol Spray Paint** offers a **factory OEM
 
 One of the standout features is the **custom color** option, allowing users to find the exact shade needed for their specific make and model. This flexibility is particularly beneficial for car enthusiasts who take pride in maintaining their vehicle’s appearance. Although the process may require **multiple coats** for the best results, the end finish is worth the effort, providing a **high-quality, durable finish** that withstands the test of time.
 
-## <a href="https://www.amazon.com/dp/B0DJMBVDHQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">U-pol Expert Color Universal Automotive Spray Paint</a>
+## <a href="https://www.amazon.com/dp/B0DJMBVDHQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">U-pol Expert Color Universal Automotive Spray Paint</a>
 
 
-<a href="https://www.amazon.com/dp/B0DJMBVDHQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="U-POL Expert Color Universal, Automotive Spray Paint, Professional Grade, Long-Lasting, Easy-To-Use, White" src="https://m.media-amazon.com/images/I/41UqeR932DL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DJMBVDHQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="U-POL Expert Color Universal, Automotive Spray Paint, Professional Grade, Long-Lasting, Easy-To-Use, White" src="https://m.media-amazon.com/images/I/41UqeR932DL._SL500_.jpg"/></a>
 
 
 The **U-POL Expert Color Universal Automotive Spray Paint** in **White** is ideal for professional auto body shops, car enthusiasts, and DIYers seeking a reliable and high-quality finish. If you require a **professional grade** spray paint that offers **long-lasting** durability and is **easy-to-use**, this product is designed to meet those needs effectively.
@@ -228,10 +228,10 @@ The **U-POL Expert Color Universal Automotive Spray Paint** is crafted with a fo
 
 One of the standout features is its **easy-to-use** spray mechanism, which allows for precise control and minimal overspray, making it suitable even for less experienced users. The compact size of the can makes it highly portable and easy to store, perfect for on-the-go repairs or workshop use. Overall, this spray paint offers a reliable and efficient solution for anyone looking to enhance or restore their vehicle's appearance with a professional touch.
 
-## <a href="https://www.amazon.com/dp/B0DJMDWY9B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">U-pol Expert Color</a>
+## <a href="https://www.amazon.com/dp/B0DJMDWY9B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">U-pol Expert Color</a>
 
 
-<a href="https://www.amazon.com/dp/B0DJMDWY9B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="U-POL Expert Color, For Honda/Acura NH731P, Automotive Spray Paint, Professional Grade, Long-Lasting, Easy-To-Use, Cyrstal Black Pearl" src="https://m.media-amazon.com/images/I/41F8D5WxI6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DJMDWY9B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="U-POL Expert Color, For Honda/Acura NH731P, Automotive Spray Paint, Professional Grade, Long-Lasting, Easy-To-Use, Cyrstal Black Pearl" src="https://m.media-amazon.com/images/I/41F8D5WxI6L._SL500_.jpg"/></a>
 
 
 The **U-POL Expert Color** in **Cyrstal Black Pearl** is an ideal choice for automotive enthusiasts and professional body shops looking to achieve a flawless finish on **Honda** and **Acura** vehicles. This professional-grade spray paint is perfect for those who demand a durable, long-lasting, and easy-to-use solution for touch-ups or complete repainting projects. Whether you're a DIYer or a seasoned expert, this product offers precision and quality that meets industry standards.
@@ -254,10 +254,10 @@ The **U-POL Expert Color Automotive Spray Paint** offers outstanding adhesion an
 
 Additionally, the spray paint's ergonomic can design makes it accessible for both novices and professionals, promoting ease of application without compromising quality. The compact size also allows for easy maneuverability and storage, making it a practical choice for workshops or home garages. Overall, the U-POL Expert Color delivers a reliable, efficient, and visually impressive solution for automotive paint touch-ups and refinishing needs.
 
-## <a href="https://www.amazon.com/dp/B0DZ2CWYTN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Gloss Black Rim Touch Up Paint</a>
+## <a href="https://www.amazon.com/dp/B0DZ2CWYTN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Gloss Black Rim Touch Up Paint</a>
 
 
-<a href="https://www.amazon.com/dp/B0DZ2CWYTN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Gloss Black Rim Touch Up Paint, Efficient Car Alloy Wheel Scratch Repair Kit, Quick and Easy Remover Curb Rash, Universal and Color Accurate, Long lasting, Resists Water, Uv Rays" src="https://m.media-amazon.com/images/I/41iP9w4XHpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DZ2CWYTN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Gloss Black Rim Touch Up Paint, Efficient Car Alloy Wheel Scratch Repair Kit, Quick and Easy Remover Curb Rash, Universal and Color Accurate, Long lasting, Resists Water, Uv Rays" src="https://m.media-amazon.com/images/I/41iP9w4XHpL._SL500_.jpg"/></a>
 
 
 Ideal for car owners and enthusiasts looking to maintain the pristine appearance of their wheels, the **Gloss Black Rim Touch Up Paint** is perfect for those who want a quick and effective solution to repair scratches and curb rash on alloy wheels. This product is especially suited for individuals who prefer a DIY approach to car maintenance, seeking a reliable, color-accurate, and long-lasting finish without the need for professional help.
